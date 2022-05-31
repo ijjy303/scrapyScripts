@@ -1,63 +1,93 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/31/2022-16:11:31
+Last updated: 05/31/2022-17:11:31
 <br>
-## <a href="#linky2" id="linky1">27 Funny Memes to Kick Boredom to the Curb </a><br>
+## <a href="#linky2" id="linky1">19 Clever Memes From the Dankest Minds</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179654.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Hes been right in front of our faces the entire time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174088.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179664.png" style="width:100%"><br>
+<span style="font-size:4em">2. We each choose different paths in life. Some no doubt harder than others. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179666.png" style="width:100%"><br>
+<span style="font-size:4em">3. Before we judge him, maybe we should hear what he has to say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179657.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Oh look that doesnt concern me all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Bro on the left looks like he just took the best afternoon nap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179658.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179660.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Minimum wage has increased in many states.  We suggest you Google it Padme. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179661.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. He cant keep getting away with it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Take notes kids, that way when you you get questioned youll always have the answers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179662.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174096.gif" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179663.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. Its because of this scene that I thought. life would more quicksand than it did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Lmao, he there step-owner, Im stuck in the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179655.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Oh thank god it wasnt something important. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179665.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174099.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179667.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. This is our petition to remake Jurassic Park but with accurate depictions of dinosaurs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179668.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. Sleep is for the lazy and weak. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179656.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Oh dont worry you look great! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179669.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174104.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. This damn voice in my head wont shut up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179670.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179671.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. Now this is what high fashion looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Shes got those wandering eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179672.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179673.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. Nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This movie actually looks pretty great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179674.jpeg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">Popular Things in the Media That Are Actually Propaganda</a><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179675.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. I love the show Law and Order, but I have to wonder how much damage its done to our public view of police officers. On the show, if someone takes the 5th, theyre guilty. If a cop beats up a suspect, they were guilty. Heck, if they shoot them, interrogate them hard, frame them, lie to them, hack their personal computers, etc... its all okay, because theyre guilty.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125408/87179995/propoganda1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179676.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Undercover Boss. At this point, any worker should know if they see a middle aged white guy or woman with a bad wig, make up, and a camera crew behind them should be able to figure out theyre on Undercover Boss.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125419/87179996/propoganda4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179677.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. Feel good stories, like “8 year old kid saves up $3000 by working to help sister afford her surgery.”</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125430/87179997/propoganda5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. What in Gods name is this terrible creation? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179680.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. America’s Got Talent. It promotes the idea that talent goes hand in hand with struggle, so much so that genuinely awful acts make it through on the strength of their sob story.People have a hard enough time accepting the work that goes into being a creative without having to attach a tragic backstory to it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125438/87179998/propoganda3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Always has been. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179681.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. Business articles on LinkedIn that talk about how people should stop seeking work/life balance and start embracing work/life integration.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125438/87179999/propoganda2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179682.png" style="width:100%"><br>
+<span style="font-size:4em">6. Superhero movies are endorsements of extrajudicial punishment.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125441/87180000/propoganda6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Now thats going in your file, Craig. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179683.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Any modern war movie featuring real military equipment. To get access to the equipment, they need to work with the Department of Defense. For them to allow it, they need to approve the script. For them to approve the script, the movie needs to give a positive portrayal of the military.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125452/87180002/propoganda9.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">22 WTF Comments That Cannot Be Unread</a><br>
+<span style="font-size:4em">8. The movie, Reefer Madness. Terrible movie, but hilarious today.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125502/87180003/propoganda10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The entire cop show genre. It goes back to the radio drama days and spans drama, comedy, infotainment, documentary, and multiple other genres, but it almost always presents the police as being the white-hatted Good Guys out to stop the Bad Guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125504/87180004/propoganda7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Walmart radio. I worked at Walmart for 3 months and I realized that it seems to be designed to be tuned out by shoppers. It’s real purpose is to brainwash employees and get into their heads so they believe all of the “we’re a family” crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125513/87180005/propoganda12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Any news targeting stock owners. Not the big companies, but the private people who have a few thousand dollars worth or less. The way it works is that a scandal comes out and is designed to make people panic and sell, swinging the price down by a lot, sometimes half the price. Then big companies buy up billions of dollars worth and this swings the price back up. Then they sell it again making a fortune.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125516/87180006/propoganda11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Internship (2013). Just Wedding Crashers but taken over by our Google overlords. Praise be.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125524/87180007/propoganda13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I love Top Gun. Its a huge guilty pleasure of mine and I cant wait to see Maverick in theaters. That being said, it is 1000% propaganda for the Navy, to the point where the Navy had a lot of say in the script and they set up recruitment booths outside the theater.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125528/87180008/propoganda14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. American Sniper. I’m still mad that I got tricked into thinking it was a movie about PTSD.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125535/87180009/propoganda15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Forced recitations of the Pledge of Allegiance for US public school kids.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125539/87180010/propoganda16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Wizard (1989).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125546/87180011/propoganda17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Drug ads. Our advertisements pushing drugs for every single ailment are just propaganda for big pharma.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125550/87180012/propoganda18.png" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">Daughter-In-Law Ruins Shirt after Absurd Ironing Request from Father-In-Law</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045844/87177869/first.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045847/87177870/second.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045915/87177871/final.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045934/87177872/theend.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">22 WTF Comments That Cannot Be Unread</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176620.jpg" style="width:100%"><br>
 
@@ -101,169 +131,7 @@ Last updated: 05/31/2022-16:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/013233/87176696/cursed-comments-20.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">30 Parents Who Should be Permanently Banned From Naming Children</a><br>
-
-<span style="font-size:4em">1. Ohnasti.
-
-Supposedly pronounced “Honesty” but all I’ll ever see is “Oh Nasty!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. One little girl got her name legally changed in court, because her parents named her Talula Does The Hula From Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Abcde (pronounced Ab-city).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Any name based on a popular TV series or movie. Like, if I see your daughter is named Khaleesi, I think significantly less of you as a person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Not so much a specific name, but gross butcherings of names. Ie. Kaightlynne instead of Caitlyn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Renesmee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I was once checking in a customer for service.
-
-EmoChanel
-
-And she was very proud of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I was on a little league baseball team with these two brothers named Doer and Achiever.
-
-Talk about pressure to perform, those parents had expectations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. So my Wife was giving birth to our first Son and the midwife asked if we’d chosen a name yet. We said yes and told her ‘Seth’. She replied “Oh thank goodness, a normal name! The last woman in here named her child Precious Bunny!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I used to write on cakes, the worst name I ever saw was Tuba Poo. I asked if it was a nickname, it was not. Its been like 6 years and it still haunts me. Her mothers name was Natalie, why Natalie? Why?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A co-worker has a friend who named her daughters Vengeance and Violence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The overly matchy names to the point of ridiculousness. My top example is a set of brothers named Romance, Romantic, and Romeo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Back when I worked with children, I met a young lass named Younique. I felt sorry for her. She was only 4-5 at the time, and the moment she entered school, she began to hate it because the other children thought that it was silly and wouldn’t play with her. Eventually, the dad of another child said that it was a bad name *to her face.* Seriously. Don’t do things like this to your children. They aren’t pets. They’ll have to deal with the repercussions of your bad naming choices.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Someone I know is a nurse in the ER so theyve delivered quite a few babies. But one day they said that one set of parents decided to name their kid Ssss. You pronounce Ssss, Forest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Baby. As in the Dirty Dancing lead female. Because nobody in the professional world is going to want their name to be Baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kash. It isnt the worst name in the world but the fact his second name was Ransom, made it a whole lot worse.
-
-Kash Ransom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Saw a fun name on the attendance sheet (so this is official) of one of my classes: Daddyboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. MyLuv (yes, I have met a kid named this). That poor kid is probably not going to be successful, unless they change their name later on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I went to high school with a one Crystal Shanda Lear.
-
-This was back before dumb names were the rage. She would have been named that in, say, 81-82. Poor girl. I dont know that I lost respect for the parents so much as felt bad for her to be saddled with that s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I lose respect for parents who give their kids first names that when added to their given last names become horrible. The parents dont even care that their kid has to live with it. Two real examples Ive come across are Richard Sieman (The guys name is D**k Semen, for f***s sake.) And even worse, Desire Cox.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Anaesthasia. No s**t. Her name on her school documents was Anaesthasia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. One of my former employees had the first name “Baby Destiny.” Yes. Really.
-
-Worse still, HR just put “Baby” on her name badge. For every time I had to catch myself and say the full name so I didn’t sound like a creep, I can only imagine how many other people didn’t realize there were two words in her name and had to refer to her as just Baby. Or how she must have felt to have EVERYONE calling her Baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Royalty. Legit worked with this hood dude named royalty. I think it kinda speaks for itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. You know the Duggar family (19 Kids and Counting)? One of their daughters named their son Spurgeon. SPURGEON.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I knew three sisters names -Autumn-Breeze, Summer-Skye and April-Rain.
-
-Bonus addition one of them had a kid and named it Gidget.
-
-Edit for those wondering: This is in Eastern Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. One time when I was working at a motel, I took a reservation over the phone from a woman for her daughter:
-
-Woman: Her name is Sri Lanka, S R I space L A N K A...
-
-Me: Oh, you mean like the country!
-
-Woman: Whaddaya mean, country?!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. There is a kid at my school literally named Shadow Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Tequila, but pronounced tuh-quill-uh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Strap in and prepare for rough seas!
-
-My mom is a midwife and one day she came home with what she thought was the epitome of dumb names.
-
-These parents had just gotten back from a trip to the states, where they had visited a dock to look at boats, and one of those beautiful boats had an even more beautiful and exotic name, they wanted to name their baby daughter after this boat.
-
-Usnavy
-
-My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Prancer and Vixen for babies born during the Christmas season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177410.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">Daughter-In-Law Ruins Shirt after Absurd Ironing Request from Father-In-Law</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045844/87177869/first.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045847/87177870/second.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045915/87177871/final.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045934/87177872/theend.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">28 Images to Lift Your Spirits</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177301.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">24 Guys Who Aren’t Really That Tough</a><br>
+## <a href="#linky6" id="linky5">24 Guys Who Aren’t Really That Tough</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044057/87177845/sotough1.png" style="width:100%"><br>
 
@@ -313,7 +181,7 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044311/87177867/sotough24.png" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">31 Dank Memes That Don't Give Two Sh*ts About the Social Contract</a><br>
+## <a href="#linky7" id="linky6">31 Dank Memes That Don't Give Two Sh*ts About the Social Contract</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176293.jpeg" style="width:100%"><br>
 
@@ -373,7 +241,7 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176322.jpeg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Disturbing Facts You Won't Soon Forget </a><br>
+## <a href="#linky8" id="linky7">Disturbing Facts You Won't Soon Forget </a><br>
 
 <span style="font-size:4em">1. Your eyes have a separate immune-system from the rest of your body. Once your bodys immune system discovers you have eyes, it will attack and inflame the blood vessels in the back of your eyes. This can lead to your vision decreasing or even going blind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169053.jpg" style="width:100%"><br>
 
@@ -413,7 +281,7 @@ Thats why the traditional marshmallows arent vegan or halal...</span><br><img sr
 
 <span style="font-size:4em">15. Your phone is likely spying on you right now as youre reading this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169058.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Police Officers Give Their Take on the Texas Fiasco</a><br>
+## <a href="#linky9" id="linky8">Police Officers Give Their Take on the Texas Fiasco</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179922.jpg" style="width:100%"><br>
 
@@ -445,7 +313,7 @@ Thats why the traditional marshmallows arent vegan or halal...</span><br><img sr
 
 <span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179936.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">Revolutionary War Facts They Never Taught In School</a><br>
+## <a href="#linky10" id="linky9">Revolutionary War Facts They Never Taught In School</a><br>
 
 <span style="font-size:4em">1. There was a plot to kill or kidnap George Washington early in the Revolutionary War - the traitors were from Washingtons Life Guards, similar to todays Secret Service. One of the traitors was the first person to be put to death for treason, Thomas Hickey, in front of 20,000 people.
 
@@ -549,7 +417,163 @@ Thats why the traditional marshmallows arent vegan or halal...</span><br><img sr
 
 -u/calvicstaff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178344.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">17 WW1 Pictures You Probably Haven't Seen </a><br>
+## <a href="#linky11" id="linky10">27 Funny Memes to Kick Boredom to the Curb </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179654.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179664.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179666.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179657.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Bro on the left looks like he just took the best afternoon nap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179658.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179660.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179661.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Take notes kids, that way when you you get questioned youll always have the answers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179662.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179663.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Lmao, he there step-owner, Im stuck in the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179655.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Oh thank god it wasnt something important. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179665.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179667.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179668.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179656.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. This damn voice in my head wont shut up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179670.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179671.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Shes got those wandering eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179673.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This movie actually looks pretty great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179674.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179675.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179676.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179677.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. What in Gods name is this terrible creation? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179680.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Always has been. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179681.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179682.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. Now thats going in your file, Craig. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179683.jpeg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">28 Images to Lift Your Spirits</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177301.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">20 WTF Animal Pics That Froze Us in Our Tracks</a><br>
+
+<span style="font-size:4em">1. We get it bro, you lift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Nope, nope, nope. Im good thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This is a red-bearded vulture, and Im not messin around with that thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Thats a lot of bees.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you like Sharknado youre gonna love...BIRDNADO!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Youre basically staring into the dead eyes of a crocodile that wants to make you its dinner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Uhh, maybe dont f**k with leopards. Noted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. A whale carcass thats been inflated. Yikes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This is giving off big dad hit mom at the dinner table vibes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. WTF is wrong with geese. Like multiple sets of teeth are necessary. Grow up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This snake is playing chess not checkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Oh you know, just your everyday honey badger with skin thick enough to not even be phased by a porcupine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A photographer caught the real life Jaws.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Mama bear ready to pounce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. This is what I look like after a night of drinking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Peekaboo. I see you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Just an eagle that captured a feral pig. NBD.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Im never moving to Australia. Ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Spiders making cocoon blankets in the trees during flood season. No thank you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Tarantulas keep frogs as pets because of course they do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175916.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">17 WW1 Pictures You Probably Haven't Seen </a><br>
 
 <span style="font-size:4em">1. A British officer leads the way “over the top” amid the bursting of German shells.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174911.jpg" style="width:100%"><br>
 
@@ -591,47 +615,101 @@ Chemical weapons were a part of the arsenal of World War I armies from the begin
 
 <span style="font-size:4em">17. A messenger dog with a spool attached to a harness for laying out new electric line in September of 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174927.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">19 Conspiracy Theories That Turned Out to Be True</a><br>
+## <a href="#linky15" id="linky14">30 Parents Who Should be Permanently Banned From Naming Children</a><br>
 
-<span style="font-size:4em">1. “Marylin Monroe was being spied on by...everyone. Seriously. When another owner of her former residence decided to renovate, the number of wires and bugging they found was astounding.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180237.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Ohnasti.
+
+Supposedly pronounced “Honesty” but all I’ll ever see is “Oh Nasty!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Project Stargate. Turns out men really did stare at goats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180238.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. One little girl got her name legally changed in court, because her parents named her Talula Does The Hula From Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “There were, in fact, incidents where undesirables (certain races, disabled people, etc) were sterilized without their consent, going back as far as the 1800s. And there are still allegations of this happening, today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180239.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Abcde (pronounced Ab-city).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177383.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “PRISM :- Turns out the government was spying on you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180240.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Any name based on a popular TV series or movie. Like, if I see your daughter is named Khaleesi, I think significantly less of you as a person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177384.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The FBI did want Martin Luther King Jr dead and even went as far as sending him letters trying to bully him into dying by suicide. They may not have put a gun in James Earl Rays hands, but they were happy with the outcome.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180241.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Not so much a specific name, but gross butcherings of names. Ie. Kaightlynne instead of Caitlyn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177385.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Ms. Spears posted weird videos on instagram, seemingly normal at first glance but extremely creepy and weird the more you watch them. Some people said she was calling for help.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180242.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Renesmee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Pretty much everything in the Panama Papers was part of one conspiracy theory or another and they were all proved pretty much right.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180243.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I was once checking in a customer for service.
+
+EmoChanel
+
+And she was very proud of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177388.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Operation Mockingbird. The news is the same everywhere even the local news.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180244.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I was on a little league baseball team with these two brothers named Doer and Achiever.
+
+Talk about pressure to perform, those parents had expectations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Not officially confirmed as far as I know, but I think Gary Webb was likely correct about the CIA flooding black neighborhoods with crack in the 1980s to fund thier ops in Nicaragua. This was covered in his book series Dark Alliance. He was later found with two gunshots to his head and his death was ruled a suicide.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180245.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. So my Wife was giving birth to our first Son and the midwife asked if we’d chosen a name yet. We said yes and told her ‘Seth’. She replied “Oh thank goodness, a normal name! The last woman in here named her child Precious Bunny!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177390.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “The 1960 weed-smoking hippies complaining about the rising police state and the federal surveillance programs? We owe them a whopper of an apology.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180246.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I used to write on cakes, the worst name I ever saw was Tuba Poo. I asked if it was a nickname, it was not. Its been like 6 years and it still haunts me. Her mothers name was Natalie, why Natalie? Why?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Remember: it isnt a left vs right issue. It is a top vs bottom issue.Edit: What I mean is it is those in power (top) vs those not in power (bottom). It is completely off balance with the majority of us being on the bottom and subject to those up top. Rules for three, but not for me.Divided we fall. Whatever division we choose to quarrel about doesnt help the top vs bottom problem.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180247.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. A co-worker has a friend who named her daughters Vengeance and Violence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Our phones listening to everything.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180248.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The overly matchy names to the point of ridiculousness. My top example is a set of brothers named Romance, Romantic, and Romeo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “MKUltra like someone above said, the FBI seeking out mentally disturbed people to help them plan attacks so they can arrest them right before they carry it out, COINTELPRO, Operation Northwoods and literally everything the CIA dabbles in. I also believe most people dont realize the government has worked directly with media companies since at least WW2 in an effort to sway public opinion in their favor. Add on the theater of left/right politics, 24hr talk shows posing as news and a executive order allowing the US people to openly be bombarded with harmful propaganda.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180249.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Back when I worked with children, I met a young lass named Younique. I felt sorry for her. She was only 4-5 at the time, and the moment she entered school, she began to hate it because the other children thought that it was silly and wouldn’t play with her. Eventually, the dad of another child said that it was a bad name *to her face.* Seriously. Don’t do things like this to your children. They aren’t pets. They’ll have to deal with the repercussions of your bad naming choices.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177381.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “There are cameras in some smart televisions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180250.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Someone I know is a nurse in the ER so theyve delivered quite a few babies. But one day they said that one set of parents decided to name their kid Ssss. You pronounce Ssss, Forest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “There were no WMDs. The US government used that lie as an excuse to invade Iraq in the early 2000s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180251.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Baby. As in the Dirty Dancing lead female. Because nobody in the professional world is going to want their name to be Baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “That Tor the program that allows access to the Deep Web was owned by the CIA.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180252.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Kash. It isnt the worst name in the world but the fact his second name was Ransom, made it a whole lot worse.
+
+Kash Ransom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Elites and other powerful people being pedos. Just look at Epstein and everyone he was involved with.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180253.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Saw a fun name on the attendance sheet (so this is official) of one of my classes: Daddyboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Von Braun’s nazi membership was not well known to the American public until the 90’s and if you tell someone that Nazis helped get us to the moon they’re going to think you forgot your tin foil hat at the house. There are plenty of “conspiracy theories” that later become known fact.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180254.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. MyLuv (yes, I have met a kid named this). That poor kid is probably not going to be successful, unless they change their name later on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “There was a post in another AskReddit thread about NDAs from a guy who worked at GSachs. His big secret was that there were supposedly a ton of anonymous, unregulated/illegal trading accounts within their system doing a shit ton of trading volume that all employees were told to ignore and not ask about. Apparently you have to go through a lot of certifications and identity stuff to open a fund of that type, yet these had none of that and were clearly black box slush funds of some kind, maybe worse. Theres absolutely some crazy bullshit going on there.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180256.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. I went to high school with a one Crystal Shanda Lear.
+
+This was back before dumb names were the rage. She would have been named that in, say, 81-82. Poor girl. I dont know that I lost respect for the parents so much as felt bad for her to be saddled with that s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177399.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">24 Designs With A Sense Of Humor</a><br>
+<span style="font-size:4em">20. I lose respect for parents who give their kids first names that when added to their given last names become horrible. The parents dont even care that their kid has to live with it. Two real examples Ive come across are Richard Sieman (The guys name is D**k Semen, for f***s sake.) And even worse, Desire Cox.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Anaesthasia. No s**t. Her name on her school documents was Anaesthasia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. One of my former employees had the first name “Baby Destiny.” Yes. Really.
+
+Worse still, HR just put “Baby” on her name badge. For every time I had to catch myself and say the full name so I didn’t sound like a creep, I can only imagine how many other people didn’t realize there were two words in her name and had to refer to her as just Baby. Or how she must have felt to have EVERYONE calling her Baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Royalty. Legit worked with this hood dude named royalty. I think it kinda speaks for itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. You know the Duggar family (19 Kids and Counting)? One of their daughters named their son Spurgeon. SPURGEON.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I knew three sisters names -Autumn-Breeze, Summer-Skye and April-Rain.
+
+Bonus addition one of them had a kid and named it Gidget.
+
+Edit for those wondering: This is in Eastern Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. One time when I was working at a motel, I took a reservation over the phone from a woman for her daughter:
+
+Woman: Her name is Sri Lanka, S R I space L A N K A...
+
+Me: Oh, you mean like the country!
+
+Woman: Whaddaya mean, country?!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. There is a kid at my school literally named Shadow Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Tequila, but pronounced tuh-quill-uh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Strap in and prepare for rough seas!
+
+My mom is a midwife and one day she came home with what she thought was the epitome of dumb names.
+
+These parents had just gotten back from a trip to the states, where they had visited a dock to look at boats, and one of those beautiful boats had an even more beautiful and exotic name, they wanted to name their baby daughter after this boat.
+
+Usnavy
+
+My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Prancer and Vixen for babies born during the Christmas season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177410.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">24 Designs With A Sense Of Humor</a><br>
 
 <span style="font-size:4em">1. “If only there was an easier way to see who was outside your front door.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176402.png" style="width:100%"><br>
 
@@ -681,7 +759,7 @@ Chemical weapons were a part of the arsenal of World War I armies from the begin
 
 <span style="font-size:4em">24. “Shocked by this bus design.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176425.png" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">15 Rules to Save You From Deathbed Regrets</a><br>
+## <a href="#linky17" id="linky16">15 Rules to Save You From Deathbed Regrets</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177543.jpg" style="width:100%"><br>
 
@@ -712,100 +790,4 @@ Chemical weapons were a part of the arsenal of World War I armies from the begin
 <span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177556.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177557.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">20 WTF Animal Pics That Froze Us in Our Tracks</a><br>
-
-<span style="font-size:4em">1. We get it bro, you lift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Nope, nope, nope. Im good thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This is a red-bearded vulture, and Im not messin around with that thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Thats a lot of bees.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If you like Sharknado youre gonna love...BIRDNADO!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Youre basically staring into the dead eyes of a crocodile that wants to make you its dinner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Uhh, maybe dont f**k with leopards. Noted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. A whale carcass thats been inflated. Yikes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This is giving off big dad hit mom at the dinner table vibes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. WTF is wrong with geese. Like multiple sets of teeth are necessary. Grow up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This snake is playing chess not checkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Oh you know, just your everyday honey badger with skin thick enough to not even be phased by a porcupine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A photographer caught the real life Jaws.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Mama bear ready to pounce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This is what I look like after a night of drinking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Peekaboo. I see you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Just an eagle that captured a feral pig. NBD.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Im never moving to Australia. Ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Spiders making cocoon blankets in the trees during flood season. No thank you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Tarantulas keep frogs as pets because of course they do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175916.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">19 Clever Memes From the Dankest Minds</a><br>
-
-<span style="font-size:4em">1. Hes been right in front of our faces the entire time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174088.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. We each choose different paths in life. Some no doubt harder than others. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Before we judge him, maybe we should hear what he has to say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Oh look that doesnt concern me all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Minimum wage has increased in many states.  We suggest you Google it Padme. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. He cant keep getting away with it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174096.gif" style="width:100%"><br>
-
-<span style="font-size:4em">9. Its because of this scene that I thought. life would more quicksand than it did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174099.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. This is our petition to remake Jurassic Park but with accurate depictions of dinosaurs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174100.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Sleep is for the lazy and weak. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Oh dont worry you look great! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174104.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Now this is what high fashion looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174109.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">Entitled Parents Pawn Their Kids off onto Grandparents for 4 Years</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174827.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174828.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174829.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174830.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174831.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174832.png" style="width:100%"><br>
 
