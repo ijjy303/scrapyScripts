@@ -1,37 +1,109 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/31/2022-12:11:31
+Last updated: 05/31/2022-13:11:31
 <br>
-## <a href="#linky2" id="linky1">Police Officers Give Their Take on the Texas Fiasco</a><br>
+## <a href="#linky2" id="linky1">Revolutionary War Facts They Never Taught In School</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179922.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. There was a plot to kill or kidnap George Washington early in the Revolutionary War - the traitors were from Washingtons Life Guards, similar to todays Secret Service. One of the traitors was the first person to be put to death for treason, Thomas Hickey, in front of 20,000 people.
+
+-u/ForthWorldTraveler
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179923.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. William Hull was an esteemed veteran of the Revolutionary War. Tarnished his reputation by surrendering the entirety of the territory of Michigan to the British in the war of 1812.
+
+-u/itsahumanoid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179924.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Baron Friedrich von Steuben was known for his bravery and the discipline and grit he brought to the American troops during The Revolutionary War and was openly gay
+
+-u/RusticRumrunner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179925.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The character’s name Bruce Wayne a/k/a Batman was based on history’s war heroes Robert the Bruce and Mad Anthony Wayne (General of Continental Army during Revolutionary War).
+
+-u/aim179</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178323.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179926.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. In 1775 Colonel Henry Knox and his men dragged 60 tons of artillery from upstate New York to Boston at the beginning of the revolutionary war
+
+-u/not_blmpkingiver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178324.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179927.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Nicholas Vedeer was the last surviving revolutionary war soldier in New York State when he died in 1862. He was photographed in his uniform sometime before his death giving an extraordinary picture of an actual American Patriot.
+
+-u/mstone72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178325.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179928.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Fourteen American Revolutionary War Veterans Lived Long Enough to Have Their Photos Taken. Most Were Over a Hundred Years Old By Then.
+
+-u/Unleashtheducks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178326.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179929.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Lafayette, the French officer who aided the U.S. Revolutionary War, gifted a pair of pistols to Washington in 1778. Eventually, they came into Andrew Jacksons possession, and Lafayette identified them while visiting Jackson in 1825. In his will, Jackson bequeathed them back to Lafayettes son.
+
+-u/SojourningCPA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179930.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The US Army has historical protocols associated with using a sword to cut cake. Traditionally, the oldest and youngest soldiers are chosen to cut the cake in some ceremonies as a way of linking the past with the future. Swords dating from the Revolutionary War are often used at such events.
+
+-u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178328.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179931.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Deborah Sampson managed to join the Revolutionary war in 1782 by disguising herself as a man
+
+-u/Jazzlike-Bullfrog-55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179932.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Paul Revere III, the great-great-great-great-grandson of the American Revolutionary War hero of the same name, currently serves as legal counsel for a copper manufacturing company that was founded by the original Paul Revere in 1801.
+
+-u/DudeAbides101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178330.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179933.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Colonial Continental Army was at most 48,000 men at any given time during the Revolutionary War
+
+-u/Jomsviking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178331.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179934.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Dwayne The Rock Johnsons father descended from Black Loyalists, who escaped to Nova Scotia after the Revolutionary War on the promise of British emancipation.
+
+-u/JoeCos47</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179935.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The Turtle, a submarine used in the revolutionary war period, used luminescent fungus to illuminate things such as its depth gauge in a time before the widespread use of electricity
+
+-u/Lykos23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178333.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179936.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. After the Boston Tea Party, many Americans switched to drinking coffee during the Revolutionary War because drinking tea had become unpatriotic.
+
+-u/Glass_Force</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Thousands more German troops died in the American Revolutionary War than British soldiers
+
+-u/LOLWutOK-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Future US President Franklin Delano Roosevelt was once an aspiring screenwriter. In 1923 he submitted a film screenplay about American Revolutionary War naval captain John Paul Jones to Paramount Pictures that was rejected
+
+-u/joe727</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The key to American victory in the Revolutionary War was the 75-ton “Great Chain” that stretched across the Hudson River to prevent the British from moving inland. It was such an obstacle, they paid Benedict Arnold £20,000 for the plans to the Chain’s main defenses, at Fort West Point
+
+-u/EssoEssex</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. One of the first American spies was a woman during the Revolutionary War. To this day, her identity is not known and is referred to only as Agent 355.
+
+-u/Voyager_AU</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Massachusetts Hall is the oldest surviving Harvard building, built between 1718 and 1720. When 640 members of Gen. George Washington’s army took up residence during the Revolutionary War, the damage they caused resulted in some of the earliest recorded renovations to the building
+
+-u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. George Washington ordered a ceasefire during the Revolutionary War to return a lost dog to its owner, Sir William Howe, a British general. The dog was found wandering the battlefield and was fed and cleaned before being returned to Howe.
+
+-u/Swpalmer7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178340.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. In the early 17th century, the royal standard of France became a plain white flag, which was intended to symbolize purity rather than surrender. The French troops fighting in the American Revolutionary War fought under the white flag.
+
+-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Paul Revere was one of Americas first orthodontists and used walrus teeth as dental implants. The walrus teeth were later helpful for identifying the corpses of his patients that were killed in the Revolutionary war.
+
+-u/al666in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. During the American Revolutionary War, the British offered freedom to any slave who fought for them under the badge Liberty to Slaves. Despite the British defeat, the promise was kept.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Lafayette was a Frenchman from the Revolutionary War who later toasted to the perpetual union of the united states. it has always served us in times of storm. one day it will save the world. American troops sent to France in World War 1 visited the grave and said Lafayette, we are here
+
+-u/calvicstaff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178344.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">46 Irreverent Pics and Funny Memes for a Good Time</a><br>
 
@@ -127,93 +199,7 @@ Last updated: 05/31/2022-12:11:31
 
 <span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/29/115817/87178717/87176058.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">44 Dank Memes to Restore Laughter Levels</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175768.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">22 WTF Comments That Cannot Be Unread</a><br>
+## <a href="#linky4" id="linky3">22 WTF Comments That Cannot Be Unread</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176620.jpg" style="width:100%"><br>
 
@@ -257,49 +243,7 @@ Last updated: 05/31/2022-12:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/013233/87176696/cursed-comments-20.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 WTF Animal Pics That Froze Us in Our Tracks</a><br>
-
-<span style="font-size:4em">1. We get it bro, you lift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Nope, nope, nope. Im good thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This is a red-bearded vulture, and Im not messin around with that thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Thats a lot of bees.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If you like Sharknado youre gonna love...BIRDNADO!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Youre basically staring into the dead eyes of a crocodile that wants to make you its dinner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Uhh, maybe dont f**k with leopards. Noted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. A whale carcass thats been inflated. Yikes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This is giving off big dad hit mom at the dinner table vibes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. WTF is wrong with geese. Like multiple sets of teeth are necessary. Grow up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This snake is playing chess not checkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Oh you know, just your everyday honey badger with skin thick enough to not even be phased by a porcupine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A photographer caught the real life Jaws.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Mama bear ready to pounce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This is what I look like after a night of drinking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Peekaboo. I see you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Just an eagle that captured a feral pig. NBD.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Im never moving to Australia. Ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Spiders making cocoon blankets in the trees during flood season. No thank you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Tarantulas keep frogs as pets because of course they do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175916.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">24 Designs With A Sense Of Humor</a><br>
+## <a href="#linky5" id="linky4">24 Designs With A Sense Of Humor</a><br>
 
 <span style="font-size:4em">1. “If only there was an easier way to see who was outside your front door.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176402.png" style="width:100%"><br>
 
@@ -349,7 +293,39 @@ Last updated: 05/31/2022-12:11:31
 
 <span style="font-size:4em">24. “Shocked by this bus design.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176425.png" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">30 Parents Who Should be Permanently Banned From Naming Children</a><br>
+## <a href="#linky6" id="linky5">15 Rules to Save You From Deathbed Regrets</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177557.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">30 Parents Who Should be Permanently Banned From Naming Children</a><br>
 
 <span style="font-size:4em">1. Ohnasti.
 
@@ -443,7 +419,7 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">30. Prancer and Vixen for babies born during the Christmas season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177410.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Daughter-In-Law Ruins Shirt after Absurd Ironing Request from Father-In-Law</a><br>
+## <a href="#linky8" id="linky7">Daughter-In-Law Ruins Shirt after Absurd Ironing Request from Father-In-Law</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045844/87177869/first.jpg" style="width:100%"><br>
 
@@ -453,7 +429,7 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045934/87177872/theend.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">28 Images to Lift Your Spirits</a><br>
+## <a href="#linky9" id="linky8">28 Images to Lift Your Spirits</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177300.jpg" style="width:100%"><br>
 
@@ -510,6 +486,56 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177299.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177301.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">24 Guys Who Aren’t Really That Tough</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044057/87177845/sotough1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044108/87177846/sotough4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044115/87177847/sotough3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044119/87177848/sotough5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044126/87177849/sotough6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044131/87177850/sotough7.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044139/87177851/sotough8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044044/87177844/sotough2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044142/87177852/sotough9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044151/87177853/sotough10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044155/87177854/sotough11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044202/87177855/sotough12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044206/87177856/sotough13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044213/87177857/sotough14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044217/87177858/sotough15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044224/87177859/sotough16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044228/87177860/sotough17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044235/87177861/sotough18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044241/87177862/sotough19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044248/87177863/sotough20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044253/87177864/sotough21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044259/87177865/sotough22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044304/87177866/sotough23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044311/87177867/sotough24.png" style="width:100%"><br>
 
 ## <a href="#linky11" id="linky10">31 Dank Memes That Don't Give Two Sh*ts About the Social Contract</a><br>
 
@@ -571,79 +597,79 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176322.jpeg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">15 Rules to Save You From Deathbed Regrets</a><br>
+## <a href="#linky12" id="linky11">20 WTF Animal Pics That Froze Us in Our Tracks</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177543.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. We get it bro, you lift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175897.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177544.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Nope, nope, nope. Im good thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175898.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177545.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This is a red-bearded vulture, and Im not messin around with that thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175899.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177546.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Thats a lot of bees.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175900.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177547.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. If you like Sharknado youre gonna love...BIRDNADO!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177548.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Youre basically staring into the dead eyes of a crocodile that wants to make you its dinner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177549.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Uhh, maybe dont f**k with leopards. Noted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177550.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. A whale carcass thats been inflated. Yikes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177551.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. This is giving off big dad hit mom at the dinner table vibes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175904.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177552.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. WTF is wrong with geese. Like multiple sets of teeth are necessary. Grow up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177553.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. This snake is playing chess not checkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177554.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Oh you know, just your everyday honey badger with skin thick enough to not even be phased by a porcupine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177555.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A photographer caught the real life Jaws.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177556.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Mama bear ready to pounce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177557.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. This is what I look like after a night of drinking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175911.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">17 WW1 Pictures You Probably Haven't Seen </a><br>
+<span style="font-size:4em">16. Peekaboo. I see you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. A British officer leads the way “over the top” amid the bursting of German shells.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174911.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Just an eagle that captured a feral pig. NBD.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175913.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. French soldiers in a bayonet charge, up a steep slope in the Argonne Forest in 1915.
-During the Second Battle of Champagne, 450,000 French soldiers advanced against a force of 220,000 Germans, momentarily gaining a small amount of territory, but losing it back to the Germans within weeks. Combined casualties came to more than 215,000 from this battle alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174913.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Im never moving to Australia. Ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175914.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Six German soldiers pose in a in trench with machine gun, a mere 40 meters from the British line.
-The machine gun appears to be a Maschinengewehr 08, or MG 08, capable of firing 450-500 rounds a minute. The large cylinder is a jacket around the barrel, filled with water to cool the metal during rapid fire. The soldier at right, with gas mask canister slung over his shoulder, is peering into a periscope to get a view of enemy activity. The soldier at rear, with steel helmet, holds a “potato masher” model 24 grenade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174914.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Spiders making cocoon blankets in the trees during flood season. No thank you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175915.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Soldiers of an Australian 4th Division field artillery brigade walk on a duckboard track laid across a muddy, shattered battlefield in Chateau Wood, near Hooge, Belgium, on October 29, 1917.
-This was during the Battle of Passchendaele, fought by British forces and their allies against Germany for control of territory near Ypres, Belgium</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174915.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Tarantulas keep frogs as pets because of course they do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87175916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Pill box demolishers” being unloaded on the Western Front. These enormous shells weighed 1,400 lbs. Their explosions made craters over 15 ft. deep and 15 yards across.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174916.jpg" style="width:100%"><br>
+## <a href="#linky13" id="linky12">Police Officers Give Their Take on the Texas Fiasco</a><br>
 
-<span style="font-size:4em">6. German soldiers practice with a flame-thrower on April 4, 1917.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174917.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179922.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. German stormtrooper during the 1918 Spring Offensive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174912.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179923.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. British tanks pass dead Germans who were alive before the cavalry advanced a few minutes before the picture was taken.
-World War I saw the debut of tank warfare, with varying levels of success, mostly poor. Many of the earlier models broke down frequently, or got bogged down in mud, fell into trenches, or, (slow-moving) were directly targeted by artillery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174918.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179924.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. An aerial view of the Hellish moonscape of the Western Front during World War I.
-Note the criss-cross patterns of multiple generations of trenches, and the thousands of craters left by mortars, artillery, and the detonation of underground mines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174919.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179925.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. German soldiers flee a gas attack in Flanders, Belgium, in September of 1917.
-Chemical weapons were a part of the arsenal of World War I armies from the beginning, ranging from irritating tear gases to painful mustard gas, to lethal agents like phosgene and chlorine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174920.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179926.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The interior of an armored train car, Chaplino, Dnipropetrovs’ka oblast, Ukraine, in the spring of 1918. At least nine heavy machine guns are visible, as well as many ammunition cases</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174921.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179927.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Soldier on a U.S. Harley-Davidson motorcycle, ca. 1918. During the last years of the war, the United States deployed more than 20,000 Indian and Harley-Davidson motorcycles overseas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174922.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179928.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. An experimental Red Cross vehicle designed to protect the wounded while gathering them from trenches during World War I, ca. 1915. The narrow wheels and low clearance would likely make this design ineffective in the chaotic and muddy front line landscape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174923.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179929.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. False horses, camouflage to allow snipers a place to hide in no-man’s land</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174924.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179930.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Bandages retrieved from the kit of a British Dog, ca. 1915</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174925.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179931.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A pigeon with a small camera attached. The trained birds were used experimentally by German citizen Julius Neubronner, before and during the war years, capturing aerial images when a timer mechanism clicked the shutter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174926.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179932.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. A messenger dog with a spool attached to a harness for laying out new electric line in September of 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174927.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179936.jpg" style="width:100%"><br>
 
 ## <a href="#linky14" id="linky13">Disturbing Facts You Won't Soon Forget </a><br>
 
@@ -685,127 +711,7 @@ Thats why the traditional marshmallows arent vegan or halal...</span><br><img sr
 
 <span style="font-size:4em">15. Your phone is likely spying on you right now as youre reading this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169058.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">24 Guys Who Aren’t Really That Tough</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044057/87177845/sotough1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044108/87177846/sotough4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044115/87177847/sotough3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044119/87177848/sotough5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044126/87177849/sotough6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044131/87177850/sotough7.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044139/87177851/sotough8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044044/87177844/sotough2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044142/87177852/sotough9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044151/87177853/sotough10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044155/87177854/sotough11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044202/87177855/sotough12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044206/87177856/sotough13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044213/87177857/sotough14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044217/87177858/sotough15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044224/87177859/sotough16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044228/87177860/sotough17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044235/87177861/sotough18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044241/87177862/sotough19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044248/87177863/sotough20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044253/87177864/sotough21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044259/87177865/sotough22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044304/87177866/sotough23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044311/87177867/sotough24.png" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">30 Important Historical Photos</a><br>
-
-<span style="font-size:4em">1. Albina Mali-Hočevar Was A Slovenian Fighter Who Was Wounded In Combat Several Times During Ww2. She joined the Peoples Liberation Movement at 16.
-
-She was wounded twice at 17.
-
-She was wounded again by an exploding mine three days after her 18th birthday.
-
-She continued fighting and working as a nurse for the rest of the war.
-
-She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jenny Joseph Modeling For The Columbia Pictures Logo, 1992. She Had Never Modeled Before, And Never Did Again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In 1996, Binti Jua, An 8-Year-Old Female Western Lowland Gorilla, Tended To A 3-Year-Old Boy Who Had Fallen Into Her Enclosure At The Brookfield Zoo In Illinois.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Belgian Coal Miners Crammed In An Elevator At The End Of A Long Day Of Work. 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The 15 Year Old Girl Who Remained Frozen On Top Of A Mountain For 500 Years, 2007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Michelangelos Moses Is A Marble Sculpture Made In 1513–15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In 1990, An Improperly Installed Window On British Airways Flight 5390 Fell Off During Midflight Causing Rapid Decompression In The Cockpit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. In 1996, A Newborn Baby Girl Was Left In A Garbage Can Near The City Of Kolkata, India. Three Friendly Street Dogs Discovered And Protected Her For Nearly Two Days, Even Attempting To Feed The Child Before Authorities Were Contacted And The Young One Was Saved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Hippy High School Fashion In The 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Kenyan Runner Abel Mutai Was Only A Few Meters From The Finish Line, But Got Confused With The Signs And Stopped, Thinking He Had Finished The Race</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Salvador Dali Walking An Anteater. Paris, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In 1731 King Frederick I Of Sweden Sent A Taxidermist His Favorite Lion Who Had Died And This Is What He Received Back. King Frederiks Lion Is On Display To This Day At Gripsholm Castle, A Former Royal Residence And Now A Museum In Mariefred, Södermanland, Sweden.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. André The Giant On A Plane Traveling To Japan, 1980</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Portrait Of A “Mestiza De Sangley, Philippines, 1875. Photo By Francisco Van Camp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This Is Shavarsh Karapetyan, A Retired Armenian Swimmer.⁣⁣</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Meet Margaret Hamilton, The Woman Who Took Mankind To The Moon. She Is Standing Beside The Code She Created To Program The Computer Systems On The Apollo 11 Spacecraft, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Undine Rising From The Waters (1880) By Chauncey Bradley Ives⁣</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A Father Looking For His Two Missing Sons That Went Missing During The War, Mitrovica, Kosovo, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Eiffel Tower Under Construction, July 1888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Billed As The Sheep-Headed Men, The White Ecuadorian Cannibals Eko And Iko, And The Ambassadors From Mars,” George And Willie Muse Were World-Famous Sideshow Performers In The Early 1900s. But Even Their White Audiences Hardly Knew The Horrors Of Their Story. ⁠</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Lebanon Pre-Civil War, Byblos, 1965. Photo By Raymond Depardon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The Daredevil Sky Boys Who Built The Empire State Building, 1930-1931.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The Original Michelin Man From 1894.⁣</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Three Jewish Men Who All Survived The Auschwitz Concentration Camp And Were Liberated On The Same Day, Reunite 73 Years Later, 2019</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Corporal Jackie Was A Baboon In The South African Army During World War I. He Was The Official Mascot Of The 3rd Transvaal Regimen When His Owner, Albert Marr Was Drafted Into War, And Would Not Leave Jackie At Home. He Asked His Superiors If Jackie, Too, Could Join The Army And They Said Yes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A Couple At Woodstock Only 48 Hours After They Met And The Same Couple 50 Years Later, Happily Still Together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. A German Coal Miner Waiting To Get Into The Communal Shower At The End Of A Long Shift, 1958.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Shirley Slade Was One Of More Than 1000 Women Who Had Been Solicited By The U.S. Government To Enter An Intensive Seven-Month Training Course That Would Make Them The First Female Pilots To Enter The Air Force.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “My Uncle Getting Caught Growing Weed In The Backyard. - 1970s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The Man Who Inspired The Creation Of Shrek, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177444.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">20 Oddly Terrifying Things People Found</a><br>
+## <a href="#linky15" id="linky14">20 Oddly Terrifying Things People Found</a><br>
 
 <span style="font-size:4em">1. Wild turkeys walking in a circle around a dead cat in the middle.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013240/87177677/oddlyterrifying2.jpg" style="width:100%"><br>
 
@@ -847,7 +753,7 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 
 <span style="font-size:4em">20. This restroom I came across at a nightclub in Las Vegas.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013442/87177696/oddlyterrifying20.png" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">19 Clever Memes From the Dankest Minds</a><br>
+## <a href="#linky16" id="linky15">19 Clever Memes From the Dankest Minds</a><br>
 
 <span style="font-size:4em">1. Hes been right in front of our faces the entire time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174088.png" style="width:100%"><br>
 
@@ -886,6 +792,134 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 <span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174108.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">19. Nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87174109.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">44 Dank Memes to Restore Laughter Levels</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175768.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">17 WW1 Pictures You Probably Haven't Seen </a><br>
+
+<span style="font-size:4em">1. A British officer leads the way “over the top” amid the bursting of German shells.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. French soldiers in a bayonet charge, up a steep slope in the Argonne Forest in 1915.
+During the Second Battle of Champagne, 450,000 French soldiers advanced against a force of 220,000 Germans, momentarily gaining a small amount of territory, but losing it back to the Germans within weeks. Combined casualties came to more than 215,000 from this battle alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Six German soldiers pose in a in trench with machine gun, a mere 40 meters from the British line.
+The machine gun appears to be a Maschinengewehr 08, or MG 08, capable of firing 450-500 rounds a minute. The large cylinder is a jacket around the barrel, filled with water to cool the metal during rapid fire. The soldier at right, with gas mask canister slung over his shoulder, is peering into a periscope to get a view of enemy activity. The soldier at rear, with steel helmet, holds a “potato masher” model 24 grenade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Soldiers of an Australian 4th Division field artillery brigade walk on a duckboard track laid across a muddy, shattered battlefield in Chateau Wood, near Hooge, Belgium, on October 29, 1917.
+This was during the Battle of Passchendaele, fought by British forces and their allies against Germany for control of territory near Ypres, Belgium</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Pill box demolishers” being unloaded on the Western Front. These enormous shells weighed 1,400 lbs. Their explosions made craters over 15 ft. deep and 15 yards across.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. German soldiers practice with a flame-thrower on April 4, 1917.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. German stormtrooper during the 1918 Spring Offensive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. British tanks pass dead Germans who were alive before the cavalry advanced a few minutes before the picture was taken.
+World War I saw the debut of tank warfare, with varying levels of success, mostly poor. Many of the earlier models broke down frequently, or got bogged down in mud, fell into trenches, or, (slow-moving) were directly targeted by artillery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. An aerial view of the Hellish moonscape of the Western Front during World War I.
+Note the criss-cross patterns of multiple generations of trenches, and the thousands of craters left by mortars, artillery, and the detonation of underground mines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. German soldiers flee a gas attack in Flanders, Belgium, in September of 1917.
+Chemical weapons were a part of the arsenal of World War I armies from the beginning, ranging from irritating tear gases to painful mustard gas, to lethal agents like phosgene and chlorine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The interior of an armored train car, Chaplino, Dnipropetrovs’ka oblast, Ukraine, in the spring of 1918. At least nine heavy machine guns are visible, as well as many ammunition cases</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Soldier on a U.S. Harley-Davidson motorcycle, ca. 1918. During the last years of the war, the United States deployed more than 20,000 Indian and Harley-Davidson motorcycles overseas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. An experimental Red Cross vehicle designed to protect the wounded while gathering them from trenches during World War I, ca. 1915. The narrow wheels and low clearance would likely make this design ineffective in the chaotic and muddy front line landscape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. False horses, camouflage to allow snipers a place to hide in no-man’s land</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Bandages retrieved from the kit of a British Dog, ca. 1915</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A pigeon with a small camera attached. The trained birds were used experimentally by German citizen Julius Neubronner, before and during the war years, capturing aerial images when a timer mechanism clicked the shutter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. A messenger dog with a spool attached to a harness for laying out new electric line in September of 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174927.jpg" style="width:100%"><br>
 
 ## <a href="#linky19" id="linky18">Entitled Parents Pawn Their Kids off onto Grandparents for 4 Years</a><br>
 
