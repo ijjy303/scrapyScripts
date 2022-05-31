@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/31/2022-01:11:31
+Last updated: 05/31/2022-02:11:31
 <br>
 ## <a href="#linky2" id="linky1">30 Parents Who Should be Permanently Banned From Naming Children</a><br>
 
@@ -95,47 +95,61 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">30. Prancer and Vixen for babies born during the Christmas season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177410.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Food and Drink That We’d Totally Fornicate With</a><br>
+## <a href="#linky3" id="linky2">27 Useless Pieces of Advice From the Internet</a><br>
 
-<span style="font-size:4em">1. The 5-layer beefy burrito from Taco Bell.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050614/87176895/burrito.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Narrator voice: She had not thought about posting online This, and there is little expectation that doing so would help her solve any of her problems. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Melted Velveeta cheese sauce.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050621/87176896/cheese.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. At least he has a cool selfie though? I would argue its better to be depressed somewhere cool than in your car in front of an AppleBees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Oh there are gonna be creme pies alright.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050632/87176898/cremepie.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Thats my problem though. I hate talking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Fresh out of the oven Krispy Kreme donuts.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050637/87176899/donut.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My mom, thats who needs therapy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Tell me you dont want to bang these egg rolls complete with duck sauce.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050643/87176900/eggroll.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Lmao. Hey NASDAQ, youre looking a down bro. Wanna grab some beers, maybe have a BBQ later? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. An ice cold, iced coffee from Dunkin.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050648/87176901/dunk.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Dear Extroverts: Three pieces of advice on why talking on speaker phone in pubic should be punishable  with five years in federal prison. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Some buttery, creamy, warm mashed potatoes. Bring it on.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050728/87176908/mashed.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. It is that easy. Sorry sad bros and gals. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Dont mind me, just over here about to ruin this chilled gazpacho.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050700/87176903/gazpacho.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Butr the only way to learn how to kill a tiger with your bare hands is to fight it, so where does that leave us? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Youve all thought about doing a Frosty from Wendys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050705/87176904/frosty.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Heluva Good french onion dip. No questions asked.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050711/87176905/heluvagooddip.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Creamy, soft, bangable.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050653/87176902/eggsald.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A philly cheese steak.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050743/87176911/philly.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Cantaloupe. I mean...just look at that thing.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050625/87176897/cant.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Ham salad. Its like egg salads cousin just soft and pink...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050716/87176906/ham.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A bowl of Lucky Charms. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050722/87176907/luckycharms.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Gummi peach rings.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050732/87176909/peachrings.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Potato salad. Mayo-based deliciousness.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050739/87176910/potatosalad.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Samoas cookies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050750/87176912/samoa.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Miracle Whip. Miles and miles of Miracle Whip.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050755/87176913/whip.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Stubbs BBQ sauce. Miss me with that Sweet Baby Rays.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050803/87176914/stubbsbbq.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Thanks for the useless advice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Well hot damn, why did we think of that? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156202.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">14 Life Hacks To Use in a Pinch </a><br>
 
@@ -261,47 +275,63 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/29/115817/87178717/87176058.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 Oddly Terrifying Things People Found</a><br>
+## <a href="#linky6" id="linky5">28 Dank and Savage Memes For Humor Experts </a><br>
 
-<span style="font-size:4em">1. Wild turkeys walking in a circle around a dead cat in the middle.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013240/87177677/oddlyterrifying2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Whats the line for? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Raccoons.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013251/87177678/oddlyterrifying3.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Minotaur statue found at the bottom of a lake.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013302/87177679/oddlyterrifying1.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176997.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This Road In Northern Ireland!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013313/87177680/oddlyterrifying5.png" style="width:100%"><br>
+<span style="font-size:4em">4. Simple, I need money. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176998.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. An optical illusion head tattoo.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013322/87177681/oddlyterrifying4.png" style="width:100%"><br>
+<span style="font-size:4em">5. Spam callers are getting more and more creative with their scams. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176999.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013324/87177682/oddlyterrifying6.png" style="width:100%"><br>
+<span style="font-size:4em">6. Air duct scenes always take me out of movies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Somewhere in Australia... because f*** you, thats why.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013333/87177683/oddlyterrifying8.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177001.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013335/87177684/oddlyterrifying7.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177002.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013344/87177685/oddlyterrifying10.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177003.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. I spent hours trying to get a text to image AI to work on my computer. With the prompt “dog with tennis ball” it took all night to pop this monstrosity out.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013346/87177686/oddlyterrifying9.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177004.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The mushroom Xylaria polymorpha, also known as dead mans fingers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013355/87177687/oddlyterrifying11.png" style="width:100%"><br>
+<span style="font-size:4em">11. Shes been riding that train for far too long. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Original Winnie the Pooh toys from 1920s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013357/87177688/oddlyterrifying12.png" style="width:100%"><br>
+<span style="font-size:4em">12. Some one has to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A Japanese artist created a fully articulating action figure by splicing together pieces cut from 7 rubber duckies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013406/87177689/oddlyterrifying13.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Dr. Phil without his moustache.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013409/87177690/oddlyterrifying14.png" style="width:100%"><br>
+<span style="font-size:4em">14. Not this is a look. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013416/87177691/oddlyterrifying15.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Pulled a couple ticks off my dog just now. She didn’t have any 4 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013420/87177692/oddlyterrifying16.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Finding out 99.82% of the people who consume your content are actually just machines</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013429/87177693/oddlyterrifying17.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Ice cream Pinocchio.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013431/87177694/oddlyterrifying18.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. How this neighborhood looks straight out of a video game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013440/87177695/oddlyterrifying19.png" style="width:100%"><br>
+<span style="font-size:4em">19. Oh Craig this is some fire from brother. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This restroom I came across at a nightclub in Las Vegas.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013442/87177696/oddlyterrifying20.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177014.gif" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. They said it would get better. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I simply do not care what any of my exs think about me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Press f to pay your respects. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177021.png" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">44 Dank Memes to Restore Laughter Levels</a><br>
 
@@ -389,19 +419,57 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175768.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">Entitled Parents Pawn Their Kids off onto Grandparents for 4 Years</a><br>
+## <a href="#linky8" id="linky7">25 of the Biggest Scams that Nobody Wants to Admit are Scams</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174827.png" style="width:100%"><br>
+<span style="font-size:4em">1. Click here to unsubscribe to this email notification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178267.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174828.png" style="width:100%"><br>
+<span style="font-size:4em">2. Normal television: paying to watch ads!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174829.png" style="width:100%"><br>
+<span style="font-size:4em">3. Data caps and speed limits, especially on unlimited plans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174830.png" style="width:100%"><br>
+<span style="font-size:4em">4. Free trials that require you to  enter your card details.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174831.png" style="width:100%"><br>
+<span style="font-size:4em">5. The prices of anything baby related. Toys, food, clothes, etc. Was in a store on Saturday to get a cot mattress and cover. I cried.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174832.png" style="width:100%"><br>
+<span style="font-size:4em">6. Online convenience fees.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The entire wedding industry.To be clear, not marriage but weddings specifically.I’m happily married to my wife and we were content to do something special just the two of us, maybe spend a couple of grand and treat ourselves a little bit to something amazing.Cue the families getting involved and before you know it we’re spending closer to twenty grand on one day and feeding a bunch of people I’ve not heard of before or since the wedding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Fashion trends, and the incredible amount of waste it createsIf everyone learned how to mend/alter garments in school, and value was placed on investing in a few quality made items instead of a closet full of disposable fast fashion, there would be wayyyy less clothing in landfills and wayy less demand for chemical laden garments to be cranked out in sweatshops. our relationship to clothing is so warped.(Buying second-hand is a great way to wiggle out of the grip of the fashion industry if it’s available to you).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Claw Machines in arcades,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The easy-to-join, difficult-to-cancel subscription model.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178276.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. That large global companies actually care about you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ticketmaster and similar sites / services.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178278.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Buying a star and naming it. A waste of your cash and time. The only organization that can name a star is International Astronomical Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The subscription-based economy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Paying exorbitant amounts of money for health insurance, and still having to pay boatloads of cash for any doctor/hospital visits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mega Churches on TV and elsewhere.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. $18 Salad? lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hustle culture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. That saving the earth is in the hands of consumers and not big companies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Mom: tell me the truth and I wont be mad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Penis enlargement pills gotta be up there too. No one wants to admit they got them, so when they don’t work it’s not like they’re posting reviews or telling their friends they don’t work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. How the f*ck does HEALTH insurance not cover dental and vision? What kind of shenanigans is that?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. A lot of us have been convinced that we are selling our labor to companies at the correct price, but in reality, were selling it too cheaply.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The fact that airlines have X amount of seats per flight, but almost always sell X+10 seats and then refund you about 80% of your ticket cost. Do that to the 10 people and suddenly you have about 2 tickets worth of profits seemingly out of nowhere, and everyone still has a flight. Just an unbelievably immoral way to gain a few bucks, but everyone just goes with it since the airplanes arent exactly a train that comes every 10 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Do what you love for a living, and youll never work a day in your life!Pure bullsh*t that will kill any enjoyment that you ever had for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178291.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">19 Clever Memes From the Dankest Minds</a><br>
 
@@ -653,7 +721,53 @@ Chemical weapons were a part of the arsenal of World War I armies from the begin
 
 <span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177557.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">30 Important Historical Photos</a><br>
+## <a href="#linky15" id="linky14">22 Funny Memes That Don't Hold Back </a><br>
+
+<span style="font-size:4em">1. Your weak spot is exposed. I repeat your weak spot is exposed. Oh come one, you would make for an easy kill. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168330.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168331.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This chair is giving me anxiety.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168333.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168335.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168336.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168337.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Noted. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168340.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168341.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Shes my kind of girl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168342.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Do I look like a someone with a plan? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168343.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. We have a guest teacher in class today. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168344.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168345.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Its been a long 12 years, but we are ready. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168347.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168348.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168349.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168350.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This is us all weekend long. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168351.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Please dont, Im easily frightened. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168352.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168353.jpeg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">30 Important Historical Photos</a><br>
 
 <span style="font-size:4em">1. Albina Mali-Hočevar Was A Slovenian Fighter Who Was Wounded In Combat Several Times During Ww2. She joined the Peoples Liberation Movement at 16.
 
@@ -723,7 +837,91 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 
 <span style="font-size:4em">30. The Man Who Inspired The Creation Of Shrek, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177444.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">Beer Facts for Casual Drinkers and Alcoholics Alike</a><br>
+## <a href="#linky17" id="linky16">20 Oddly Terrifying Things People Found</a><br>
+
+<span style="font-size:4em">1. Wild turkeys walking in a circle around a dead cat in the middle.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013240/87177677/oddlyterrifying2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Raccoons.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013251/87177678/oddlyterrifying3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Minotaur statue found at the bottom of a lake.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013302/87177679/oddlyterrifying1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. This Road In Northern Ireland!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013313/87177680/oddlyterrifying5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. An optical illusion head tattoo.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013322/87177681/oddlyterrifying4.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013324/87177682/oddlyterrifying6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Somewhere in Australia... because f*** you, thats why.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013333/87177683/oddlyterrifying8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013335/87177684/oddlyterrifying7.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013344/87177685/oddlyterrifying10.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. I spent hours trying to get a text to image AI to work on my computer. With the prompt “dog with tennis ball” it took all night to pop this monstrosity out.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013346/87177686/oddlyterrifying9.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. The mushroom Xylaria polymorpha, also known as dead mans fingers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013355/87177687/oddlyterrifying11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Original Winnie the Pooh toys from 1920s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013357/87177688/oddlyterrifying12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. A Japanese artist created a fully articulating action figure by splicing together pieces cut from 7 rubber duckies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013406/87177689/oddlyterrifying13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Dr. Phil without his moustache.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013409/87177690/oddlyterrifying14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013416/87177691/oddlyterrifying15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Pulled a couple ticks off my dog just now. She didn’t have any 4 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013420/87177692/oddlyterrifying16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Finding out 99.82% of the people who consume your content are actually just machines</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013429/87177693/oddlyterrifying17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Ice cream Pinocchio.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013431/87177694/oddlyterrifying18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. How this neighborhood looks straight out of a video game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013440/87177695/oddlyterrifying19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. This restroom I came across at a nightclub in Las Vegas.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013442/87177696/oddlyterrifying20.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">Food and Drink That We’d Totally Fornicate With</a><br>
+
+<span style="font-size:4em">1. The 5-layer beefy burrito from Taco Bell.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050614/87176895/burrito.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Melted Velveeta cheese sauce.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050621/87176896/cheese.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Oh there are gonna be creme pies alright.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050632/87176898/cremepie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Fresh out of the oven Krispy Kreme donuts.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050637/87176899/donut.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Tell me you dont want to bang these egg rolls complete with duck sauce.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050643/87176900/eggroll.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. An ice cold, iced coffee from Dunkin.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050648/87176901/dunk.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Some buttery, creamy, warm mashed potatoes. Bring it on.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050728/87176908/mashed.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Dont mind me, just over here about to ruin this chilled gazpacho.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050700/87176903/gazpacho.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Youve all thought about doing a Frosty from Wendys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050705/87176904/frosty.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Heluva Good french onion dip. No questions asked.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050711/87176905/heluvagooddip.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Creamy, soft, bangable.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050653/87176902/eggsald.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A philly cheese steak.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050743/87176911/philly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Cantaloupe. I mean...just look at that thing.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050625/87176897/cant.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Ham salad. Its like egg salads cousin just soft and pink...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050716/87176906/ham.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A bowl of Lucky Charms. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050722/87176907/luckycharms.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Gummi peach rings.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050732/87176909/peachrings.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Potato salad. Mayo-based deliciousness.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050739/87176910/potatosalad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Samoas cookies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050750/87176912/samoa.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Miracle Whip. Miles and miles of Miracle Whip.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050755/87176913/whip.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Stubbs BBQ sauce. Miss me with that Sweet Baby Rays.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/050803/87176914/stubbsbbq.jpg" style="width:100%"><br>
+
+## <a href="#linky19" id="linky18">Beer Facts for Casual Drinkers and Alcoholics Alike</a><br>
 
 <span style="font-size:4em">1. Colt 45 was named after the Baltimore Colts, and not the gun by the same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020104/87177717/colt.jpg" style="width:100%"><br>
 
@@ -765,215 +963,17 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 
 <span style="font-size:4em">20. Children in Wisconsin can legally drink at any age, as long as they are accompanied by a parent or guardian.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020220/87177735/wisconsin.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">22 Funny Memes That Don't Hold Back </a><br>
+## <a href="#linky20" id="linky19">Entitled Parents Pawn Their Kids off onto Grandparents for 4 Years</a><br>
 
-<span style="font-size:4em">1. Your weak spot is exposed. I repeat your weak spot is exposed. Oh come one, you would make for an easy kill. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168330.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174827.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168331.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174828.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. This chair is giving me anxiety.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168332.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174829.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168333.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174830.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168335.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174831.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168336.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168337.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Noted. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168340.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168341.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Shes my kind of girl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168342.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Do I look like a someone with a plan? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168343.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. We have a guest teacher in class today. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168344.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168345.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Its been a long 12 years, but we are ready. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168347.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168348.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168349.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168350.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This is us all weekend long. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168351.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Please dont, Im easily frightened. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168352.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168353.jpeg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">28 Dank and Savage Memes For Humor Experts </a><br>
-
-<span style="font-size:4em">1. Whats the line for? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Simple, I need money. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Spam callers are getting more and more creative with their scams. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Air duct scenes always take me out of movies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177002.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177003.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177004.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Shes been riding that train for far too long. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Some one has to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Not this is a look. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Oh Craig this is some fire from brother. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177014.gif" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. They said it would get better. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I simply do not care what any of my exs think about me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Press f to pay your respects. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177021.png" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">27 Useless Pieces of Advice From the Internet</a><br>
-
-<span style="font-size:4em">1. Narrator voice: She had not thought about posting online This, and there is little expectation that doing so would help her solve any of her problems. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. At least he has a cool selfie though? I would argue its better to be depressed somewhere cool than in your car in front of an AppleBees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Thats my problem though. I hate talking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My mom, thats who needs therapy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Lmao. Hey NASDAQ, youre looking a down bro. Wanna grab some beers, maybe have a BBQ later? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Dear Extroverts: Three pieces of advice on why talking on speaker phone in pubic should be punishable  with five years in federal prison. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. It is that easy. Sorry sad bros and gals. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Butr the only way to learn how to kill a tiger with your bare hands is to fight it, so where does that leave us? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Thanks for the useless advice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Well hot damn, why did we think of that? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87156202.jpg" style="width:100%"><br>
-
-## <a href="#linky20" id="linky19">25 of the Biggest Scams that Nobody Wants to Admit are Scams</a><br>
-
-<span style="font-size:4em">1. Click here to unsubscribe to this email notification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178267.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Normal television: paying to watch ads!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Data caps and speed limits, especially on unlimited plans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Free trials that require you to  enter your card details.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The prices of anything baby related. Toys, food, clothes, etc. Was in a store on Saturday to get a cot mattress and cover. I cried.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Online convenience fees.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The entire wedding industry.To be clear, not marriage but weddings specifically.I’m happily married to my wife and we were content to do something special just the two of us, maybe spend a couple of grand and treat ourselves a little bit to something amazing.Cue the families getting involved and before you know it we’re spending closer to twenty grand on one day and feeding a bunch of people I’ve not heard of before or since the wedding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Fashion trends, and the incredible amount of waste it createsIf everyone learned how to mend/alter garments in school, and value was placed on investing in a few quality made items instead of a closet full of disposable fast fashion, there would be wayyyy less clothing in landfills and wayy less demand for chemical laden garments to be cranked out in sweatshops. our relationship to clothing is so warped.(Buying second-hand is a great way to wiggle out of the grip of the fashion industry if it’s available to you).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Claw Machines in arcades,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The easy-to-join, difficult-to-cancel subscription model.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178276.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. That large global companies actually care about you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ticketmaster and similar sites / services.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178278.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Buying a star and naming it. A waste of your cash and time. The only organization that can name a star is International Astronomical Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The subscription-based economy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Paying exorbitant amounts of money for health insurance, and still having to pay boatloads of cash for any doctor/hospital visits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Mega Churches on TV and elsewhere.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. $18 Salad? lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Hustle culture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. That saving the earth is in the hands of consumers and not big companies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Mom: tell me the truth and I wont be mad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Penis enlargement pills gotta be up there too. No one wants to admit they got them, so when they don’t work it’s not like they’re posting reviews or telling their friends they don’t work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. How the f*ck does HEALTH insurance not cover dental and vision? What kind of shenanigans is that?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. A lot of us have been convinced that we are selling our labor to companies at the correct price, but in reality, were selling it too cheaply.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The fact that airlines have X amount of seats per flight, but almost always sell X+10 seats and then refund you about 80% of your ticket cost. Do that to the 10 people and suddenly you have about 2 tickets worth of profits seemingly out of nowhere, and everyone still has a flight. Just an unbelievably immoral way to gain a few bucks, but everyone just goes with it since the airplanes arent exactly a train that comes every 10 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Do what you love for a living, and youll never work a day in your life!Pure bullsh*t that will kill any enjoyment that you ever had for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178291.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/516050/87174832.png" style="width:100%"><br>
 
