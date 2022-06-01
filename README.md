@@ -1,71 +1,7 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 06/01/2022-02:11:31
+Last updated: 06/01/2022-03:11:31
 <br>
-## <a href="#linky2" id="linky1">15 Rules to Save You From Deathbed Regrets</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177557.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">Police Officers Give Their Take on the Texas Fiasco</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179936.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">28 Dank Memes to Activate Your Laughter   </a><br>
+## <a href="#linky2" id="linky1">28 Dank Memes to Activate Your Laughter   </a><br>
 
 <span style="font-size:4em">1. Thats not your girlfriend thats Frank Reynolds. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179519.jpg" style="width:100%"><br>
 
@@ -123,7 +59,7 @@ Last updated: 06/01/2022-02:11:31
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179545.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">30 Parents Who Should be Permanently Banned From Naming Children</a><br>
+## <a href="#linky3" id="linky2">30 Parents Who Should be Permanently Banned From Naming Children</a><br>
 
 <span style="font-size:4em">1. Ohnasti.
 
@@ -216,6 +152,142 @@ Usnavy
 My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177409.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. Prancer and Vixen for babies born during the Christmas season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177410.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">Police Officers Give Their Take on the Texas Fiasco</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179936.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">Revolutionary War Facts They Never Taught In School</a><br>
+
+<span style="font-size:4em">1. There was a plot to kill or kidnap George Washington early in the Revolutionary War - the traitors were from Washingtons Life Guards, similar to todays Secret Service. One of the traitors was the first person to be put to death for treason, Thomas Hickey, in front of 20,000 people.
+
+-u/ForthWorldTraveler
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. William Hull was an esteemed veteran of the Revolutionary War. Tarnished his reputation by surrendering the entirety of the territory of Michigan to the British in the war of 1812.
+
+-u/itsahumanoid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Baron Friedrich von Steuben was known for his bravery and the discipline and grit he brought to the American troops during The Revolutionary War and was openly gay
+
+-u/RusticRumrunner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The character’s name Bruce Wayne a/k/a Batman was based on history’s war heroes Robert the Bruce and Mad Anthony Wayne (General of Continental Army during Revolutionary War).
+
+-u/aim179</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178323.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In 1775 Colonel Henry Knox and his men dragged 60 tons of artillery from upstate New York to Boston at the beginning of the revolutionary war
+
+-u/not_blmpkingiver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178324.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Nicholas Vedeer was the last surviving revolutionary war soldier in New York State when he died in 1862. He was photographed in his uniform sometime before his death giving an extraordinary picture of an actual American Patriot.
+
+-u/mstone72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Fourteen American Revolutionary War Veterans Lived Long Enough to Have Their Photos Taken. Most Were Over a Hundred Years Old By Then.
+
+-u/Unleashtheducks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Lafayette, the French officer who aided the U.S. Revolutionary War, gifted a pair of pistols to Washington in 1778. Eventually, they came into Andrew Jacksons possession, and Lafayette identified them while visiting Jackson in 1825. In his will, Jackson bequeathed them back to Lafayettes son.
+
+-u/SojourningCPA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The US Army has historical protocols associated with using a sword to cut cake. Traditionally, the oldest and youngest soldiers are chosen to cut the cake in some ceremonies as a way of linking the past with the future. Swords dating from the Revolutionary War are often used at such events.
+
+-u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Deborah Sampson managed to join the Revolutionary war in 1782 by disguising herself as a man
+
+-u/Jazzlike-Bullfrog-55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Paul Revere III, the great-great-great-great-grandson of the American Revolutionary War hero of the same name, currently serves as legal counsel for a copper manufacturing company that was founded by the original Paul Revere in 1801.
+
+-u/DudeAbides101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Colonial Continental Army was at most 48,000 men at any given time during the Revolutionary War
+
+-u/Jomsviking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Dwayne The Rock Johnsons father descended from Black Loyalists, who escaped to Nova Scotia after the Revolutionary War on the promise of British emancipation.
+
+-u/JoeCos47</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The Turtle, a submarine used in the revolutionary war period, used luminescent fungus to illuminate things such as its depth gauge in a time before the widespread use of electricity
+
+-u/Lykos23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. After the Boston Tea Party, many Americans switched to drinking coffee during the Revolutionary War because drinking tea had become unpatriotic.
+
+-u/Glass_Force</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Thousands more German troops died in the American Revolutionary War than British soldiers
+
+-u/LOLWutOK-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Future US President Franklin Delano Roosevelt was once an aspiring screenwriter. In 1923 he submitted a film screenplay about American Revolutionary War naval captain John Paul Jones to Paramount Pictures that was rejected
+
+-u/joe727</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The key to American victory in the Revolutionary War was the 75-ton “Great Chain” that stretched across the Hudson River to prevent the British from moving inland. It was such an obstacle, they paid Benedict Arnold £20,000 for the plans to the Chain’s main defenses, at Fort West Point
+
+-u/EssoEssex</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. One of the first American spies was a woman during the Revolutionary War. To this day, her identity is not known and is referred to only as Agent 355.
+
+-u/Voyager_AU</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Massachusetts Hall is the oldest surviving Harvard building, built between 1718 and 1720. When 640 members of Gen. George Washington’s army took up residence during the Revolutionary War, the damage they caused resulted in some of the earliest recorded renovations to the building
+
+-u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. George Washington ordered a ceasefire during the Revolutionary War to return a lost dog to its owner, Sir William Howe, a British general. The dog was found wandering the battlefield and was fed and cleaned before being returned to Howe.
+
+-u/Swpalmer7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178340.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. In the early 17th century, the royal standard of France became a plain white flag, which was intended to symbolize purity rather than surrender. The French troops fighting in the American Revolutionary War fought under the white flag.
+
+-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Paul Revere was one of Americas first orthodontists and used walrus teeth as dental implants. The walrus teeth were later helpful for identifying the corpses of his patients that were killed in the Revolutionary war.
+
+-u/al666in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. During the American Revolutionary War, the British offered freedom to any slave who fought for them under the badge Liberty to Slaves. Despite the British defeat, the promise was kept.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Lafayette was a Frenchman from the Revolutionary War who later toasted to the perpetual union of the united states. it has always served us in times of storm. one day it will save the world. American troops sent to France in World War 1 visited the grave and said Lafayette, we are here
+
+-u/calvicstaff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178344.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">27 Funny Memes to Kick Boredom to the Curb </a><br>
 
@@ -362,7 +434,91 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">25. In Superman: At Earths End, a batsh*t crazy comic from 1995, an elderly, bearded Superman in a post-apocalyptic wasteland uses the largest gun ever to kill twin Hitler clones and a giant Batman zombie. -u/ZimthekingofIrkens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179371.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">26 Memes Straight Off the Assembly Line</a><br>
+## <a href="#linky9" id="linky8">15 Rules to Save You From Deathbed Regrets</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87177557.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">25 Real Facts That Are Actually Insane</a><br>
+
+<span style="font-size:4em">1. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Loudest Sound In Recorded History Was The Krakatoa Volcanic Eruption Of 1883. It ruptured the eardrums of people more than 40 miles from the epicenter, created a sound wave that circled the globe seven times, and could be heard all the way in New York City, a short 10,000 miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oxford University is older than the Aztec empire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Every human could fit into a cubic mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179384.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Dragonflies accelerate at up to 4G and corner at up to 9G.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. 2/3 of Canada’s population lives south of Seattle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Tarantulas keep tiny frogs as pets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. 105 billion people have lived so far. 7.9 billion of us are currently alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. Instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers, dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. An Australian man won the lottery, then on camera to re-enact the winning for the news he bought another ticket... he won the lottery again on camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/103514/87179889/factsreplacement.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. A moose can dive underwater down to nearly twenty feet in search of food.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Ciabatta bread was invented in 1982. Its advertised and perceived as this, traditional, rustic Italian bread that peasants must have enjoyed, but nope--created in the 1980s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179395.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground-level plants were ferns or flowering bushes, not grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. For 60 million years, there was no bacteria, fungus, anything to decompose trees. They just got crushed under the weight of other dead trees. This is where about 90% of coal comes from.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179398.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">26 Memes Straight Off the Assembly Line</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110644/87179898/memeshehe5.png" style="width:100%"><br>
 
@@ -416,127 +572,7 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110841/87179919/memeshehe26.png" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Daughter-In-Law Ruins Shirt after Absurd Ironing Request from Father-In-Law</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045844/87177869/first.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045847/87177870/second.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045915/87177871/final.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045934/87177872/theend.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">25 Real Facts That Are Actually Insane</a><br>
-
-<span style="font-size:4em">1. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Loudest Sound In Recorded History Was The Krakatoa Volcanic Eruption Of 1883. It ruptured the eardrums of people more than 40 miles from the epicenter, created a sound wave that circled the globe seven times, and could be heard all the way in New York City, a short 10,000 miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Oxford University is older than the Aztec empire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Every human could fit into a cubic mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179384.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Dragonflies accelerate at up to 4G and corner at up to 9G.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. 2/3 of Canada’s population lives south of Seattle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Tarantulas keep tiny frogs as pets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. 105 billion people have lived so far. 7.9 billion of us are currently alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. Instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers, dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. An Australian man won the lottery, then on camera to re-enact the winning for the news he bought another ticket... he won the lottery again on camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/103514/87179889/factsreplacement.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. A moose can dive underwater down to nearly twenty feet in search of food.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ciabatta bread was invented in 1982. Its advertised and perceived as this, traditional, rustic Italian bread that peasants must have enjoyed, but nope--created in the 1980s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179395.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground-level plants were ferns or flowering bushes, not grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. For 60 million years, there was no bacteria, fungus, anything to decompose trees. They just got crushed under the weight of other dead trees. This is where about 90% of coal comes from.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179398.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">28 Images to Lift Your Spirits</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177301.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">24 Guys Who Aren’t Really That Tough</a><br>
+## <a href="#linky12" id="linky11">24 Guys Who Aren’t Really That Tough</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044057/87177845/sotough1.png" style="width:100%"><br>
 
@@ -586,151 +622,7 @@ My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044311/87177867/sotough24.png" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">Revolutionary War Facts They Never Taught In School</a><br>
-
-<span style="font-size:4em">1. There was a plot to kill or kidnap George Washington early in the Revolutionary War - the traitors were from Washingtons Life Guards, similar to todays Secret Service. One of the traitors was the first person to be put to death for treason, Thomas Hickey, in front of 20,000 people.
-
--u/ForthWorldTraveler
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. William Hull was an esteemed veteran of the Revolutionary War. Tarnished his reputation by surrendering the entirety of the territory of Michigan to the British in the war of 1812.
-
--u/itsahumanoid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Baron Friedrich von Steuben was known for his bravery and the discipline and grit he brought to the American troops during The Revolutionary War and was openly gay
-
--u/RusticRumrunner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The character’s name Bruce Wayne a/k/a Batman was based on history’s war heroes Robert the Bruce and Mad Anthony Wayne (General of Continental Army during Revolutionary War).
-
--u/aim179</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178323.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In 1775 Colonel Henry Knox and his men dragged 60 tons of artillery from upstate New York to Boston at the beginning of the revolutionary war
-
--u/not_blmpkingiver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178324.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Nicholas Vedeer was the last surviving revolutionary war soldier in New York State when he died in 1862. He was photographed in his uniform sometime before his death giving an extraordinary picture of an actual American Patriot.
-
--u/mstone72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Fourteen American Revolutionary War Veterans Lived Long Enough to Have Their Photos Taken. Most Were Over a Hundred Years Old By Then.
-
--u/Unleashtheducks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Lafayette, the French officer who aided the U.S. Revolutionary War, gifted a pair of pistols to Washington in 1778. Eventually, they came into Andrew Jacksons possession, and Lafayette identified them while visiting Jackson in 1825. In his will, Jackson bequeathed them back to Lafayettes son.
-
--u/SojourningCPA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The US Army has historical protocols associated with using a sword to cut cake. Traditionally, the oldest and youngest soldiers are chosen to cut the cake in some ceremonies as a way of linking the past with the future. Swords dating from the Revolutionary War are often used at such events.
-
--u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Deborah Sampson managed to join the Revolutionary war in 1782 by disguising herself as a man
-
--u/Jazzlike-Bullfrog-55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Paul Revere III, the great-great-great-great-grandson of the American Revolutionary War hero of the same name, currently serves as legal counsel for a copper manufacturing company that was founded by the original Paul Revere in 1801.
-
--u/DudeAbides101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Colonial Continental Army was at most 48,000 men at any given time during the Revolutionary War
-
--u/Jomsviking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Dwayne The Rock Johnsons father descended from Black Loyalists, who escaped to Nova Scotia after the Revolutionary War on the promise of British emancipation.
-
--u/JoeCos47</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The Turtle, a submarine used in the revolutionary war period, used luminescent fungus to illuminate things such as its depth gauge in a time before the widespread use of electricity
-
--u/Lykos23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. After the Boston Tea Party, many Americans switched to drinking coffee during the Revolutionary War because drinking tea had become unpatriotic.
-
--u/Glass_Force</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Thousands more German troops died in the American Revolutionary War than British soldiers
-
--u/LOLWutOK-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Future US President Franklin Delano Roosevelt was once an aspiring screenwriter. In 1923 he submitted a film screenplay about American Revolutionary War naval captain John Paul Jones to Paramount Pictures that was rejected
-
--u/joe727</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The key to American victory in the Revolutionary War was the 75-ton “Great Chain” that stretched across the Hudson River to prevent the British from moving inland. It was such an obstacle, they paid Benedict Arnold £20,000 for the plans to the Chain’s main defenses, at Fort West Point
-
--u/EssoEssex</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. One of the first American spies was a woman during the Revolutionary War. To this day, her identity is not known and is referred to only as Agent 355.
-
--u/Voyager_AU</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Massachusetts Hall is the oldest surviving Harvard building, built between 1718 and 1720. When 640 members of Gen. George Washington’s army took up residence during the Revolutionary War, the damage they caused resulted in some of the earliest recorded renovations to the building
-
--u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. George Washington ordered a ceasefire during the Revolutionary War to return a lost dog to its owner, Sir William Howe, a British general. The dog was found wandering the battlefield and was fed and cleaned before being returned to Howe.
-
--u/Swpalmer7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178340.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. In the early 17th century, the royal standard of France became a plain white flag, which was intended to symbolize purity rather than surrender. The French troops fighting in the American Revolutionary War fought under the white flag.
-
--u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Paul Revere was one of Americas first orthodontists and used walrus teeth as dental implants. The walrus teeth were later helpful for identifying the corpses of his patients that were killed in the Revolutionary war.
-
--u/al666in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. During the American Revolutionary War, the British offered freedom to any slave who fought for them under the badge Liberty to Slaves. Despite the British defeat, the promise was kept.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Lafayette was a Frenchman from the Revolutionary War who later toasted to the perpetual union of the united states. it has always served us in times of storm. one day it will save the world. American troops sent to France in World War 1 visited the grave and said Lafayette, we are here
-
--u/calvicstaff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178344.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">Disturbing Facts You Won't Soon Forget </a><br>
-
-<span style="font-size:4em">1. Your eyes have a separate immune-system from the rest of your body. Once your bodys immune system discovers you have eyes, it will attack and inflame the blood vessels in the back of your eyes. This can lead to your vision decreasing or even going blind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Sharks have been around for at least 420 million years, meaning they have survived four of the “big five” mass extinctions. That makes them older than humanity, older than Mount Everest, older than dinosaurs, older even than trees. Yet we could potentially see them extinct in our lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Egyptian mummies wouldn’t be so rare today if the Victorian British hadn’t eaten most of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Cotards syndrome, also called walking corpse syndrome, is a condition wherein the patient believes they are dead, dying, missing parts of their bodies, or dont exist.
-
-Some people with Cotards syndrome may stop speaking or eating since they believe theyre dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Statistically speaking, if you are a woman and get murdered, it was most likely by a family member, partner or ex-partner, in your own home.
-
-If you are a man and get murdered, it was most likely by an acquaintance or stranger, in a public place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The entire planet could be immediately destroyed by any one of a number of cosmic events that we have no way of seeing or stopping like rogue black holes.
-
-Worse...there are some events we can very much see coming, but do absolutely nothing about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Yellowstone is a giant super volcano. If it blows, things on this planet will go really bad really fast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. You can condition someone with zero personal/family history of mental illness into having some very severe mental illnesses within about a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Capgras Syndrome is a mental delusion where you believe that the people closest to you have been replaced by impostors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I read somewhere ( don’t remember where) that you are more likely to be bitten by someone in New York than to be bitten by a shark.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Maximum part of oxygen came from sea/oceans. But people always talks about protecting trees not sea/oceans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. 6 nuclear weapons have been lost and never recovered since the 1950s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. idk why this freaks some ppl out, but gelatin is made out of bones. Thats right - your melted marshmallow in your hot chocolate is melted animal bone. Its good stuff.
-
-Thats why the traditional marshmallows arent vegan or halal...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If given access to it, butterflies will happily drink blood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Your phone is likely spying on you right now as youre reading this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169058.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">31 Dank Memes That Don't Give Two Sh*ts About the Social Contract</a><br>
+## <a href="#linky13" id="linky12">31 Dank Memes That Don't Give Two Sh*ts About the Social Contract</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176293.jpeg" style="width:100%"><br>
 
@@ -789,4 +681,112 @@ Thats why the traditional marshmallows arent vegan or halal...</span><br><img sr
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176321.jpeg" style="width:100%"><br>
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176322.jpeg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">Disturbing Facts You Won't Soon Forget </a><br>
+
+<span style="font-size:4em">1. Your eyes have a separate immune-system from the rest of your body. Once your bodys immune system discovers you have eyes, it will attack and inflame the blood vessels in the back of your eyes. This can lead to your vision decreasing or even going blind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Sharks have been around for at least 420 million years, meaning they have survived four of the “big five” mass extinctions. That makes them older than humanity, older than Mount Everest, older than dinosaurs, older even than trees. Yet we could potentially see them extinct in our lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Egyptian mummies wouldn’t be so rare today if the Victorian British hadn’t eaten most of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Cotards syndrome, also called walking corpse syndrome, is a condition wherein the patient believes they are dead, dying, missing parts of their bodies, or dont exist.
+
+Some people with Cotards syndrome may stop speaking or eating since they believe theyre dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Statistically speaking, if you are a woman and get murdered, it was most likely by a family member, partner or ex-partner, in your own home.
+
+If you are a man and get murdered, it was most likely by an acquaintance or stranger, in a public place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The entire planet could be immediately destroyed by any one of a number of cosmic events that we have no way of seeing or stopping like rogue black holes.
+
+Worse...there are some events we can very much see coming, but do absolutely nothing about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Yellowstone is a giant super volcano. If it blows, things on this planet will go really bad really fast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. You can condition someone with zero personal/family history of mental illness into having some very severe mental illnesses within about a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Capgras Syndrome is a mental delusion where you believe that the people closest to you have been replaced by impostors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I read somewhere ( don’t remember where) that you are more likely to be bitten by someone in New York than to be bitten by a shark.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Maximum part of oxygen came from sea/oceans. But people always talks about protecting trees not sea/oceans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. 6 nuclear weapons have been lost and never recovered since the 1950s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. idk why this freaks some ppl out, but gelatin is made out of bones. Thats right - your melted marshmallow in your hot chocolate is melted animal bone. Its good stuff.
+
+Thats why the traditional marshmallows arent vegan or halal...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If given access to it, butterflies will happily drink blood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Your phone is likely spying on you right now as youre reading this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169058.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">28 Images to Lift Your Spirits</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177301.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">Daughter-In-Law Ruins Shirt after Absurd Ironing Request from Father-In-Law</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045844/87177869/first.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045847/87177870/second.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045915/87177871/final.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/045934/87177872/theend.jpg" style="width:100%"><br>
 
