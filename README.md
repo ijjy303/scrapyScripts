@@ -1,121 +1,101 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 06/01/2022-09:11:31
+Last updated: 06/01/2022-10:11:31
 <br>
-## <a href="#linky2" id="linky1">32 Savage Memes Not For the Sensitive Sallys </a><br>
+## <a href="#linky2" id="linky1">20 People Who Experienced the Opposite of a Miracle</a><br>
 
-<span style="font-size:4em">1. Oh we are so going to fail this class. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179699.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Sweating intensifies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179696.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179725.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Oh my god, can we stop this crap already? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179700.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179701.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179702.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Okay this one actually is a joke. Bravo sir! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179726.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Lmao. BFTO. Ratiod. Rekt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179718.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179703.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179705.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Oh this isnt going to end well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179698.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Kids today could never. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179706.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Excuse me what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179707.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. If you see me spreading my legs in public dont tell me, I dont care. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179708.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179695.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179709.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179710.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179711.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87180205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179712.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/024208/87180234/Screwed-21.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179713.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/024214/87180235/Screwed-22.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179714.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">26 Memes Straight Off the Assembly Line</a><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179715.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110644/87179898/memeshehe5.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179716.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110627/87179895/memeshehe1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179717.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110633/87179896/memeshehe2.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179719.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110637/87179897/memeshehe4.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179720.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110622/87179894/memeshehe3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179721.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110649/87179899/memeshehe7.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179722.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110655/87179900/memeshehe6.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179723.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110700/87179901/memeshehe8.png" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179724.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110706/87179902/memeshehe10.png" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179727.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110711/87179903/memeshehe9.png" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179728.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110717/87179904/memeshehe11.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">24 Guys Who Aren’t Really That Tough</a><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110722/87179905/memeshehe12.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044057/87177845/sotough1.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110728/87179906/memeshehe13.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044108/87177846/sotough4.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110732/87179907/memeshehe14.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044115/87177847/sotough3.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110741/87179908/memeshehe15.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044119/87177848/sotough5.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110744/87179909/memeshehe16.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044126/87177849/sotough6.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110752/87179910/memeshehe17.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044131/87177850/sotough7.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110755/87179911/memeshehe18.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044139/87177851/sotough8.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110804/87179912/memeshehe19.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044044/87177844/sotough2.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110807/87179913/memeshehe20.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044142/87177852/sotough9.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110815/87179914/memeshehe21.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044151/87177853/sotough10.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110818/87179915/memeshehe22.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044155/87177854/sotough11.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110826/87179916/memeshehe23.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044202/87177855/sotough12.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110829/87179917/memeshehe24.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044206/87177856/sotough13.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110838/87179918/memeshehe25.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044213/87177857/sotough14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044217/87177858/sotough15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044224/87177859/sotough16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044228/87177860/sotough17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044235/87177861/sotough18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044241/87177862/sotough19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044248/87177863/sotough20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044253/87177864/sotough21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044259/87177865/sotough22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044304/87177866/sotough23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/044311/87177867/sotough24.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110841/87179919/memeshehe26.png" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">Police Officers Give Their Take on the Texas Fiasco</a><br>
 
@@ -149,99 +129,7 @@ Last updated: 06/01/2022-09:11:31
 
 <span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87179936.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">27 Funny Memes to Kick Boredom to the Curb </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179654.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179664.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179666.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179657.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Bro on the left looks like he just took the best afternoon nap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179658.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179660.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179661.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Take notes kids, that way when you you get questioned youll always have the answers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179662.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179663.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Lmao, he there step-owner, Im stuck in the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179655.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Oh thank god it wasnt something important. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179665.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179667.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179668.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179656.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. This damn voice in my head wont shut up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179670.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179671.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Shes got those wandering eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179673.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This movie actually looks pretty great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179674.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179675.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179676.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179677.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. What in Gods name is this terrible creation? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179680.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Always has been. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179681.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179682.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. Now thats going in your file, Craig. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179683.jpeg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">Popular Things in the Media That Are Actually Propaganda</a><br>
-
-<span style="font-size:4em">1. I love the show Law and Order, but I have to wonder how much damage its done to our public view of police officers. On the show, if someone takes the 5th, theyre guilty. If a cop beats up a suspect, they were guilty. Heck, if they shoot them, interrogate them hard, frame them, lie to them, hack their personal computers, etc... its all okay, because theyre guilty.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125408/87179995/propoganda1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Undercover Boss. At this point, any worker should know if they see a middle aged white guy or woman with a bad wig, make up, and a camera crew behind them should be able to figure out theyre on Undercover Boss.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125419/87179996/propoganda4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Feel good stories, like “8 year old kid saves up $3000 by working to help sister afford her surgery.”</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125430/87179997/propoganda5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. America’s Got Talent. It promotes the idea that talent goes hand in hand with struggle, so much so that genuinely awful acts make it through on the strength of their sob story.People have a hard enough time accepting the work that goes into being a creative without having to attach a tragic backstory to it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125438/87179998/propoganda3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Business articles on LinkedIn that talk about how people should stop seeking work/life balance and start embracing work/life integration.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125438/87179999/propoganda2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Superhero movies are endorsements of extrajudicial punishment.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125441/87180000/propoganda6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Any modern war movie featuring real military equipment. To get access to the equipment, they need to work with the Department of Defense. For them to allow it, they need to approve the script. For them to approve the script, the movie needs to give a positive portrayal of the military.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125452/87180002/propoganda9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The movie, Reefer Madness. Terrible movie, but hilarious today.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125502/87180003/propoganda10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The entire cop show genre. It goes back to the radio drama days and spans drama, comedy, infotainment, documentary, and multiple other genres, but it almost always presents the police as being the white-hatted Good Guys out to stop the Bad Guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125504/87180004/propoganda7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Walmart radio. I worked at Walmart for 3 months and I realized that it seems to be designed to be tuned out by shoppers. It’s real purpose is to brainwash employees and get into their heads so they believe all of the “we’re a family” crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125513/87180005/propoganda12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Any news targeting stock owners. Not the big companies, but the private people who have a few thousand dollars worth or less. The way it works is that a scandal comes out and is designed to make people panic and sell, swinging the price down by a lot, sometimes half the price. Then big companies buy up billions of dollars worth and this swings the price back up. Then they sell it again making a fortune.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125516/87180006/propoganda11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Internship (2013). Just Wedding Crashers but taken over by our Google overlords. Praise be.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125524/87180007/propoganda13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I love Top Gun. Its a huge guilty pleasure of mine and I cant wait to see Maverick in theaters. That being said, it is 1000% propaganda for the Navy, to the point where the Navy had a lot of say in the script and they set up recruitment booths outside the theater.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125528/87180008/propoganda14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. American Sniper. I’m still mad that I got tricked into thinking it was a movie about PTSD.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125535/87180009/propoganda15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Forced recitations of the Pledge of Allegiance for US public school kids.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125539/87180010/propoganda16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Wizard (1989).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125546/87180011/propoganda17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Drug ads. Our advertisements pushing drugs for every single ailment are just propaganda for big pharma.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125550/87180012/propoganda18.png" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">31 Dank Memes That Don't Give Two Sh*ts About the Social Contract</a><br>
+## <a href="#linky5" id="linky4">31 Dank Memes That Don't Give Two Sh*ts About the Social Contract</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176293.jpeg" style="width:100%"><br>
 
@@ -301,7 +189,7 @@ Last updated: 06/01/2022-09:11:31
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87176322.jpeg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">Revolutionary War Facts They Never Taught In School</a><br>
+## <a href="#linky6" id="linky5">Revolutionary War Facts They Never Taught In School</a><br>
 
 <span style="font-size:4em">1. There was a plot to kill or kidnap George Washington early in the Revolutionary War - the traitors were from Washingtons Life Guards, similar to todays Secret Service. One of the traitors was the first person to be put to death for treason, Thomas Hickey, in front of 20,000 people.
 
@@ -405,60 +293,79 @@ Last updated: 06/01/2022-09:11:31
 
 -u/calvicstaff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178344.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Wild Facts We Never Knew about Batman’s Publication History</a><br>
+## <a href="#linky7" id="linky6">25 Real Facts That Are Actually Insane</a><br>
 
-<span style="font-size:4em">1. Gerard Jones, writer of the often mocked and memed Batman: Fortunate Son comic, is in prison for possessing and distributing child sex abuse images. -u/Neverbody
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179347.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179375.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Arkham Asylum, an insane asylum appearing in numerous Batman/DC storylines, was taken directly from the work of H.P Lovecraft. -u/Whatcolorisamirror</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179348.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When Michael Keaton was originally announced as Batman, 50,000 fans mailed letters to Warner Bros in protest and ripped up publicity materials at comic conventions. -u/nategolon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179349.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Loudest Sound In Recorded History Was The Krakatoa Volcanic Eruption Of 1883. It ruptured the eardrums of people more than 40 miles from the epicenter, created a sound wave that circled the globe seven times, and could be heard all the way in New York City, a short 10,000 miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. After Batman got his junior companion Robin in 1940, its comic book sales nearly doubled, which started a rush of kid companions in other comic book series. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179350.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Oxford University is older than the Aztec empire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In 2001, Stan Lee was given the opportunity to re-imagine DCs Justice League and he made Batman black, Wonder Woman Hispanic and The Flash a teenage girl. -u/KSeightyeight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179351.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179379.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Batwoman and Batgirl were originally created as love interests for Batman and Robin respectively in order to combat allegations that the duo were lovers. Batwoman was later reintroduced as Bruce Waynes cousin and a lesbian. -u/wearekindtosnails</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179352.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179380.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The Joker character in Batman myth was based on a character in The Man Who Laughs, a 1928 movie about a man who is disfigured with a permanent grin. The movie is based on Victor Hugos 1869 novel of the same name, meaning that the Jokers origins are 150 years old. -u/Bluest_waters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179353.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Every human could fit into a cubic mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179384.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Harley Quinn wasnt originally a comic book character. She was actually first introduced in Batman: The Animated Series and was so popular that the comic writers decided to add her into the comic universe. -u/BokChoiTV</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179354.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Dragonflies accelerate at up to 4G and corner at up to 9G.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Dr. Frederic Wertham said in his book Seduction of the Innocent and the Senate hearing in 1954 that the comic book industry was worse to kids than Hitler, Batman & Robin were homosexuals and Wonder Woman was a lesbian. This caused an outcry that led to the creation of the Comics Code Authority. -u/TrendWarrior101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179355.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179381.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. In 1996 Marvel and DC comics created Amalgam Comics, which was the literal fusion of their two universes together, merging their characters into new ones, such as Darkclaw (Batman/Wolverine), Super Soldier (Superman/Captain America), and Iron Lantern (Green Lantern/Iron Man). -u/ledgendary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179356.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179383.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Batman villain, Poison Ivy, was inspired by the 1844 story, Rappaccinis Daughter by Nathaniel Hawthorne. The story is about a scientist whos daughter becomes immune to poisons and poisonous to touch due to his experiments with toxic plants. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179357.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. 2/3 of Canada’s population lives south of Seattle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179390.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Joker was intended to be killed off in his second appearance after his debut in Batman #1 (1940). But the decision was hastily withdrawn and Joker went on to become one of the greatest comic book villains and a pop-culture icon. -u/prahaasoldman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179358.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Tarantulas keep tiny frogs as pets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179376.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Batman, Superman, and several Looney Tunes character will enter the public domain between 2031 and 2034. -u/Testing_things_out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179359.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. 105 billion people have lived so far. 7.9 billion of us are currently alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Marvel almost ended up owning DC Comics Superman, Batman & More. -u/HankPymp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179360.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. Instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers, dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179385.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Readers voted via telephone calls whether to kill or save Robin for the Batman: A Death in the Family Comic (#428 issue). Approximately 10,614 calls were received. Of those, 5271 backed Robin while 5343 voted to kill him. -u/sassysalmnder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179361.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Batman once saw through the Martian Manhunters disguise because he connected Manhunters then alias, Hino Rei, with his Martian heritage, i.e. the alter ego of Sailor Mars, which means he had either read, watched, or researched about Sailor Moon. -u/THE0S0PH1ST</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179362.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Theres a Batmans story called A Black and White World that reveals that all the Batmans stories are simply staged, and in that story, they discuss themes like bad writing, how the actors prepare themself to act, and ends in The Batman and The Joker having lunch together. -u/Ciberg122</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179363.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. An Australian man won the lottery, then on camera to re-enact the winning for the news he bought another ticket... he won the lottery again on camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179377.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Batman beat the Hulk in a special cross-over by throwing a can of knock-out-gas at the Hulks head, then hitting him in the solar plexus which caused him to breathe in the gas. -u/RobotVampire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179364.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Green Arrows Chili is the spiciest food in the DC Universe. Only Green Arrow himself and Batman can eat it without screaming in pain. -u/ZhoolFigure</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179365.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Batman vs. Elmer Fudd was a one-shot crossover that pits Batman against Elmer Fudd, reimagined here as a mob hitman. -u/Hugh_Jidiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179366.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/103514/87179889/factsreplacement.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. There is an alternate timeline comics series in which Bruce Wayne is killed prompting his now insane mother to become a female Joker and his father to become a much darker and more violent Batman. -u/berylthranox4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179367.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. A moose can dive underwater down to nearly twenty feet in search of food.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Batman during the golden age of comics was very different from modern interpretations and he often used guns and had no problems killing people. -u/nickburrows8398</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179368.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Ciabatta bread was invented in 1982. Its advertised and perceived as this, traditional, rustic Italian bread that peasants must have enjoyed, but nope--created in the 1980s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179395.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Superman gave Batman a Kryptonite ring, in case he ever went rogue or otherwise needed to be stopped. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179369.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground-level plants were ferns or flowering bushes, not grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Nora Fries, wife of Mr. Freeze in Batman, first appeared in Batman: The Animated Series. Another one of the few characters created in the show to be later adopted in the comics. -u/restartrepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179370.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. In Superman: At Earths End, a batsh*t crazy comic from 1995, an elderly, bearded Superman in a post-apocalyptic wasteland uses the largest gun ever to kill twin Hitler clones and a giant Batman zombie. -u/ZimthekingofIrkens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179371.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. For 60 million years, there was no bacteria, fungus, anything to decompose trees. They just got crushed under the weight of other dead trees. This is where about 90% of coal comes from.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179398.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">30 Magnificent and Sometimes Creepy Pics From the Natural World</a><br>
+## <a href="#linky8" id="linky7">Girl Ditches BF at Grand Canyon after Pushing Prank</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120329/87179939/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120341/87179940/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120430/87179941/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120603/87179945/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120642/87179946/five.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120716/87179947/six.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120814/87179948/seven.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120845/87179949/eight.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120916/87179950/nine.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">30 Magnificent and Sometimes Creepy Pics From the Natural World</a><br>
 
 <span style="font-size:4em">1. Sailfish Have Been Clocked At Speeds In Excess Of 68mph/112km, Some Experts Consider The Sailfish The Fastest Fish In The Worlds Oceans</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179832.jpg" style="width:100%"><br>
 
@@ -520,60 +427,129 @@ Last updated: 06/01/2022-09:11:31
 
 <span style="font-size:4em">30. A Very Geometric Spiderweb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179838.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Annoying Pseudosciences That Are Way Too Popular</a><br>
+## <a href="#linky10" id="linky9">28 Dank Memes to Activate Your Laughter   </a><br>
 
-<span style="font-size:4em">1. Proofs to the flat earth theory - Fi11a
-
-https://www.reddit.com/r/AskReddit/comments/uwosdz/what_pseudoscience_annoys_you_the_most/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180285.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Thats not your girlfriend thats Frank Reynolds. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Chiropractors, there’s no scientific backing for chiropractors and ‘spinal adjustments’. It’s a massage that provides temporary relief, but unlike regular massages can result is severe spinal issues if done incorrectly. The risk is not worth it, if you like to go to the chiropractor switch to a massage parlor so you don’t accidentally get paralyzed.” - Future_Explanation50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180309.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Gandhi lowkey was a SIGMA male. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179520.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “At this point they are so many conflicting diets theory that Im ready to call all nutrition pseudoscience.” - Bonhomme7h</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180302.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Question everything except me, of course. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179521.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Literally anything that claims to remove toxins from your body.” - BlCa314</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180286.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Time to bring out the old faithful. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “A lie detector is a prop in a play. The play is being performed by the interrogators; the audience is the person being interrogated. The subject matter of the play is We can read your mind; dont bother lying to us. The prop works by making different readings in response to the audiences physiological changes. This helps give the audience the impression that the performers can read their emotions.” - fubo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180287.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. You got it bro! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “The Mozart Effect - A UC Irvine study claims that diving deep into the world of Mozart can actually make you smarter. The study took 36 participants and found that those who listened to Mozart before a task did much better than those who only heard silence. The study concluded that Mozart could actually increase your IQ by eight or nine points. However, the results of that study have been widely criticized by the academic and scientific community as a whole. Many claim the results were misleading and that researchers didnt examine what role the participants diets, posture or the time of day they took the tests played in the results.” - Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180288.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Yes, can I have my steak done epicly? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Homeopathy. Remove all the drug and the water magically remembers the effect, but not poop.” - twitch_delta_blues</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180290.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179525.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “I used to work at an assembly line type web design company. I made so many Herbalife sites. We would get bonuses for customer retention, and I hated doing Herbalife sites because I knew theyd go under soon and Id never get the bonus.” - neoplastic_pleonasm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180291.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This meme never gets old.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Psychics and mediums who prey upon the gullible, the mentally-ill, the desperate and the
-vulnerable and claim they can speak to people who are dead. Shit should be illegal. Also things like hypnosis, parapsychology, body-language experts, psychoanalysis, lie-detection, all grifts.” - MyDogsCalledClarence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180292.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I should not have smoked that bowl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “astrology. im totally down to learn what my chart is and such, but the second you start to tell me that it influences my personality and that we arent compatible im done.” - OfficialBandKid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180293.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Why does cherry flavored candy taste like trash? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Essential oils. Stop trying to put that smelling crap on me for my migraines, I just told you the smell is a trigger!” - builder-barbie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180294.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Hello, what is your emergency? Im broke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Crystals. They look pretty. Some look awesome but thats about it.” - Satansbiscuit666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180295.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “That bullshit dominance training for dogs. Its not real, youre only causing your dog harm. Shut up.” - itsArtruckus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180296.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The Office is over rated. We are not afraid to say that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Psychics and mediums. Exploiting grieving people for money is about as scummy as exploiting poor people for money.” - throwaway_4733</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180297.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179532.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “And, even worse: makes people stop giving life saving medicine to their children. Looks like COVID didnt give a crap about little sugar balls and pendulums. People are dead now.” - raxeira-etterath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180298.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Old heads will know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Clean beauty. I am sorry, Brenda, but mixing raw lemon juice and coffee grounds and then putting it on your face as a scrub is going to do more damage than an AHA/BHA or other chemical exfoliant could ever do. It is also not nearly as effective and waaaay more irritating. Chemicals can be friends. Besides, the whole marketing is often incredibly greenwashed and free of harsh chemicals is such bullshit. What do you think that lemon extract is??? Citric acid, bro.” - Lunexa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180299.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Vaccines causing autism. The doctor who put that idea out got his degree and was made a laughingstock in the medical world. But yet face book moms still buy it” - oarngebean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180300.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Why are kids like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “As an archeologist, nothing grinds my gears more than the idea that aliens built monumental architecture such as the Pyramids. This implies that ancient people were too stupid to achieve such a feat and that modern people are superior--far from the truth. Not saying that aliens cant be real, just that these theories discount the capabilities of our ancestors.” - Songovstorms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180301.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Whenever some uses Energy to justify new age shit I loose my cool. Same thing with quantum.” - LeN3rd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180303.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “The makebelieve bullsh*t words they use for beauty product ads combined with bad stats - 90% of 12 women said their face looked brighterwhen we told them to say their face looked brighter try our new hyuroxynucleid wonder serum today Also have you ever ever in your entire life gone wow I wish my face looked brighter????????? Who even does that???????” - Maleficent-Ad-7169</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180304.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “breatharianism its basically photosynthesis but for humans” - Far_Flounder2820</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180305.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “The All natural. No chemicals. No preservatives</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180306.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Take notes bros, this could come in handy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Health and wellness pseudoscience. You don’t need a detox, you don’t need to alkaline water to reset your pH. If you were that full of toxins or your pH was that far off, you’d need new organs, specifically the liver and kidneys. And also you’d probably be dead.” - seattlewhiteslays</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180307.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Pseudoscience pop psychology tests like the Myers-Briggs (MBTI) and the Eneagram. Literally neither are supported by any science at all. The MBTI actually factors into 3 different dichotomous sets, not 4. The Eneagram is just as useless, but a lot of people really define themselves based on them.” - Ayzmo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180308.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. What else am I supposed to do? Im not listening to anything you say, Im just starring into my prefect eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Anything Gwyneth Paltrow says” - mart1373</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180289.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179544.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179545.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">32 Savage Memes Not For the Sensitive Sallys </a><br>
+
+<span style="font-size:4em">1. Oh we are so going to fail this class. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Sweating intensifies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh my god, can we stop this crap already? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Okay this one actually is a joke. Bravo sir! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Lmao. BFTO. Ratiod. Rekt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Oh this isnt going to end well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Kids today could never. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Excuse me what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If you see me spreading my legs in public dont tell me, I dont care. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179728.jpg" style="width:100%"><br>
 
 ## <a href="#linky12" id="linky11">'It's Morbin Time' - Morbius Memes Have Swept the Nation </a><br>
 
@@ -649,131 +625,150 @@ vulnerable and claim they can speak to people who are dead. Shit should be illeg
 
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011931/87138858/Morbius-Memes2.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">26 Memes Straight Off the Assembly Line</a><br>
+## <a href="#linky13" id="linky12">Wild Facts We Never Knew about Batman’s Publication History</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110644/87179898/memeshehe5.png" style="width:100%"><br>
+<span style="font-size:4em">1. Gerard Jones, writer of the often mocked and memed Batman: Fortunate Son comic, is in prison for possessing and distributing child sex abuse images. -u/Neverbody
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110627/87179895/memeshehe1.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Arkham Asylum, an insane asylum appearing in numerous Batman/DC storylines, was taken directly from the work of H.P Lovecraft. -u/Whatcolorisamirror</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110633/87179896/memeshehe2.png" style="width:100%"><br>
+<span style="font-size:4em">3. When Michael Keaton was originally announced as Batman, 50,000 fans mailed letters to Warner Bros in protest and ripped up publicity materials at comic conventions. -u/nategolon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110637/87179897/memeshehe4.png" style="width:100%"><br>
+<span style="font-size:4em">4. After Batman got his junior companion Robin in 1940, its comic book sales nearly doubled, which started a rush of kid companions in other comic book series. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110622/87179894/memeshehe3.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. In 2001, Stan Lee was given the opportunity to re-imagine DCs Justice League and he made Batman black, Wonder Woman Hispanic and The Flash a teenage girl. -u/KSeightyeight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110649/87179899/memeshehe7.png" style="width:100%"><br>
+<span style="font-size:4em">6. Batwoman and Batgirl were originally created as love interests for Batman and Robin respectively in order to combat allegations that the duo were lovers. Batwoman was later reintroduced as Bruce Waynes cousin and a lesbian. -u/wearekindtosnails</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110655/87179900/memeshehe6.png" style="width:100%"><br>
+<span style="font-size:4em">7. The Joker character in Batman myth was based on a character in The Man Who Laughs, a 1928 movie about a man who is disfigured with a permanent grin. The movie is based on Victor Hugos 1869 novel of the same name, meaning that the Jokers origins are 150 years old. -u/Bluest_waters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110700/87179901/memeshehe8.png" style="width:100%"><br>
+<span style="font-size:4em">8. Harley Quinn wasnt originally a comic book character. She was actually first introduced in Batman: The Animated Series and was so popular that the comic writers decided to add her into the comic universe. -u/BokChoiTV</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110706/87179902/memeshehe10.png" style="width:100%"><br>
+<span style="font-size:4em">9. Dr. Frederic Wertham said in his book Seduction of the Innocent and the Senate hearing in 1954 that the comic book industry was worse to kids than Hitler, Batman & Robin were homosexuals and Wonder Woman was a lesbian. This caused an outcry that led to the creation of the Comics Code Authority. -u/TrendWarrior101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110711/87179903/memeshehe9.png" style="width:100%"><br>
+<span style="font-size:4em">10. In 1996 Marvel and DC comics created Amalgam Comics, which was the literal fusion of their two universes together, merging their characters into new ones, such as Darkclaw (Batman/Wolverine), Super Soldier (Superman/Captain America), and Iron Lantern (Green Lantern/Iron Man). -u/ledgendary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110717/87179904/memeshehe11.png" style="width:100%"><br>
+<span style="font-size:4em">11. The Batman villain, Poison Ivy, was inspired by the 1844 story, Rappaccinis Daughter by Nathaniel Hawthorne. The story is about a scientist whos daughter becomes immune to poisons and poisonous to touch due to his experiments with toxic plants. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110722/87179905/memeshehe12.png" style="width:100%"><br>
+<span style="font-size:4em">12. Joker was intended to be killed off in his second appearance after his debut in Batman #1 (1940). But the decision was hastily withdrawn and Joker went on to become one of the greatest comic book villains and a pop-culture icon. -u/prahaasoldman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110728/87179906/memeshehe13.png" style="width:100%"><br>
+<span style="font-size:4em">13. Batman, Superman, and several Looney Tunes character will enter the public domain between 2031 and 2034. -u/Testing_things_out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110732/87179907/memeshehe14.png" style="width:100%"><br>
+<span style="font-size:4em">14. Marvel almost ended up owning DC Comics Superman, Batman & More. -u/HankPymp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110741/87179908/memeshehe15.png" style="width:100%"><br>
+<span style="font-size:4em">15. Readers voted via telephone calls whether to kill or save Robin for the Batman: A Death in the Family Comic (#428 issue). Approximately 10,614 calls were received. Of those, 5271 backed Robin while 5343 voted to kill him. -u/sassysalmnder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110744/87179909/memeshehe16.png" style="width:100%"><br>
+<span style="font-size:4em">16. Batman once saw through the Martian Manhunters disguise because he connected Manhunters then alias, Hino Rei, with his Martian heritage, i.e. the alter ego of Sailor Mars, which means he had either read, watched, or researched about Sailor Moon. -u/THE0S0PH1ST</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110752/87179910/memeshehe17.png" style="width:100%"><br>
+<span style="font-size:4em">17. Theres a Batmans story called A Black and White World that reveals that all the Batmans stories are simply staged, and in that story, they discuss themes like bad writing, how the actors prepare themself to act, and ends in The Batman and The Joker having lunch together. -u/Ciberg122</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110755/87179911/memeshehe18.png" style="width:100%"><br>
+<span style="font-size:4em">18. Batman beat the Hulk in a special cross-over by throwing a can of knock-out-gas at the Hulks head, then hitting him in the solar plexus which caused him to breathe in the gas. -u/RobotVampire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110804/87179912/memeshehe19.png" style="width:100%"><br>
+<span style="font-size:4em">19. Green Arrows Chili is the spiciest food in the DC Universe. Only Green Arrow himself and Batman can eat it without screaming in pain. -u/ZhoolFigure</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110807/87179913/memeshehe20.png" style="width:100%"><br>
+<span style="font-size:4em">20. Batman vs. Elmer Fudd was a one-shot crossover that pits Batman against Elmer Fudd, reimagined here as a mob hitman. -u/Hugh_Jidiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179366.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110815/87179914/memeshehe21.png" style="width:100%"><br>
+<span style="font-size:4em">21. There is an alternate timeline comics series in which Bruce Wayne is killed prompting his now insane mother to become a female Joker and his father to become a much darker and more violent Batman. -u/berylthranox4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110818/87179915/memeshehe22.png" style="width:100%"><br>
+<span style="font-size:4em">22. Batman during the golden age of comics was very different from modern interpretations and he often used guns and had no problems killing people. -u/nickburrows8398</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110826/87179916/memeshehe23.png" style="width:100%"><br>
+<span style="font-size:4em">23. Superman gave Batman a Kryptonite ring, in case he ever went rogue or otherwise needed to be stopped. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179369.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110829/87179917/memeshehe24.png" style="width:100%"><br>
+<span style="font-size:4em">24. Nora Fries, wife of Mr. Freeze in Batman, first appeared in Batman: The Animated Series. Another one of the few characters created in the show to be later adopted in the comics. -u/restartrepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179370.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110838/87179918/memeshehe25.png" style="width:100%"><br>
+<span style="font-size:4em">25. In Superman: At Earths End, a batsh*t crazy comic from 1995, an elderly, bearded Superman in a post-apocalyptic wasteland uses the largest gun ever to kill twin Hitler clones and a giant Batman zombie. -u/ZimthekingofIrkens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/110841/87179919/memeshehe26.png" style="width:100%"><br>
+## <a href="#linky14" id="linky13">Popular Things in the Media That Are Actually Propaganda</a><br>
 
-## <a href="#linky14" id="linky13">25 Real Facts That Are Actually Insane</a><br>
+<span style="font-size:4em">1. I love the show Law and Order, but I have to wonder how much damage its done to our public view of police officers. On the show, if someone takes the 5th, theyre guilty. If a cop beats up a suspect, they were guilty. Heck, if they shoot them, interrogate them hard, frame them, lie to them, hack their personal computers, etc... its all okay, because theyre guilty.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125408/87179995/propoganda1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179375.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Undercover Boss. At this point, any worker should know if they see a middle aged white guy or woman with a bad wig, make up, and a camera crew behind them should be able to figure out theyre on Undercover Boss.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125419/87179996/propoganda4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179378.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Feel good stories, like “8 year old kid saves up $3000 by working to help sister afford her surgery.”</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125430/87179997/propoganda5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Loudest Sound In Recorded History Was The Krakatoa Volcanic Eruption Of 1883. It ruptured the eardrums of people more than 40 miles from the epicenter, created a sound wave that circled the globe seven times, and could be heard all the way in New York City, a short 10,000 miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179399.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. America’s Got Talent. It promotes the idea that talent goes hand in hand with struggle, so much so that genuinely awful acts make it through on the strength of their sob story.People have a hard enough time accepting the work that goes into being a creative without having to attach a tragic backstory to it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125438/87179998/propoganda3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Oxford University is older than the Aztec empire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179391.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Business articles on LinkedIn that talk about how people should stop seeking work/life balance and start embracing work/life integration.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125438/87179999/propoganda2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179379.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Superhero movies are endorsements of extrajudicial punishment.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125441/87180000/propoganda6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179380.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Any modern war movie featuring real military equipment. To get access to the equipment, they need to work with the Department of Defense. For them to allow it, they need to approve the script. For them to approve the script, the movie needs to give a positive portrayal of the military.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125452/87180002/propoganda9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Every human could fit into a cubic mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179384.png" style="width:100%"><br>
+<span style="font-size:4em">8. The movie, Reefer Madness. Terrible movie, but hilarious today.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125502/87180003/propoganda10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Dragonflies accelerate at up to 4G and corner at up to 9G.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179382.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The entire cop show genre. It goes back to the radio drama days and spans drama, comedy, infotainment, documentary, and multiple other genres, but it almost always presents the police as being the white-hatted Good Guys out to stop the Bad Guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125504/87180004/propoganda7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179381.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Walmart radio. I worked at Walmart for 3 months and I realized that it seems to be designed to be tuned out by shoppers. It’s real purpose is to brainwash employees and get into their heads so they believe all of the “we’re a family” crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125513/87180005/propoganda12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179383.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Any news targeting stock owners. Not the big companies, but the private people who have a few thousand dollars worth or less. The way it works is that a scandal comes out and is designed to make people panic and sell, swinging the price down by a lot, sometimes half the price. Then big companies buy up billions of dollars worth and this swings the price back up. Then they sell it again making a fortune.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125516/87180006/propoganda11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. 2/3 of Canada’s population lives south of Seattle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179390.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Internship (2013). Just Wedding Crashers but taken over by our Google overlords. Praise be.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125524/87180007/propoganda13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Tarantulas keep tiny frogs as pets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179376.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I love Top Gun. Its a huge guilty pleasure of mine and I cant wait to see Maverick in theaters. That being said, it is 1000% propaganda for the Navy, to the point where the Navy had a lot of say in the script and they set up recruitment booths outside the theater.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125528/87180008/propoganda14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. 105 billion people have lived so far. 7.9 billion of us are currently alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179389.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. American Sniper. I’m still mad that I got tricked into thinking it was a movie about PTSD.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125535/87180009/propoganda15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. Instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers, dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179385.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Forced recitations of the Pledge of Allegiance for US public school kids.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125539/87180010/propoganda16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179386.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The Wizard (1989).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125546/87180011/propoganda17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179387.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Drug ads. Our advertisements pushing drugs for every single ailment are just propaganda for big pharma.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/125550/87180012/propoganda18.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. An Australian man won the lottery, then on camera to re-enact the winning for the news he bought another ticket... he won the lottery again on camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179377.jpg" style="width:100%"><br>
+## <a href="#linky15" id="linky14">27 Funny Memes to Kick Boredom to the Curb </a><br>
 
-<span style="font-size:4em">18. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179392.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179654.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179393.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179664.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/103514/87179889/factsreplacement.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179666.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. A moose can dive underwater down to nearly twenty feet in search of food.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179394.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179657.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Ciabatta bread was invented in 1982. Its advertised and perceived as this, traditional, rustic Italian bread that peasants must have enjoyed, but nope--created in the 1980s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179395.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. Bro on the left looks like he just took the best afternoon nap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179658.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground-level plants were ferns or flowering bushes, not grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179396.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179660.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179397.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179661.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. For 60 million years, there was no bacteria, fungus, anything to decompose trees. They just got crushed under the weight of other dead trees. This is where about 90% of coal comes from.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87179398.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Take notes kids, that way when you you get questioned youll always have the answers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179662.jpeg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Girl Ditches BF at Grand Canyon after Pushing Prank</a><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179663.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120329/87179939/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Lmao, he there step-owner, Im stuck in the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179655.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120341/87179940/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Oh thank god it wasnt something important. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179665.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120430/87179941/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179667.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120603/87179945/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179668.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120642/87179946/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179656.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120716/87179947/six.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120814/87179948/seven.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. This damn voice in my head wont shut up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179670.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120845/87179949/eight.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179671.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/31/120916/87179950/nine.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Shes got those wandering eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179673.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This movie actually looks pretty great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179674.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179675.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179676.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179677.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. What in Gods name is this terrible creation? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179680.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Always has been. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179681.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179682.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. Now thats going in your file, Craig. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87179683.jpeg" style="width:100%"><br>
 
 ## <a href="#linky16" id="linky15">25 Great Insults That Don’t Require Cursing</a><br>
 
@@ -866,62 +861,4 @@ Thats why the traditional marshmallows arent vegan or halal...</span><br><img sr
 <span style="font-size:4em">14. If given access to it, butterflies will happily drink blood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169057.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">15. Your phone is likely spying on you right now as youre reading this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169058.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">28 Dank Memes to Activate Your Laughter   </a><br>
-
-<span style="font-size:4em">1. Thats not your girlfriend thats Frank Reynolds. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Gandhi lowkey was a SIGMA male. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179520.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Question everything except me, of course. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179521.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Time to bring out the old faithful. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. You got it bro! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Yes, can I have my steak done epicly? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179525.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. This meme never gets old.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I should not have smoked that bowl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Why does cherry flavored candy taste like trash? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Hello, what is your emergency? Im broke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The Office is over rated. We are not afraid to say that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179532.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Old heads will know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Why are kids like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Take notes bros, this could come in handy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. What else am I supposed to do? Im not listening to anything you say, Im just starring into my prefect eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179544.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87179545.jpg" style="width:100%"><br>
 
