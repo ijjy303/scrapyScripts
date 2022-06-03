@@ -1,199 +1,97 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 06/03/2022-12:11:31
+Last updated: 06/03/2022-13:11:33
 <br>
-## <a href="#linky2" id="linky1">14 Small Details Hidden in Disney Movies </a><br>
+## <a href="#linky2" id="linky1">12 People Who Might Regret Asking to Get Roasted</a><br>
 
-<span style="font-size:4em">1. In the scene where the animals seem to go crazy, while the dentist is attending to his niece Darla, the child in the waiting room frightened by the commotion and screaming is holding a Mr. Incredible comic book, the protagonist of Pixar’s next movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181129.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Turned 18 a month ago and just graduated from a private high school. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111016/87182002/get-roasted-35.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. In 2009, the production company released the film Up and it was a great success. But in the scene where the house flies through the window of a little girl’s room, you can also see Lotso the bear next to her bed. He’d later turn out to be the new antagonist of the third installment of Toy Story 3. Similarly, in the house of the witch in Brave, released in 2012, you can see Sulley in a wood carving. He’s the protagonist of Monsters University, which was released the following year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181130.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110230/87181994/getroasted36.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. In Toy Story 2, we discover that Woody is a very old collector’s doll, coveted by many fans. That shows that it had to have been acquired long before the other toys Andy plays with. In fact, the creators of the saga have made it clear that before being owned by Andy Jr., the intrepid cowboy belonged to Andy Sr.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181131.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110233/87181995/getroasted37.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. In case you hadn’t noticed, the famous Pizza Planet delivery van appears in almost every film that was released after Toy Story. The picture above proves it, take a look: 1. its first appearance in Toy Story, 2. Brave, 3. Monster University, 4. WALL-E, 5. Bugs, and 6. Finding Nemo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181133.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110241/87181996/getroasted38.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Many people may have wondered how Prince Eric could have mistaken Ariel for the human version of Ursula when the differences between the two of them are so striking. One has red hair and blue eyes and the other is a brunette with darker eyes. This is because the only image he has of her came from when he saw her on the beach. But then the sun was shining right on him and he was just waking up from an unconscious state. Take a look at the image above and you’ll understand everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181134.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Im a proud gamer, I have a construction job for my parents, and yes, I do have a girlfriend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105945/87181964/getroasted1.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. It is not a secret, nor is it hidden that on Pocahontas’ right arm there is a tattoo. It is a peculiarity since this small detail makes her the only tattooed princess in Disney history. This is inspired by a true story, that of the daughter of the chief of the Powhatan tribe, for whom tattoos were commonplace for both men and women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181135.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110038/87181974/getroasted12.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Pixar will never miss an opportunity to remind us in very subtle ways what other films they have available or will be releasing soon. In Zootopia, for instance, you can see versions of their other movies, some released and some not. However, they’re all adapted to the animal world, so you see a pig for Big Hero 6, a horse for Tangled, a rhine for Wreck-it Ralph, and so on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181136.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110040/87181975/getroasted13.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. If you take a closer look at the almanac in which Mike Wazowski is counting down the days for the final exam, you’ll see that the shade of red between the “x’s” is not the same. The older, dry “x’s” have a dark red color that clearly differentiates them from the fresh, intense red of the new ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181137.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110146/87181986/getroasted26.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. No stone is left unturned in Pixar’s movies. The proof of it is that animators added to this character even a small detail that lots of cooks and chefs have. It is very common for them to have small burns on their forearms. They get them accidentally when putting food on the grills or ovens or when taking it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181132.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Proof that I dont turn into a pumpkin after midnight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110011/87181969/getroasted7.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. This movie has something in common with Brother Bear. They were made at Disney Studios Orlando before it was totally transformed into a theme park. In fact, Mulan was the first and was released just before Lilo and Stitch. On the wall of Lilo’s room, a poster of her predecessor can be seen hanging.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181138.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110005/87181968/getroasted4.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Within the imaginary worlds that animators create for their stories, there are certain places that are inspired by real life. Landscapes, castles, panoramic views of cities, or in this case, a train station. When the characters of Wreck-It Ralph want to leave their games, they travel through the electrical connection until they reach Central Station, from where they can go to all the games in the room. This fictional station was inspired by the actual, extremely busy Grand Central Station in New York.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181139.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105957/87181966/getroasted6.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Mothers seem to have twenty eyes, they see everything, even before it happens, and Helen Parr, the mother of the Incredible family, could not fail to have this maternal and natural gift. In the scene in the image, in which she falls from a plane into the sea with two of her children, she seems to guess that something is going to fall on them and she pushes her little ones out of the way. Watching the scene shot by shot or in slow motion, you can see how in a split second, she sees the reflection of the falling object in the water and pushes her children away. As we said, a mother doesn’t miss a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181140.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110001/87181967/getroasted5.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. In Toy Story 3, Buzz suffers a malfunction and starts acting strangely. While his friend Woody tries to get him back to normal, he exposes his batteries, which are none other than the Buy n Large brand. This large chain, in the movie WALL-E, was the manufacturer of both the main robot in charge of cleaning the planet of pollution and the space cruisers that house humans in space.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181141.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. 18M, I want to be a large animal zoo veterinarian. Burn me!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110029/87181973/getroasted11.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. After so many years including Easter Eggs everywhere, many fans began to develop theories about a possible connection between all of them. The idea is that there could be a Disney multiverse in which all the stories are developed in parallel. It’d be something similar was what Marvel created for its MCU (Marvel Cinematic Universe). Finally, through an official video on the Toy Story social media accounts, Pixar confirmed that these theories are not so far-fetched after all and that there is a certain connection between all of these stories.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181142.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110017/87181971/getroasted9.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Disturbing Facts about the World’s Oceans</a><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105934/87181963/getroasted3.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.” -SnooOranges4231</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180136.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110024/87181972/getroasted10.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move. He specifically mentioned how he had to get used to having large things bump into him in the pitch black.” -Freaked_The_Eff_Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180134.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Lost a bet with my wife. Have at it, Reddit.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110052/87181977/getroasted15.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “The largest biomass migration takes place every night when deep sea animals come up to feed.” -Supraman83</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180135.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105922/87181962/getroasted2.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.” -Reyltjj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180137.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110049/87181976/getroasted14.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood. Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.” -colorforge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180138.jpg" style="width:100%"><br>
+<span style="font-size:4em">20.  Thick as f*ck with no attention span, and pale as f*ck despite living in a red hot country for over a year. Make me warmer with your roasts.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110137/87181985/getroasted24.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “94% of the Earths oceans are just pitch black darkness.” -Dr-Figgleton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180139.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110100/87181978/getroasted16.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “When you dip your toe in the water you are no longer at the top of the food chain.” -Kermitsfinger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180155.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110104/87181979/getroasted17.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “When a whale dies, it creates a whole new ecosystem.” -Victor_IMayBeWeird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180140.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110111/87181980/getroasted18.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source. The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.” -Lord_of_the_Canals</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180141.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Criminal Justice major, and Im super into sports. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111323/87182045/get-roasted-number.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “It has murdered more people than you will ever know.”  -Kaptainkarl76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180142.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110014/87181970/getroasted8.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention. I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.” -deleteduser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180143.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110115/87181981/getroasted19.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Its estimated that there are 3 million shipwrecks in the ocean, and we lose without a trace, about 100 large vessels every year.” -Ephemeris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180144.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110124/87181982/getroasted20.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Hot tub of despair is a lake under the ocean, in the Gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.” -Abathur11235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180145.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. My dementia patient said I had a weird face, prove her right.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111112/87182003/get-roasted-25.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe. It’s from fishing nets and fishing gear.” -TheSheekGeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180146.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110127/87181983/getroasted22.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.” -SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180147.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110135/87181984/getroasted23.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Each ocean is a mass gravesite and we all go swimming in it, and some of us end up in it.” -Masterjefe23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180148.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. Havent slept well in a while, so roast my high looking ass.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111519/87182046/getroasted44.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “There are parts of the ocean which are dead, no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.” -Emergency-Tiger4339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180149.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110150/87181987/getroasted27.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “There are more planes in the ocean than submarines in the sky.” -Sleepy_SadOS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180150.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110157/87181988/getroasted28.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b*tch who couldnt care less whether I live or die.” -Intelligent-Lie-7407</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180151.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. I have no plans for the future. I like psychology, art and black humor. I wanna hit rock bottom tonight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111211/87182044/get-roasted-32.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Blue Whales cum 20 litres of sperm each time they ejaculate. Thats gotta leave a taste.” -UnusualGenePool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180152.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110208/87181990/getroasted30.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “There is a garbage patch so big it can be seen from space.” -Last-Appearance-4658</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180153.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110201/87181989/getroasted29.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. “When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.” -creeeeaaach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180154.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110212/87181991/getroasted31.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Hawley Harvey Crippen should have dumped his wifes remains in the ocean because not an ounce of food goes to waste including the bones. If you need to get rid of a mass grave dont bury them, dump them at sea and the entire body will be eaten. Which will actually be beneficial to the ecosystem as a whole. We shouldnt be burying people, but dumping them at sea.” -TwistedDecayingFlesh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180156.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. Guess what country Im from.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110305/87182000/getroasted42.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. “We dont really know whats in it. I can say that for thousands of years we drew sea monsters believing they lived in it. Surprising a lot of stuff we found in those pictures were in the ocean. (Giant Squid recently.) Just makes you think what else is actually down there that we dont know about.” -ghigoli</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180157.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110307/87182001/getroasted43.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Only 1% of its floor has been explored. It’s pretty common knowledge by now, but most people don’t understand how absolutely insane it really is. We know more about the surface of Mars than we do our oceans floor.” -Teiwaz_Norseman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180158.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110219/87181992/getroasted33.png" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 Cringe Pics Full of So Much Pain</a><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110223/87181993/getroasted34.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87181076.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. Artist and van-lifer on hiatus. Give me hell.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110244/87181997/getroasted39.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87181077.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110253/87181998/getroasted40.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87181078.jpg" style="width:100%"><br>
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110256/87181999/getroasted41.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87181079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87181080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87181081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87181082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/100955/87181084/1v6gs8g9n0191.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101006/87181085/5n8keveyh0y81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101018/87181086/1yum9kva79291.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101026/87181087/00jx6y56f1z81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101029/87181088/6wjju515h0x81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101037/87181089/09f21jwr2iz81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101040/87181090/8nk5oovplzw81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101048/87181091/9bc2env2vf291.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101051/87181092/30mohi23im291.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101059/87181093/afivl58azg091.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101102/87181094/ctm6pb6gap091.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101110/87181095/bha1djpn6oy81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101113/87181096/dh4uwv76dl191.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101121/87181097/eff09b8bcex81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101125/87181098/fbzfeyk5dv291.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101132/87181099/H23nQIKruW0dEly4VFvA8HFMGAguYS-6pM7U0HrdCAE.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101136/87181100/ipjhed5wjhy81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101143/87181101/j9xulvit86y81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101147/87181102/k5kq5ye1ql191.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101154/87181103/lorw8gJdPTskClv6fehEklD3_iOJX_RJm3hlfZL-Lpk.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101158/87181104/san9wobls4x81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101205/87181105/wnvvklvqwhx81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101209/87181106/ua1ydzjcwrx81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101216/87181107/yw5uzrf5z1x81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101220/87181108/z6clofgnvy191.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/101227/87181109/xtru9g2j3f191.jpeg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">28 People Having The Worst Day Ever</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181631.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">Actors So Good They Freaked Us Out with Their Performances</a><br>
+## <a href="#linky3" id="linky2">Actors So Good They Freaked Us Out with Their Performances</a><br>
 
 <span style="font-size:4em">1. Malcolm McDowell in A Clockwork Orange. I can’t even look at the guy. -u/143019</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180500.jpg" style="width:100%"><br>
 
@@ -246,7 +144,59 @@ Last updated: 06/03/2022-12:11:31
 
 <span style="font-size:4em">25. Imelda Staunton as Delores Umbridge. There are very very few villains that Ive seen in books, movies, or video games that I’ve wanted to personally kill more. That means she did an unbelievably good job as a twisted villain. -u/SumwhatNerdy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180520.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">37 People Experiencing the Suckage of Life</a><br>
+## <a href="#linky4" id="linky3">Disturbing Facts about the World’s Oceans</a><br>
+
+<span style="font-size:4em">1. “Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.” -SnooOranges4231</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move. He specifically mentioned how he had to get used to having large things bump into him in the pitch black.” -Freaked_The_Eff_Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “The largest biomass migration takes place every night when deep sea animals come up to feed.” -Supraman83</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.” -Reyltjj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood. Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.” -colorforge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “94% of the Earths oceans are just pitch black darkness.” -Dr-Figgleton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “When you dip your toe in the water you are no longer at the top of the food chain.” -Kermitsfinger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “When a whale dies, it creates a whole new ecosystem.” -Victor_IMayBeWeird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source. The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.” -Lord_of_the_Canals</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “It has murdered more people than you will ever know.”  -Kaptainkarl76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention. I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.” -deleteduser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Its estimated that there are 3 million shipwrecks in the ocean, and we lose without a trace, about 100 large vessels every year.” -Ephemeris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Hot tub of despair is a lake under the ocean, in the Gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.” -Abathur11235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe. It’s from fishing nets and fishing gear.” -TheSheekGeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.” -SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Each ocean is a mass gravesite and we all go swimming in it, and some of us end up in it.” -Masterjefe23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “There are parts of the ocean which are dead, no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.” -Emergency-Tiger4339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “There are more planes in the ocean than submarines in the sky.” -Sleepy_SadOS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b*tch who couldnt care less whether I live or die.” -Intelligent-Lie-7407</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Blue Whales cum 20 litres of sperm each time they ejaculate. Thats gotta leave a taste.” -UnusualGenePool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “There is a garbage patch so big it can be seen from space.” -Last-Appearance-4658</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.” -creeeeaaach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Hawley Harvey Crippen should have dumped his wifes remains in the ocean because not an ounce of food goes to waste including the bones. If you need to get rid of a mass grave dont bury them, dump them at sea and the entire body will be eaten. Which will actually be beneficial to the ecosystem as a whole. We shouldnt be burying people, but dumping them at sea.” -TwistedDecayingFlesh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “We dont really know whats in it. I can say that for thousands of years we drew sea monsters believing they lived in it. Surprising a lot of stuff we found in those pictures were in the ocean. (Giant Squid recently.) Just makes you think what else is actually down there that we dont know about.” -ghigoli</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Only 1% of its floor has been explored. It’s pretty common knowledge by now, but most people don’t understand how absolutely insane it really is. We know more about the surface of Mars than we do our oceans floor.” -Teiwaz_Norseman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87180158.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">37 People Experiencing the Suckage of Life</a><br>
 
 <span style="font-size:4em">1. “Went to ride my bike yesterday for the first time this year, fell and broke my arm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178735.jpg" style="width:100%"><br>
 
@@ -322,7 +272,49 @@ Last updated: 06/03/2022-12:11:31
 
 <span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178758.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">Boss Embarrassed after He Forces Breastfeeding Mother to Turn On Webcam</a><br>
+## <a href="#linky6" id="linky5">28 People Having The Worst Day Ever</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87181631.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">Boss Embarrassed after He Forces Breastfeeding Mother to Turn On Webcam</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014136/87182188/one.jpg" style="width:100%"><br>
 
@@ -334,186 +326,7 @@ Last updated: 06/03/2022-12:11:31
 
 <span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014253/87182192/end.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">35 Humiliating Ways People Were Fired</a><br>
-
-<span style="font-size:4em">1. I worked at a Chiropractic office once. One if the girls found out she was being fired when she was on Craigslist looking for other jobs and found her job posted for another X-ray technician. She came to work pissed and stripped off her scrubs in front everyone and walked out in her undies. My hero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. One capable IT employee was in the hospital due to an unexpected health emergency. They went to the hospital and fired him before his heart surgery. I s**t you not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I got fired because my boss f****d up and blamed it on me.
-
-I started my own business in the same field and made all key people leave my former employer and work for me instead. A year later they had to file for bankruptcy.
-
-Ah, the malicious delight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My dad told me once about a coworker getting fired on take your daughter to work day. It was before lunch too so they both had to be escorted out of the office carrying their brown paper lunch bags.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Was fired 3 days after my kid was born for missing time because I requested the weekend that my ex was in labour off, got the go ahead from my supervisor but I guess that never made it upstairs to the top boss because they got rid of me lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I worked in retail and our manager fired a guy after his 12 hour shift on Black Friday. Couldve spent the day after thanksgiving with his family, but instead, the manager made him work in case it was busy, then fired him at the end of his shift. It was a douche move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I had a friend who worked in an office doing office type s**t. One day, his boss croaked and he was was made interim boss. Anyways, he busted his a*s in order to try and keep his new position. A month later, he interviewed. A week later, his boss called him into the office and said.... *You know, we really wanted to hire you, I was rooting for you, but someone with more experience and qualifications got the job..... do you mind training him?*
-
-They asked him to train his replacement.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I posted this in an askreddit thread about a week ago, but it fits this thread perfectly:
-
-When I was in my early 20s, I was about 9 months into a job at a retail store and I had been working my a*s off for a chance to be part of a new department that the store was about to open. I aced my review and I got the promotion to the brand new department. It was going to be more challenging work, it came with a pretty hefty pay bump, I would have my own office, and the work would be impactful to the whole company.
-
-The promotion didnt kick in until the start of the next week. I was laid off that Friday. When they were asked to cut payroll, management literally selected the people who were making the most money. My name was listed next to the salary I hadnt yet received. Instead of admitting that they f****d up and keeping their best performing employee at that store, they doubled down and tried to hold my last paycheck ransom until I trained my replacement in the job that I hadnt even done yet.
-
-The store owner just happened to be around that day. Normally he was a very kind man and knew everyone by name. I tried to explain the ridiculous situation to him and he just told me to go home. In a rare moment of frustration, I said something to the effect of You know, b******t like this kills stores. He coldly replied Hastings will be around longer than you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Not quite fired yet, but today 3 of us publicly confronted our boss over proof of her committing fraud and embezzlement. The organization serves people with mental health conditions and we confronted her during a public meeting in front of those the organization serves.
-
-It was painful, we hated doing it, but the truth needed to come out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. i was fired from petsmart for reasons i can no longer remember. immediately after the manager delivered the news, she asked me if i would mind staying for two hours to wait until the evening shift relief arrived. unpaid, of course. i laughed in her face and left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Being the top dog of the FBI and finding out over CNN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Girl I knew was here on work visa. She had been working at a company for several years that treated her well but ended up moving and got a job at a new one. Her boss apparently used her as a scapegoat, set her up with impossible, b******t tasks (like planning the office Christmas party about a week beforehand), then fired her shortly before Christmas. That meant her work visa expired and she was going to be sent back to her home country. Apparently its the law that the employer in this case pay for the fired employees plane ride home, and her boss chose to fly her out on Christmas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I was working 20 ft up a ladder on the side of a house. I hear a BB gun fire and the pellet hit the wall a few feet beside me. After a couple more of these I turn around tell the fat kid standing in the yard if he does that s**t again he better be able to out run my hammer. Mom starts screaming about me threatening her kid. 15 minutes later Im unemployed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Not me but a very close friend that was working with me at the time.
-
-His shift started at 11pm, mine started at Midnight, and we were both given transportation from door to door, meaning, pick up at your house, drop off at the very office, every day.
-
-My friend was picked up on time and brought to the office as usual, 15min before his shift started. He was fired on the very spot, for some errors he had made, that in my opinion shouldnt be grounds to fire him but for a warning and coaching, but whatever, they were clauses in our original hiring contract, so, it wasnt appealed. Now comes the bad part.
-
-In my country, the last buses run at 11PM for most areas, and even earlier in some others, and he lived two cities away, and while firing him, they also revoked his access to the building and the business center where the building was located, and was escorted out, with no way to get home.
-
-And of course they wouldnt provide transportation, as he was no longer an employee, and neither could he wait outside for the buses or even his scheduled morning transport, since by firing him, the system automatically removed him from the travel routes.
-
-Couldnt they fire him at the end of his shift, or at least call him and let him know so he would have got to work on his bike? Or at least, not showed up to work that day and come in the next morning, when there are transportation options and then do the paperwork. It was awful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I know someone who went to his company mailbox and found a paycheck. It was stamped TERM CHECK. He went to his manager and asked about it. She said Oh. About that. You were fired...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ex Public Accountant Here - In 09 one of the firms in my city laid off about 30 percent of its staff without warning a week after busy season (IE these poor accountants just worked 80-100 hour weeks with no days off for the last 2-3 months for an annual 50k salary).
-
-I would have literally taken off my bosses high heel and tried to stab her in the jugular, Happy Gilmore style, if she would have pulled that s**t on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Told my boss I had a 2 week mandatory training block coming up with my reserves unit. Got told theres no way Im not working during that 2 weeks. Told him its not like I have a choice. Got fired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Its a long story, but I was early in my career. I wasnt fired for a good reason and I hadnt really stood up for myself yet. I just took abuse from management and did the best I could
-
-It was my GMs birthday, and we all had to pick names out of a hat, and we had to buy them a cake etc for their birthday. Well I had the GM, who wanted to do his birthday in the morning with bagels.
-
-So I picked up 30+ bagels, cream cheese, giant thing of coffee, and we had this stupid bagel birthday thing or whatever
-
-Half hour later I get back to my desk, Im called to HR and I was fired. Oh and thanks for the bagels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. This one resonates to me as I was let go three weeks ago. So story time:
-
-I was hired at a company back in October by a woman whom I consider the ebst boss I ever had. Awesome person, kick as marketer, we are still friends to this day. Anyway, at the end of December before we go on a New Year Break, she tells us she is leaving for a much better company. I dont blame her, the company is awesome.
-
-Now when we get back, I instantly inherit all of her work and basically become a Director of Marketing without the title. I proceed to bust my a*s to pick up all the new duties, make sure everything is attended to, and try to make a case for being the replacement. Well the VP goes ahead and does interviews, we meet with some candidates, ultimately they hire the one who was my last choice of the four. I didnt like her. She was just off...anyway, I take it in stride and just go back to doing my job well.
-
-For the next three weeks I proceed to continue doing all of the work I was doing before she arrived, and then some, while teaching her the business and how we did things. Well three weeks ago today I come into the office, go about my routine, and then get pulled into an office where I see HR. I instantly feel sick to my stomach. She then proceeds to terminate my position due to budget and I am let go. No severance, no real explanation, nothing.
-
-So basically I manned a department for nearly four months, trained the new Director, and was then laid off by her three weeks into her tenure. Oh, and I found out she quickly replaced me with a friend she had worked with at four other companies. Needless to say it sucked and I was livid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My mom worked for a small medical practice that was fast on its way to bankruptcy. Her boss gave her a promotion without raise and over the course of the next year, made her fire her coworkers one by one. She came to realize the reason she was promoted was so her boss could make her do the firing while he avoided everyone. Her coworkers saw what was happening, but still drifted away from their friendships with my mom as they saw her as an accomplice with the boss. The stress of firing her peers and feeling completely isolated at work was really eating away at my mom right up until the day her boss fired her, too.
-
-
-Im sure theres worse ways to get canned, but my mom is a sweet woman who hadnt yet learned to speak up for herself and Im disgusted at the lack of character and integrity her boss had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Friend of mine helped secure a BIG contract for the company he was working for. An incentive for getting contracts is you get a percentage of the profit. He *Just* started working there about 2 months prior and went out own his own several states away to talk to a potential customer from a lead he got at a convention (Basically, Oh yeah I have a buddy whos looking into that. You should meet him) in person out of his own pocket. He secured the deal, called his supervisor to tell him, was congratulated, then drove 12 hours back home. His payout would have come out to around $40,000 over 5 years Went into work the next day and was fired for suspicion of theft and the boss of the division (not the supervisor, that guy is lower) would be taking over all his current stuff. He lawyerd up immediately but since he was still on his probationary period and they could fire him without cause nothing but the finders fee (around $3000) was to be paid to him. Basically his boss tossed him to get some free money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Once when I worked in an office, they told us that we had to visit corporate for a presentation about sexual harassment in the office. We were broken in to groups to go on different days. Monday - Thursday, the groups got a video on harassment. The Friday group got fired en mass. The whole thing was a set up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I was in a wreck on New Years Day of 2009. A drunk driver hit me, injuring my leg up really badly. The driver didnt have insurance, their tags were fake, and their license was suspended at the time of the accident, so I was f****d. I couldnt walk and my job was being a soda merchandiser, so I was on my feet all day long. After reporting this to my employer, they told me to concentrate on getting well and to report back to management after seeing the doctor after a week or two of rehab.
-
-My doctor stated I may have to have surgery and wanted to run some tests, so I called my boss after an appointment. While I was being rolled out of the waiting room in a wheelchair, my boss fired me over the phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I got notice while on holiday. The day before I was supposed to fly back.
-
-I ended up just not getting the plane back and living in holiday city with a new job </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I was a teacher at a Christian private school in Jakarta for about a year before I was removed.
-
-Going into the job I fibbed a bit saying that I was a practicing Christian as the pay was pretty solid and had a buddy working there who did the same. Anyhow, the year goes by relatively smoothly aside from constant headbutting with the head of English, Jimmy.
-
-I was teaching grades 10 and 11 IGCSE and AS English Language, and after the initial transition phase, my students really took a liking to my teaching methodologies. Mr. Jimmy was a very strict, by-the-book, examinations every two weeks type of teacher, and I wasnt. I went in and figured for the kids to do well, they first needed to enjoy it, and so I spent the good part of my first few weeks getting the kids interested in various readings, neat ways of looking at writing etc. Anyhow, this didnt sit well with Mr. Jimmy, and so we would have constant debates in staff meetings over the way I was teaching my courses. He was the head of English, I was new, I get it. But my kids were eating it up, and they were doing better than ever!
-
-Anyhow, between our clashes, and my lack of enthusiasm for going to chapel every Friday afternoon, my time at the school came to a head towards the end of the school year.
-
-As the grade 10s missed chapel one Friday to sit a test, Mr. Jimmy decided that he would give his own to the grade 10s. So one Wednesday morning, myself and the other grade 10 homeroom teacher took our classes to Jimmys sermon, and boy oh boy was it something.
-
-Now, just to give you an idea of Jimmy, this dude is an ultra-conservative Christian from the sticks of West Virginia. Heavyset, short, and slow-speaking with a thick drawl. He constantly reminded students that humans couldnt have evolved from monkeys. Im not much for Abrahamic religion, but its never really bothered me either, and I find its more the wingnut members of the religion that tarnish the name--and Jimmy was definitely one of these.
-
-Anyhow, we get to the little session and Jimmy says that this session would be about defending you faith, which didnt bode well. He started the shindig by talking about being assaulted, insulted and mocked by all of the Muslims running around Indonesia hating Christians. Oh boy.
-
-I had been in Jakarta for two years by that time, and despite the recent unfortunate elections in the city, its a very moderate place (and country in general). Not once had I heard anyone mock any religion, nor do you see people proselytizing or pushing their faith on others. Sorry, I take that back, everywhere except this Christian school.
-
-Anyhow, I kind of reach my boiling point (Im against religions of any kind being in schools) and raise my hand, and ask, Mr. Jimmy, dont you think that we should just do what Jesus did, and turn the other cheek?
-
-He looks in my direction, keen to my discontent, and responds that No, we need to give our children of god ammunition with which to fight the people that insult our religion. I mean, thats pretty heavy stuff for 15-year-olds.
-
-After my question, a few other students who had talked to me in private about their lack of faith, questioning of faith, atheism etc began to raise their hands. Jimmy goes nuts. He starts rattling off bible passages, shouting, telling the students that it was no place for questioning (it is a school isnt it?) and generally throwing a temper tantrum.
-
-I had had enough. I got up quietly, and left the room.
-
-Two weeks later while my grade 11 students were sitting their AS exams, and whilst I was invigilating, I was asked by the vice principle to head downstairs to meet the head of the school.
-
-I was told that I didnt present a uniform front for the school, called into question my own religiosity, caused students to begin questioning religion, and undermined my senior.
-
-I presented my case, explained that had Jimmy heard this same sermon, but in an Islamic school, hed likely label them terrorists as the subject matter was just too extreme. They didnt hear me out, and gave me two options: 1. Resign with a payout for the rest of my contract (about 2 months) 2. Or be fired and get nothing.
-
-Realizing that it wasnt worth the time and effort, I resigned.
-
-A few days later all of the teachers and students wore purple ribbons to school as a show of solidarity for me, parents called the school upset, the head of the school ended up resigning and moving countries. Later, I also found out that 90% of my students ended up with A* and A marks--the rest earned Bs, and they were the highest ranked classes in the past few years at that school.
-
-I still keep in contact with some of my students from the school, and life only got better after leaving, so, whilst it makes a fun story, it only impacted my life for the better!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. We were having a departmental meeting, and the head of engineering, Myron, was giving a speech about how all of our customers are happy - and how all of his ideas are f*****g awesome. Both of these were very false, so he was either lying or is disillusion.
-
-Next his boss is giving her presentation, and the little email message popped up at the bottom corner of the screen saying You need to fire Myron . Myron was soon fired... and good riddance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. My first job ever was for Baskin Robbins when I was 15. I went in for my first day of training excited to finally be making pocket money!
-
-
-The owner made me try to memorize the ice cream flavours in the first 30 seconds of being there. When I was unable to recite them perfectly in their order he did this big hand motion and screamed training over!
-
-
-I laugh now but man that was crushing for a nervous teenager.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I worked at a place that was sold to investors, they brought in a hotshot CEO to bump up the numbers, then sold to our major competitor. During the transition, about 20 people were let go in one day. The head of HR (M) and the other HR employee (F) spent all day at it. It wasnt easy, since a lot of the employees had been there since the early days, 15+ years. There were tears, some shouting, the awkward Hey Imma just stand here casually while I make sure you dont get weird while you clean out your desk also Im so sorry this is happening thing... After a whole day of that, the head of HR turns to the other HR employee and tells her, Oh BTW were gonna have to let you go too.
-
-You may ask, how did I know there were tears, shouting, etc.? Because that skeezy b******e head of HR shared all the gory details with my coworker the next day, in our open office workspace. She didnt ask, but he needed to tell someone. To this day I get mad thinking about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Headed out with family to celebrate at a Christmas Eve service, phone dinged because I inadvertently got copied on an email from my boss to an office assistant, directing her to draft up a letter terminating me for cause, starting with the unsatisfactory job I did painting the entire new office on my own time when I started the job as an associate attorney one year prior. I immediately called him to ask WTF?, He responded that he couldnt talk because he was in a church service with his family.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My buddy moved across the country for a job. At the end of his second week he was informed they were going to let him go as part of a large reduction in force. He had moved all of his stuff and signed a year lease of an apartment. When he complained that this really screwed him over and the company had to know this was coming well before he started and should have just told him to not come his now former boss patted him on the back, chuckled, and told him something like lifes not fair.
-
-My buddy ended up getting the last laugh. His dads best friend was an attorney with all the right connections in that state. His old company settled with him when they were served with a lawsuit, claiming something like fraud and deception. He ended up settling for something that was over double his yearly salary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. On night shift a coworker comes in and tries to log into the computer system. It doesnt work. Shes locked out of everything. Shed also had trouble clocking in. The night shift supervisor is off that night. This lady starts freaking out and crying. She says she knew they were looking for a reason to fire her. When were they planning on telling her? What is she suppose to do now? Despite multiple people reassuring her that if they were going to fire her, this is not the way they would do it and suggesting there might just be a mistake, she is still determined that shes been fired and they forgot to tell her before they cut her access. She goes home and doesnt come in the next night either. She wont answer calls, and is out for the rest of the next week.
-
-Turns out they hadnt fired her, but they had been looking for a reason to fire her. Not calling and not showing up for work was enough of a reason, so then she really was fired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. I found out today when I got an email from a client stating.   was suppossed to be here today and wont answer his phone. I make a couple calls only to find out EmployeeX was asked to resign and nobody bothered to inform his accounts. I flew out of state to smooth things over (Im in the hotel lobby right now, as this happened today).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Summoned 17 people (~20% of the entire workforce) to the operations managers office 8 am Friday. The day before the Company Christmas party, where bonuses are handed out. Usually to the tune of $2k each.
-
-Two weeks before Christmas, no job, no bonus, needing to cancel a date night with their SOs. Morale wasnt too good.
-
-Two months later another wave of firings occurred, one of the guys was partying in LA the night before and called in sick. They forced his supervisor to call him repeatedly at home, telling him it was mandatory he showed up. He lived 35-40 minutes away. HR was waiting in the parking lot. Parked, they handed him a packet and check, turned around and drove 40 minutes back home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. I made the horrifically naive mistake of telling a co-worker (I thought was a decent person) I was putting out feelers after the clinic I was on probationary period at extended my probationary period for a third time instead of hiring me on. The very next day I was called into the administrators office and was ordered to explain why I would be so disloyal. I explained that I had become concerned when they extended my probationary period for a third time and I was only putting out feelers. The administrator claimed that they had invested a lot of time and money into me and that I had nothing to worry about - I wasnt going anywhere.
-
-So, the next day when I was scheduled to have my weekly meeting with the very same administrator I was feeling quite relaxed and confident. I sat casually in the office and smiled at her when she came in looking all tense. She then proceeded to tell me that I was being let go. When I asked Why? You said I had nothing to worry about yesterday. She just sighed and said You just dont seem confident that youre going to get the job. There was a brief moment of me silence and I said You mean youre firing me because I dont seem confident youre not going to fire me?
-
-Thats when she got flustered - like visible upset, smacked her hands on the table and said while shuffling papers nervously You know this is a Right To Work State, right?
-
-Yes?
-
-That means I dont have to give you a reason, they are just letting you go. Then she offered to call security because I guess she thought I was going to be as upset about losing that s**tastic job as she was about having to fire me in such a s****y way. I assured her that security was unnecessary and that I would leave quietly. It was embarrassing, bewildering, and obviously quite unethical, but thats living in a Right To Work State for ya, o and working in a hospital.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. The police escorted a teacher out of the classroom while he was teaching.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182841.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">24 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky8" id="linky7">24 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181541.jpg" style="width:100%"><br>
 
@@ -563,131 +376,37 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181564.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">The Most Relatable Tweets of the Week  </a><br>
+## <a href="#linky9" id="linky8">14 Small Details Hidden in Disney Movies </a><br>
 
-<span style="font-size:4em">1. *Cough* *Cough* We were there too, dont forget about us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180844.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. In the scene where the animals seem to go crazy, while the dentist is attending to his niece Darla, the child in the waiting room frightened by the commotion and screaming is holding a Mr. Incredible comic book, the protagonist of Pixar’s next movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181129.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. LMAO. This and the lack of people in the strip club show the coming recession is already here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180845.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. In 2009, the production company released the film Up and it was a great success. But in the scene where the house flies through the window of a little girl’s room, you can also see Lotso the bear next to her bed. He’d later turn out to be the new antagonist of the third installment of Toy Story 3. Similarly, in the house of the witch in Brave, released in 2012, you can see Sulley in a wood carving. He’s the protagonist of Monsters University, which was released the following year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181130.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Youll like what you get. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180846.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In Toy Story 2, we discover that Woody is a very old collector’s doll, coveted by many fans. That shows that it had to have been acquired long before the other toys Andy plays with. In fact, the creators of the saga have made it clear that before being owned by Andy Jr., the intrepid cowboy belonged to Andy Sr.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181131.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180847.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In case you hadn’t noticed, the famous Pizza Planet delivery van appears in almost every film that was released after Toy Story. The picture above proves it, take a look: 1. its first appearance in Toy Story, 2. Brave, 3. Monster University, 4. WALL-E, 5. Bugs, and 6. Finding Nemo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. What the hell is going on here? I feel like I need to read a Spark Notes on whatever strange new cycle inspired this tweet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180848.png" style="width:100%"><br>
+<span style="font-size:4em">5. Many people may have wondered how Prince Eric could have mistaken Ariel for the human version of Ursula when the differences between the two of them are so striking. One has red hair and blue eyes and the other is a brunette with darker eyes. This is because the only image he has of her came from when he saw her on the beach. But then the sun was shining right on him and he was just waking up from an unconscious state. Take a look at the image above and you’ll understand everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Okay Aaron, whatever you say, DUDE. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180849.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. It is not a secret, nor is it hidden that on Pocahontas’ right arm there is a tattoo. It is a peculiarity since this small detail makes her the only tattooed princess in Disney history. This is inspired by a true story, that of the daughter of the chief of the Powhatan tribe, for whom tattoos were commonplace for both men and women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. What is Gomez game and do you have it? take this quiz to find out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180850.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Pixar will never miss an opportunity to remind us in very subtle ways what other films they have available or will be releasing soon. In Zootopia, for instance, you can see versions of their other movies, some released and some not. However, they’re all adapted to the animal world, so you see a pig for Big Hero 6, a horse for Tangled, a rhine for Wreck-it Ralph, and so on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. What are you guys wearing for CW 2? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180852.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. If you take a closer look at the almanac in which Mike Wazowski is counting down the days for the final exam, you’ll see that the shade of red between the “x’s” is not the same. The older, dry “x’s” have a dark red color that clearly differentiates them from the fresh, intense red of the new ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180853.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. No stone is left unturned in Pixar’s movies. The proof of it is that animators added to this character even a small detail that lots of cooks and chefs have. It is very common for them to have small burns on their forearms. They get them accidentally when putting food on the grills or ovens or when taking it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181132.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180854.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This movie has something in common with Brother Bear. They were made at Disney Studios Orlando before it was totally transformed into a theme park. In fact, Mulan was the first and was released just before Lilo and Stitch. On the wall of Lilo’s room, a poster of her predecessor can be seen hanging.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180855.png" style="width:100%"><br>
+<span style="font-size:4em">11. Within the imaginary worlds that animators create for their stories, there are certain places that are inspired by real life. Landscapes, castles, panoramic views of cities, or in this case, a train station. When the characters of Wreck-It Ralph want to leave their games, they travel through the electrical connection until they reach Central Station, from where they can go to all the games in the room. This fictional station was inspired by the actual, extremely busy Grand Central Station in New York.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180856.png" style="width:100%"><br>
+<span style="font-size:4em">12. Mothers seem to have twenty eyes, they see everything, even before it happens, and Helen Parr, the mother of the Incredible family, could not fail to have this maternal and natural gift. In the scene in the image, in which she falls from a plane into the sea with two of her children, she seems to guess that something is going to fall on them and she pushes her little ones out of the way. Watching the scene shot by shot or in slow motion, you can see how in a split second, she sees the reflection of the falling object in the water and pushes her children away. As we said, a mother doesn’t miss a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180857.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In Toy Story 3, Buzz suffers a malfunction and starts acting strangely. While his friend Woody tries to get him back to normal, he exposes his batteries, which are none other than the Buy n Large brand. This large chain, in the movie WALL-E, was the manufacturer of both the main robot in charge of cleaning the planet of pollution and the space cruisers that house humans in space.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180858.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. After so many years including Easter Eggs everywhere, many fans began to develop theories about a possible connection between all of them. The idea is that there could be a Disney multiverse in which all the stories are developed in parallel. It’d be something similar was what Marvel created for its MCU (Marvel Cinematic Universe). Finally, through an official video on the Toy Story social media accounts, Pixar confirmed that these theories are not so far-fetched after all and that there is a certain connection between all of these stories.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180860.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180861.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180866.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180870.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180874.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">30 Catastrophic Construction Fails</a><br>
-
-<span style="font-size:4em">1. I Picked The Ladder Up Forgetting The Paint Was On Top</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Thats Not Going To Hold Without A Stud, My SO Said. Dont Worry, I Replied. Ive Got Half Inch Toggle Bolts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Landlords, Please Don’t Paint Over Cockroaches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. A Driveway Crew Was Pouring Concrete At A New House Next To A Duck Pond. They Went To Lunch And Came Back To This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Wife Said Measure The Door, I Told Her All Doors Are The Same Size</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Fixing A Toilet Leak. I Took 2 Trips To Home Depot, Worked With A Hernia, Had A Hard Time Putting The Wax Ring And Screws On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. We Just Moved Into A Brand New House, Painters Came By To Touch Up Some Walls Upstairs. This Poor Guy Fell Down The Whole Staircase With A Full 5 Gallon Bucket Of Paint</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My Dad Isnt So Great At Remodeling, So I Turned His Work Into A Work Of Art</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Ive Heard Of Painting Yourself Into A Corner But My Wife Took It A Step Further. I Dont Even Know</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My Father Forgot To Tell Me The Renovations Would Be Taking The Stairs Out Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. DIY Fail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. What Could Go Wrong If My Neighbor Uses The Longest Possible Drill Out There?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My Landlord: Is It Ok If The Replacement Tile Is Not An Exact Match? Me: Yeah That’s Fine. The Tile:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A Couple Years Ago, My Neighbor Decided To Paint His House Bright Orange... Then Gave Up Halfway Through</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My Moms Garage Is Being Renovated. I Think Its Pretty Obvious That They Have 3 Dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. A Friend Is Renovating His House. He Also Has A Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. A Lovely Paint Job</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Could Be Worse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. How These Pipes Were Installed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Im Doing Renovations And My Roomba Found A Tiny Piece Of Sheetrock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Brother-In-Law Repairing His Awning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. We Just Finished The Construction Of Our Yurt. The Fireplace Was Not Correctly Installed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. What Happens When Youre Renovating And Remove A Load-Bearing Wall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just One Spot Left To Paint Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Neat Fan Installation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Saw This On Facebook With Someone Asking For A Contractor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. GF And I Have Covid. Heater Went Out, Technician Cant Come Out Due To Quarantine. Decided To Try And Fix It Myself. Tripped Over A Pipe And Fell Through The Ceiling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This Is Why You Dont Hire Contractors Who Secure Cabinets To Dry Wall Only. Thousands In Damage Last Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Lockdown Renovations Look So Easy On Instagram</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I Mean, You Couldve Rotated The Toilet, But Whatever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181744.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">25 Facts You Didn’t Know About Stan Lee</a><br>
+## <a href="#linky10" id="linky9">25 Facts You Didn’t Know About Stan Lee</a><br>
 
 <span style="font-size:4em">1. Stan Lee had a younger brother, Larry, who co-created Thor, Iron Man, and Ant-Man. Larry Lieber is currently 90 years old and only retired from pencilling comics in 2018.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180463.jpg" style="width:100%"><br>
 
@@ -739,119 +458,83 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <span style="font-size:4em">25. Stan Lee based the characters of Professor X and Magneto on Martin Luther King, Jr. and Malcolm X, respectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180487.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">27 Surprisingly Helpful Life Hacks</a><br>
+## <a href="#linky11" id="linky10">35 Wholesome Posts to Spread Good Vibes Today</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180391.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180379.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012858/87182988/92svxwv9bf091.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180372.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182982.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180373.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012917/87182990/3lme5rpxw3391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180374.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012910/87182989/aazu14b524391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180375.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013047/87183007/p9EESyENLpKWnNY2URRPJiBIC2CLrBG3aa2ueg5CIco.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180377.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013121/87183013/x9i8btdg0t191.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180378.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180376.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180380.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180381.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180382.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180383.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012846/87182987/3jtrzuuiun291.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180384.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012917/87182991/7vwkbcmp4vz81.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180385.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012921/87182992/bgzblcxgci091.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180386.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012928/87182993/bmueciq2x5391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180387.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012932/87182994/c9m20t1rg6391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180388.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012939/87182995/bu01sqylfix81.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180389.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012943/87182996/dm8hazzvnu291.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180390.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012951/87182997/d9c1hsrpa7391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180392.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/012954/87182998/GjLemyWF9gFkBkxkip-mtQihEECucALstjr0V2GklQY.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180393.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013003/87182999/l1vg1qpmh2091.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180394.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013005/87183000/kpu85n6oy6391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180395.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013014/87183001/lhwk1dzrdqz81.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180396.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013016/87183002/MMM-bXxR-HZvtAReuHGc18eAyPg2lGyOD9mOY-OD3Sw.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180397.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013025/87183003/mr9n88zs2b191.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180398.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013027/87183004/n5t3d4ztj3391.jpeg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Statistics That You Have to See To Believe</a><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013036/87183005/nyjhzp1drz291.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. That belly button bacteria study was wild. 60 belly buttons sampled. 2,368 different species of bacteria found. The study indicated that 1458 of them may be new to science. One had a rare bacteria found in Japanese soil and they had never been to Japan. Two had rare bacteria that thrived on ice caps and thermal vents. Not a single bacteria was common to all buttons. -u/Adventurous_Light_85
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180522.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013038/87183006/odmb8zu353091.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. 2/3 of the Australian population will develop skin cancer at some point of their lives. -u/monsem12</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180523.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013051/87183008/plz60u5ne7391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. We collectively receive about 2.4 Billion robocalls per month. -u/kaido4195</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180524.jpeg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013058/87183009/pXcjLMqMEucQ8-EFhX5ZL8bZHGvnxMREOjNAwId1ZkY.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. When tested by another agency, TSA failed to detect weapons, bombs, and other destructive materials 95% of the time. -u/BlueCandyBars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180525.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013102/87183010/qbvpavfhr8y81.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The risk of a heart attack is about 20% greater on Mondays for adult men, and 15% greater for adult women. -u/ETphonehoooome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180526.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013109/87183011/qym6lonpd4391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Used to work as a meteorologist. More people die from flooding each year than from every other natural disaster added together. A good portion, at least, are people who think their cars can make it through the water when they obviously cannot. -u/cbandy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180527.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013114/87183012/reszamoyh8091.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Since the mid-1970s, the worlds population has doubled. -u/Reyesdesd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180532.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013125/87183014/w42xhhj1xjy81.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Less than 10% of Americans do not wear seatbelts and account for 51% of car-related fatalities.
-Wear your seatbelt. Ignore your friend who told you My buddys cousin wouldve died if he was wearing his seatbelt! -u/Kraagenskul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180528.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013132/87183015/yriht79ki2391.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. 20% of the mammal species on our planet are different types of bats. There are about 5000 species of mammals, and about 1000 of them are varieties of our little winged buddies. -u/peon2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180529.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/013136/87183016/z7ny9xm00wx81.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. In 2020, overdose with a synthetic opioid (primarily fentanyl) became the LEADING cause of death in all Americans ages 18 to 45. Motor vehicle accidents were the former leading cause for this age group. -u/nervemiester</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The average age of retirement in the US is 62. 53% of retirements arent voluntary. -u/probabletrump</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Dragonflies have a 95% hunt success rate. Making them the most effective hunters in the world. -u/JESquirrel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Innocent people will admit to a crime they never committed 43% of the time. -u/ETphonehoooome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Sharks have existed for longer than the rings of Saturn (450 million years vs. Around 100 million). -u/Kriss0612</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. WWII claimed the lives of 3% of the worlds population in 1939. -u/kristinawtopete</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The average drunk driver drives under the influence more than 80 times before they get caught. -u/Barcelona10CG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. That 49.6% of Pakistanis marry a first cousin and 8.3% marry a second cousin. In rural areas of Pakistan, up to 80% of people marry a cousin. -u/Pleasant_Moose_5417</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. National Geographic found in 2018 that only 9% of all plastic worldwide gets recycled. A study in the US by the Environmental Protection Agency found only 8.4% of US waste was recycled. Biffa Waste Services Ltd was caught sending over 1,000 tonnes of private home waste to India labelled as paper so you pay less per container, for profit. Basically, recycling is a depressing joke. -u/Dynasty2201</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Prostate cancer affects 80 percent of 80-year-old men at some point in their lives.
-Eighty. Percent. -u/vaughnged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Of the 30 fastest 100-meter sprint times, 21 were run by athletes who tested positive for performance-enhancing drugs. The other 9 were Usain Bolt. -u/Davecasa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. 48% of British people wouldn’t go to space even if their safety was guaranteed with the most popular reason being that they just simply didn’t have any interest in going. -u/Molesandmangoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The human eye blinks about 4.2 million times a year on average. -u/selfishnerd77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Wayne Gretzky and his brother hold the record for most points by a brother pair in NHL history. His brother has four points. -u/godofhorizons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A full 6 percent of Americans reckon they could beat a grizzly bear in unarmed combat. -u/hellothere42069</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. 2%, 20%. Motorcycles are 2% of all vehicles [USA]. Motorcycles account for 20% of all road fatalities. I dont ride anymore. -u/kawcreek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180546.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">An Extra Large Serving of Random Pics to Enjoy</a><br>
+## <a href="#linky12" id="linky11">An Extra Large Serving of Random Pics to Enjoy</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87181759.jpg" style="width:100%"><br>
 
@@ -963,174 +646,403 @@ Eighty. Percent. -u/vaughnged</span><br><img src="https://cdn.ebaumsworld.com/me
 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/112410/87182065/87181442.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">29 Embarrassing Moments That Haunted People Forever</a><br>
+## <a href="#linky13" id="linky12">Cruise Through the Day with a Big Batch of Cool Random Pics</a><br>
 
-<span style="font-size:4em">1. A friend of mine once hooked up with a guy she matched with on Tinder. She was in a different city for a family reunion, and hooked up with him two nights in a row, since she decided to stay there a couple of days before the event to check out the sights.
-
-You guessed it. Come the day of the family reunion, and guess whos there? The Tinder-guy, who she quickly learns is her cousin on her fathers side. She had never met him before. They both kept their cool for most of the event, but then his brother got too drunk and started gossiping to people (Tinder-dude had confided in him). The whole thing ended up with her and her parents leaving early, her mother in tears.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181707.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. We were doing a math final in junior year of high school. They made a huge deal of saying everyone should use the restroom etc, saying youd fail if you got out of your seat before your test was done.
-
-About halfway through the exam a girl two seats ahead, and one to the left, starts peeing relentlessly. She didn’t stop taking the exam, look at anyone or try and leave. She released easily 20 oz of fluid. Urine was spilling out of the chair like a faucet for probably 15-20 seconds.
-
-Everyone’s looking at her, the teacher visibly mouths “what the F**K”. No one knows what to do.
-
-This poor girl just finished her exam, probably another 20 minutes’ worth, and left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181683.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I was a sophomore in HS (so around 16) taking the last leg of my countys sex ed class. It was a co-ed day, so our full gym class of about 30 kids was in the room. Topic was STDs. The teacher mentioned oral sex a few times and I guess which diseases can be spread through it. One guy who was always pretty quiet and shy raised his hand and said I just dont really understand how you can get an STD from talking about sex...
-
-It took everyone, including the teacher, a few seconds to understand, but some quiet laughter came from a few students. the teacher then of course had to explain as simply as she could that oral sex did not in fact mean talking about sex (I think the stupid bylaws of the program in our county didnt allow her to fully disclose what it was).
-
-Anyway, we thought he was joking but as he heard the laughter from everyone after getting this explained to him, he slowly put his head down and covered his face for the next few minutes. Poor guy. I felt bad, but it was hard not to laugh. At least no one directly gave him s**t for it afterward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181684.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I saw my neighbor get a pizza delivery from two pizza guys (one must have been training) and he must have tried to say have a great night and thanks guys at the same time and ended up saying have a great gays! and the two guys just stopped and looked and my neighbor just shut his door and that neighbor was actually me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181685.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Alright, so my husband and I were driving around the city and it was pouring outside. Absolutely pouring. We were about to pass the lightrail train tracks (going in both directions) when the crossing gates came down because the lightrail was approaching.
-
-One idiot in a van decided he could make it across before the gates came all the way down. He kept on driving, but he did not make it. Instead, his vehicle was now trapped between the gates.
-
-We could see from our car that this person was PANICKING. His life was flashing before his eyes. In his movie mind, the lightrail was about to crash into the van and drag it for dozens of yards before finally stopping... so he did what anyone would do. He violently pushed the door open and RAN in the pouring rain for his life.
-
-He was halfway down the street before he stopped, turned around, and noticed that the lightrail was patiently waiting for him to move the vehicle. The door was still open. My husband and I just about pissed ourselves laughing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181686.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I was watching a symphony orchestra concert at the Sydney Opera House one evening. The concert hall foyer has these huge glass windows beneath the sails that overlook the harbourside. The sun hadnt quite set yet, and every audience member that was exiting the hall could see this incredibly drunk middle aged couple having sex on a bench outside the hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181687.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A guy making a cringey tap song as a proposal in a public restaurant and getting on one knee only for the girl to go quiet and look around and say “Justin, no! Wtf seriously?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181688.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I used to work in nightclubs. I once witnessed a girl leaning against a wall, casually flirting with a guy and as she laughed she actually s**t herself. She was wearing a white dress and there was no hiding what had happened. The smell actually cleared the whole level of the club. She ran out crying. We had to clean poo off the floor where she had been standing. I often wonder what she is doing now...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181689.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Middle school graduation dinner, one of the other students had asked ahead of time if they could sing. For whatever reason, I dont know. So, while the rest of us are sitting at our tables eating, she gets up in front of us all with a guitar and starts singing Blackbird by The Beatles.
-
-I dont think Id ever heard her sing before, I have no idea why she wanted to (she was always one of the smartest people in our grade and achieved a lot academically so I think maybe she thought that transferred over to musical talent).
-
-It was genuinely one of the worst things Id ever heard in my life. She could not sing even a little. Her voice shook on every word, it cracked, she was out of tune. Every person had to stare at their down at their food while trying not to laugh in her face. I remember sitting next to my best friend and we just kept glancing at each other like what the f**k is happening right now. Thinking of it now makes me laugh again, and I know that if I called up my friend right now and sang blackbird singing in the dead of night... that he would start to laugh too. It became a joke in our class.
-
-She finished Blackbird, and then decided to follow it up with American Pie, which thankfully a lot of us knew the words to, and the teachers walked around encouraging us to sing together (and drown her out).
-
-Part of me is like, well f**k it, she did it! She was brave! But I do wonder if she thought she was actually good or not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181690.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. During a liturgy at the cathedral, altar boys were kneeling attentively behind the Bishop as he presided at the altar - with the Deacon swinging the thurible (incense pot) in front.
-
-As the bishop raised the monstrance to bless the people, he let out an incredibly loud fart that resounded in the ample acoustics of the building and aimed directly at the altar boys.
-
-Everyone heard it - no mistaking the farts telltale sound.
-
-Thankfully, the Deacon came around with the thurible and immediately incensed the area where the boys were kneeling, while the assembly tried in vain to stifle their laughter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181691.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Oh god help me
-
-I’m gonna tell this story
-
-Me
-
-I was a younger gal and crushed HARD on another girl at the stable I rode at. She didn’t know it.
-
-Remember Tony Hawk for GameCube? Well around that time, in the game series you could create a skater. Design them, change body features, etc.
-
-I once spent a solid 30 minutes creating a great replica of her. I used to play as her and so forth.
-
-Flash forward to Christmas. This year was my family’s year to host the barn party. We had a great time.
-
-Then I’m chilling and I hear the other girls say “oh cool, Danielle (me) has a GameCube. We should play something.” I thought nothing of it…wait…oh no. S**T! I know what game and memory card are in the system!
-
-I walk into the room just as they are all staring at the choose a skater screen. Jennifer (my crush) is on the screen. I had her first and last name. She looked a lot like her.
-
-You know that meme picture where it’s a party? First person view? Like 40 girls holding cups, cringing and staring at the viewer?
-
-That’s what I walked into. I hid in my room until the part ended</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181692.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I used to work for a small coffee shop that had three locations. I had a ridiculously big crush on a woman who worked at one of the other locations. I thought she was so pretty that I literally couldn’t remember how to talk around her.
-
-For example, one time on my day off I stopped by her location to get a cold brew and she was working the register and was like “Hi Karl how’s it going?“ What I wanted to respond was “Oh pretty good but it’s been a long week” but all that came out was “…long”… Then I was so embarrassed I turned around and left without getting anything.
-
-Worse than that, later that summer there was a big employee BBQ at the nearby river. I finally got over my s**t and had a really good conversation with her, made her laugh, all that good stuff. A little later I had to pee and went to the port-a-potty only to walk in on her going to the bathroom…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181693.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When I was in undergrad I lived at this house with 2 of my closest friends, and worked at a local movie theater. Our house became THE party house. We literally raged 8 days a week. Girls always over, that kind of thing. Well, one night I got way too drunk, decided I would go to bed around 10pm, sleep it off kinda thing. I sleep naked. Get up around 1am to go pee and didnt think anyone was still over. I had to walk through the living room to get to the bathroom. When I walked to the bathroom I turned off the lights, no one around. Go pee, realize I had to puke, took care of that, and opened the door to hobble back to bed. About 30 people, mostly my friends and coworkers simultaneously scream, start laughing, clapping, everything. Im completely stunned and it took about 2 full, longest of my life, seconds to realize theyre all staring at me naked. My sister was there. The girl I liked was there. Everyone was there. I covered my bits and Ive never run into my room so far in my life. I think I actually died of embarrassment that night, because since then, I just dont get embarrassed. I didnt live that down for years.
-
-Oh, and the reason no one was in the living room. About 10 of them went outside to smoke, the rest were already outside or had just arrived after closing the theater. So they hadnt even sat down before I gave them all a proper show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181694.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Once when I was a toddler my family was at Walt Disney World and we were going to take a picture and I didnt want to and was throwing a fit and I was yanking on my moms pants and accidently pulled her pants down. The photographer said we couldnt get a refund or retake the photos so we have a family picture of my whole family with my mom standing there with her pants down around her ankles and one with her turned around pulling up her pants (she was wearing thong underwear). She thinks its funny now but at the time she was so embarrassed and mad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181695.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. This JUST happened last week and I was feeling sympathy embarrassment for my boss. Sorry, I think this is long...
-
-We had a VP visiting our office, Ill call her VP Betty. Shes a great role model and seems to be a very kind person. The same can be said about my boss, Ill call her Boss Amy.
-
-Boss Amy is in her office, I know she likes to listen to books while working and she has mentioned to me before that she likes romance novels. VP Betty walked in to the office to talk to Boss Amy... she grab her earbuds to take them out.
-
-The only thing I can guess is that she somehow disconnected them while the book was still playing LOUDLY and just happened to be very sexually graphic and intensely vulgar for a quiet office setting. Things were throbbing, dripping, pounding, etc. Boss Amy starts basically yelping oh no, no no no!! Stop! Whats happening, I wasnt listening to this!! OH OH MY GOSH!! WHY WONT IT STOP!?
-
-Shes mashing the screen, hitting the volume and power buttons, its still going. VP Betty has no idea what shes witnessing but is clearly upset and shouting at Boss Amy to turn it off.
-Boss Amy is frantically hitting the phone on her desk at this point, probably preferring to break the phone and buy a new one to end this nightmare.
-
-At this point it stops and Boss Amy huffs that shes so sorry, she didnt know what it was, how horrible and so on. AND THEN IT STARTED BACK UP AGAIN continuing with this very kinky NSFW story. Finally VP Betty just runs out and closes the office door for Boss Amy to get this under control.
-
-A few minutes later I peek my head in and Boss Amy is packing up to go home. She said shes had enough of today... but if it was me I would have left to go cry in my car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181696.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Was in a pool at a Euro beach resort. We’d been chatting with an old brit tourist, he got out of the pool and went to get changed poolside, using his towel to do the discrete swimming tog shuffle.
-
-Suddenly up steps an angry Frenchmam wanting HIS towel back...
-
-Turns out our poor retired gent had grabbed the wrong towel. There ensued a desperate tug-of-towel as a very stroppy Frenchman attempted to rip his towel from this poor old guy who was butt naked and frantically trying to save his modesty.
-
-The old guy’s grandson saved the day, with an emergency towel transfer, but not before the whole pool complex had seen way too much hairy old British grandpa s****e.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181697.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. When I worked at a deli my boss grabbed a womans stomach and congratulated her, she wasnt pregnant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181698.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. I was at a food court and I got the brilliant idea to jump over a row of those plastic chairs and tables.. You know, the ones that are fixed to the floor.
-
-Foot got caught and I fell flat on my face. I stood up to 30 people clapping. One guy yelled asking for my autograph.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181699.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Friend of mine who learnt how to do a burnout from just YouTube videos decided to do a burnout.
-He thought the smoke was the tires spinning on the spot, it was actually the clutch being burnt out. We tried telling him but he thought we were egging him on until someone ran up to the driver side and switched the car off at the ignition.
-Now this wouldnt have been too bad if he did this on a driveway or a side road to 3 or 4 people, but he entered himself into a amateur burnout contest and all this happened in front about about 200 people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181700.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. My chemistry teacher in high school was the nicest guy. He taught the whole class with his fly down. No one knew how to tell him and we didn’t want to embarrass him. The worst part was, we had lab with him the next period. His fly was up, but he was unusually quiet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181701.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Took my children and a cousin to a natural water park that was a river running thru a valley that had worn its way into this smooth rock bed,it wore like marbel.
-The water carried you along with natural slides and dips great fun
-
-To ride down the river you first had to walk up it which was precarious in many places.
-The kids Cousin (D) wasnt the most confident guy but Id been doing lots of work with him to fix that and we had done lots of swimming prior to this holiday to get him ready .
-
-I picked the safest route up and told the kids only step where I show you please.
-As D made his way I pointed step there, pointing directly at a spot ,do not go the other side
-
-D stepped the other side the water grabbed him snatched him off his feet and down.
-wiped his trunks off and they were gone, suddenly D is flying nude down this river
-atop the river on the hillside is a railed walking area ,there were 100s of people laughing and pointing down as this kid in the nip goes dashing by</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181702.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. I went to a small high school, so almost everyone knew everyone else. I know you read small high school, but I mean the entire 9-12th grade student body was about 85 people at the time.
-
-Two students, a guy and a girl, for some reason are talking mad s**t to each other for weeks. No one remembers how it started, no one even asks why these two are constantly yelling or fighting with each other. So one day, the conflict escalates into its obvious logical conclusion:
-
-a dance battle.
-
-It gets scheduled after both parties (and their respective groupies apparently) decide on a date and that itll happen during a lunch period, and how they want to do this wild thing.
-
-The whole school shows up. All 85 of us. Cue the girl, who brought out the biggest boom box and smallest piece of cardboard in history so she could do the worst version of break dancing the world has ever seen. Im talking attempted head spins that go a full 180 degrees, crawling and writhing on the ground and saying whatre you gonna do about it b***h?. Im fairly certain I recall her choice of song was Nellys Hot in here. Shes 100% serious which makes it even worse.
-
-The guy is completely unfazed. Hes looking at her with the hardest death stare Ive ever seen. Its worth mentioning at this point that this guy is essentially the class troll. He cannot stop f*****g with people to save his life. So he stops the music, puts in his cd into the player, and what pops out of the speakers?
-
-That f*****g traditional Hava Nagila song you hear at every bar mitzvah known to mankind, and he starts doing a Russian Cosack dance (I apologize if that entire sentence bothers anyone). His crew is losing it, the girls crew is laughing their a**es off, and the main girl is visibly pissed.
-
-Everyone agreed he won the dance battle.
-
-For anyone who wants any additional info: yes, 85 students for an entire high school is considered well below average for a school in California. This school was also mostly white, consisting of middle class kids from the suburbs. It was a college-prep charter school, and school uniforms were mandatory (think khakis and polo shirts / button ups with school logo embroidery). I hope that information makes the visuals even more hilarious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181703.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. In HS this really dorky kid challenged this drill sargent wannabe teacher we had, saying he could do 20 push ups easily. To put it simply, kid was not fit. He was very lanky and clearly had no muscle. I really don’t believe that before that day he had ever attempted a push up in his life. He drops to the ground with an insane amount of blind confidence and goes to do a push up. He gets halfway into the first push up, and his body makes this really loud multiple-joints-cracking sound. He struggled for another second and then i guess the strain caused him to pass gas very loudly, then fall flat on his face. He grunted and laid there for a second before getting off the floor.
-
-
-I was laughing so hard our teacher told me to leave the room. I had tears running down my face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181704.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Community college in Tampa, 2009. Spanish class. Shy goth girl walks to the front of the class and plugs in her USB drive to boot up her PPT and begin her presentation like the rest of us did. Except when she pluged it in, a file opened up and the most vile anime p**n started playing. Everyone was mortified for her. It took her maybe 3-4 seconds to turn it off but the moment felt like forever. She said, THIS IS MY BOYFRIENDS DRIVE! and ran out of the room crying. The teacher just moved on. The girl didnt show her face for a week. Just an absolutely insane moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181705.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. I watched a guy run across campus in sagging pants, the pants fall to his knees tripping him, he trips but manages to do a sort of half summersault which launches the pants almost completely off of him but he manages to pull them up at a light jog pace while glancing around to make sure he wasnt seen before continuing to run off. I was in my car that had tinted windows so his secret is safe-ish with me. It was honestly impressive that he managed to save it from being the much more embarrassing pants-around-ankles, face-in-the-mud, and brightly colored boxerbriefs-in-the-wind it could have been.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181706.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. I had a pretty old professor for immigration law and one night in class she let out a very loud fart. The class went silent and she made a comment about how that what aging gracefully was like. Everyone tried not to laugh because she was old and sweet, but she continued to let out loud long farts for the remainder of the 4 hour night class. I was mortified for her</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181708.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. There was this kid in my high school that was taking karate classes. He decided he wanted to fight a kid that was bullying him after school in the town park. A s**t ton of people went. He got all pumped up before the fight. Instantly, once the fight started, he began doing karate moves at the air. Once he reached the bully, the first thing he decided to do was a *very* flashy spinning backhand(?). He missed by a mile and was knocked out immediately. I felt really bad for him. He was always known for not being able to read situations very well and that, being his first normal fight, was just the absolute worst time to try that move out. Bullies suck. It was embarrassing for both of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181709.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. At a pep rally to celebrate a sporting victory, a student insisted that he carry the school flag and run laps around the team. He tripped and fell onto the newly displayed trophy, immediately breaking it. This was on the front page of Reddit for a bit and I’m glad I witnessed it as my school’s claim to fame.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181710.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. I was wearing sweatpants and got pantsed in front of an entire restaurant and my friend accidentally grabbed my sweatpants and briefs, so…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181711.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177841.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">27 Surprisingly Helpful Life Hacks</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180398.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">30 Catastrophic Construction Fails</a><br>
+
+<span style="font-size:4em">1. I Picked The Ladder Up Forgetting The Paint Was On Top</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Thats Not Going To Hold Without A Stud, My SO Said. Dont Worry, I Replied. Ive Got Half Inch Toggle Bolts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Landlords, Please Don’t Paint Over Cockroaches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. A Driveway Crew Was Pouring Concrete At A New House Next To A Duck Pond. They Went To Lunch And Came Back To This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My Wife Said Measure The Door, I Told Her All Doors Are The Same Size</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Fixing A Toilet Leak. I Took 2 Trips To Home Depot, Worked With A Hernia, Had A Hard Time Putting The Wax Ring And Screws On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. We Just Moved Into A Brand New House, Painters Came By To Touch Up Some Walls Upstairs. This Poor Guy Fell Down The Whole Staircase With A Full 5 Gallon Bucket Of Paint</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My Dad Isnt So Great At Remodeling, So I Turned His Work Into A Work Of Art</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Ive Heard Of Painting Yourself Into A Corner But My Wife Took It A Step Further. I Dont Even Know</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My Father Forgot To Tell Me The Renovations Would Be Taking The Stairs Out Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. DIY Fail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. What Could Go Wrong If My Neighbor Uses The Longest Possible Drill Out There?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My Landlord: Is It Ok If The Replacement Tile Is Not An Exact Match? Me: Yeah That’s Fine. The Tile:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A Couple Years Ago, My Neighbor Decided To Paint His House Bright Orange... Then Gave Up Halfway Through</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My Moms Garage Is Being Renovated. I Think Its Pretty Obvious That They Have 3 Dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A Friend Is Renovating His House. He Also Has A Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. A Lovely Paint Job</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Could Be Worse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. How These Pipes Were Installed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Im Doing Renovations And My Roomba Found A Tiny Piece Of Sheetrock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Brother-In-Law Repairing His Awning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. We Just Finished The Construction Of Our Yurt. The Fireplace Was Not Correctly Installed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. What Happens When Youre Renovating And Remove A Load-Bearing Wall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Just One Spot Left To Paint Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Neat Fan Installation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Saw This On Facebook With Someone Asking For A Contractor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. GF And I Have Covid. Heater Went Out, Technician Cant Come Out Due To Quarantine. Decided To Try And Fix It Myself. Tripped Over A Pipe And Fell Through The Ceiling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. This Is Why You Dont Hire Contractors Who Secure Cabinets To Dry Wall Only. Thousands In Damage Last Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Lockdown Renovations Look So Easy On Instagram</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I Mean, You Couldve Rotated The Toilet, But Whatever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181744.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">33 Pictures That Technically Tell the Truth</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033424/87181349/technicallythetruth1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033434/87181350/technicallythetruth3.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033445/87181351/technicallythetruth4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033455/87181352/technicallythetruth2.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033458/87181353/technicallythetruth5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033514/87181354/technicallythetruth6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033516/87181355/technicallythetruth7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033523/87181356/technicallythetruth8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033525/87181357/technicallythetruth9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033529/87181358/technicallythetruth10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033535/87181359/technicallythetruth11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033538/87181360/technicallythetruth12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033541/87181361/technicallythetruth13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033548/87181362/technicallythetruth14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033551/87181363/technicallythetruth15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033553/87181364/technicallythetruth16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033602/87181365/technicallythetruth17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033604/87181366/technicallythetruth18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033606/87181367/technicallythetruth19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033615/87181368/technicallythetruth20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033617/87181369/technicallythetruth21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033625/87181370/technicallythetruth22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033628/87181371/technicallythetruth23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033637/87181372/technicallythetruth24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033639/87181373/technicallythetruth25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033648/87181374/technicallythetruth26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033650/87181375/technicallythetruth27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033700/87181376/technicallythetruth28.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033701/87181377/technicallythetruth29.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033712/87181378/technicallythetruth30.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033722/87181379/technicallythetruth31.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033724/87181380/technicallythetruth32.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/01/033733/87181381/technicallythetruth33.png" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">Statistics That You Have to See To Believe</a><br>
+
+<span style="font-size:4em">1. That belly button bacteria study was wild. 60 belly buttons sampled. 2,368 different species of bacteria found. The study indicated that 1458 of them may be new to science. One had a rare bacteria found in Japanese soil and they had never been to Japan. Two had rare bacteria that thrived on ice caps and thermal vents. Not a single bacteria was common to all buttons. -u/Adventurous_Light_85
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. 2/3 of the Australian population will develop skin cancer at some point of their lives. -u/monsem12</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. We collectively receive about 2.4 Billion robocalls per month. -u/kaido4195</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180524.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. When tested by another agency, TSA failed to detect weapons, bombs, and other destructive materials 95% of the time. -u/BlueCandyBars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The risk of a heart attack is about 20% greater on Mondays for adult men, and 15% greater for adult women. -u/ETphonehoooome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Used to work as a meteorologist. More people die from flooding each year than from every other natural disaster added together. A good portion, at least, are people who think their cars can make it through the water when they obviously cannot. -u/cbandy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Since the mid-1970s, the worlds population has doubled. -u/Reyesdesd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Less than 10% of Americans do not wear seatbelts and account for 51% of car-related fatalities.
+Wear your seatbelt. Ignore your friend who told you My buddys cousin wouldve died if he was wearing his seatbelt! -u/Kraagenskul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. 20% of the mammal species on our planet are different types of bats. There are about 5000 species of mammals, and about 1000 of them are varieties of our little winged buddies. -u/peon2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In 2020, overdose with a synthetic opioid (primarily fentanyl) became the LEADING cause of death in all Americans ages 18 to 45. Motor vehicle accidents were the former leading cause for this age group. -u/nervemiester</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The average age of retirement in the US is 62. 53% of retirements arent voluntary. -u/probabletrump</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Dragonflies have a 95% hunt success rate. Making them the most effective hunters in the world. -u/JESquirrel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Innocent people will admit to a crime they never committed 43% of the time. -u/ETphonehoooome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Sharks have existed for longer than the rings of Saturn (450 million years vs. Around 100 million). -u/Kriss0612</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. WWII claimed the lives of 3% of the worlds population in 1939. -u/kristinawtopete</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The average drunk driver drives under the influence more than 80 times before they get caught. -u/Barcelona10CG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. That 49.6% of Pakistanis marry a first cousin and 8.3% marry a second cousin. In rural areas of Pakistan, up to 80% of people marry a cousin. -u/Pleasant_Moose_5417</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. National Geographic found in 2018 that only 9% of all plastic worldwide gets recycled. A study in the US by the Environmental Protection Agency found only 8.4% of US waste was recycled. Biffa Waste Services Ltd was caught sending over 1,000 tonnes of private home waste to India labelled as paper so you pay less per container, for profit. Basically, recycling is a depressing joke. -u/Dynasty2201</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Prostate cancer affects 80 percent of 80-year-old men at some point in their lives.
+Eighty. Percent. -u/vaughnged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Of the 30 fastest 100-meter sprint times, 21 were run by athletes who tested positive for performance-enhancing drugs. The other 9 were Usain Bolt. -u/Davecasa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. 48% of British people wouldn’t go to space even if their safety was guaranteed with the most popular reason being that they just simply didn’t have any interest in going. -u/Molesandmangoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The human eye blinks about 4.2 million times a year on average. -u/selfishnerd77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Wayne Gretzky and his brother hold the record for most points by a brother pair in NHL history. His brother has four points. -u/godofhorizons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A full 6 percent of Americans reckon they could beat a grizzly bear in unarmed combat. -u/hellothere42069</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. 2%, 20%. Motorcycles are 2% of all vehicles [USA]. Motorcycles account for 20% of all road fatalities. I dont ride anymore. -u/kawcreek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180546.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">The Most Relatable Tweets of the Week  </a><br>
+
+<span style="font-size:4em">1. *Cough* *Cough* We were there too, dont forget about us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180844.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. LMAO. This and the lack of people in the strip club show the coming recession is already here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Youll like what you get. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. What the hell is going on here? I feel like I need to read a Spark Notes on whatever strange new cycle inspired this tweet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180848.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Okay Aaron, whatever you say, DUDE. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180849.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. What is Gomez game and do you have it? take this quiz to find out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180850.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. What are you guys wearing for CW 2? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180853.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180855.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180856.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180860.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180861.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180866.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180870.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87180874.jpg" style="width:100%"><br>
 
