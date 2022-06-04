@@ -1,189 +1,166 @@
 # All ur Baums R belog to Uz<br>
-Last updated: 06/04/2022-15:11:31
+Last updated: 06/04/2022-16:11:31
 <br>
-## <a href="#linky2" id="linky1">27 Pics Packed to the Brim with NOPE</a><br>
+## <a href="#linky2" id="linky1">35 Most Sociopathic Ways People Were Fired</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010451/87183556/87179234.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I worked at a Chiropractic office once. One if the girls found out she was being fired when she was on Craigslist looking for other jobs and found her job posted for another X-ray technician. She came to work pissed and stripped off her scrubs in front everyone and walked out in her undies. My hero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183538.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. One capable IT employee was in the hospital due to an unexpected health emergency. They went to the hospital and fired him before his heart surgery. I s**t you not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183530.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I got fired because my boss f****d up and blamed it on me.
+
+I started my own business in the same field and made all key people leave my former employer and work for me instead. A year later they had to file for bankruptcy.
+
+Ah, the malicious delight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183520.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My dad told me once about a coworker getting fired on take your daughter to work day. It was before lunch too so they both had to be escorted out of the office carrying their brown paper lunch bags.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010432/87183553/87179218.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Was fired 3 days after my kid was born for missing time because I requested the weekend that my ex was in labour off, got the go ahead from my supervisor but I guess that never made it upstairs to the top boss because they got rid of me lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183527.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I worked in retail and our manager fired a guy after his 12 hour shift on Black Friday. Couldve spent the day after thanksgiving with his family, but instead, the manager made him work in case it was busy, then fired him at the end of his shift. It was a douche move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183517.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I had a friend who worked in an office doing office type s**t. One day, his boss croaked and he was was made interim boss. Anyways, he busted his a*s in order to try and keep his new position. A month later, he interviewed. A week later, his boss called him into the office and said.... *You know, we really wanted to hire you, I was rooting for you, but someone with more experience and qualifications got the job..... do you mind training him?*
+
+They asked him to train his replacement.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183518.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I posted this in an askreddit thread about a week ago, but it fits this thread perfectly:
+
+When I was in my early 20s, I was about 9 months into a job at a retail store and I had been working my a*s off for a chance to be part of a new department that the store was about to open. I aced my review and I got the promotion to the brand new department. It was going to be more challenging work, it came with a pretty hefty pay bump, I would have my own office, and the work would be impactful to the whole company.
+
+The promotion didnt kick in until the start of the next week. I was laid off that Friday. When they were asked to cut payroll, management literally selected the people who were making the most money. My name was listed next to the salary I hadnt yet received. Instead of admitting that they f****d up and keeping their best performing employee at that store, they doubled down and tried to hold my last paycheck ransom until I trained my replacement in the job that I hadnt even done yet.
+
+The store owner just happened to be around that day. Normally he was a very kind man and knew everyone by name. I tried to explain the ridiculous situation to him and he just told me to go home. In a rare moment of frustration, I said something to the effect of You know, b******t like this kills stores. He coldly replied Hastings will be around longer than you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183519.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Not quite fired yet, but today 3 of us publicly confronted our boss over proof of her committing fraud and embezzlement. The organization serves people with mental health conditions and we confronted her during a public meeting in front of those the organization serves.
+
+It was painful, we hated doing it, but the truth needed to come out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010439/87183554/87179224.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. i was fired from petsmart for reasons i can no longer remember. immediately after the manager delivered the news, she asked me if i would mind staying for two hours to wait until the evening shift relief arrived. unpaid, of course. i laughed in her face and left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183521.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Being the top dog of the FBI and finding out over CNN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183522.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Girl I knew was here on work visa. She had been working at a company for several years that treated her well but ended up moving and got a job at a new one. Her boss apparently used her as a scapegoat, set her up with impossible, b******t tasks (like planning the office Christmas party about a week beforehand), then fired her shortly before Christmas. That meant her work visa expired and she was going to be sent back to her home country. Apparently its the law that the employer in this case pay for the fired employees plane ride home, and her boss chose to fly her out on Christmas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183524.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I was working 20 ft up a ladder on the side of a house. I hear a BB gun fire and the pellet hit the wall a few feet beside me. After a couple more of these I turn around tell the fat kid standing in the yard if he does that s**t again he better be able to out run my hammer. Mom starts screaming about me threatening her kid. 15 minutes later Im unemployed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183525.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Not me but a very close friend that was working with me at the time.
+
+His shift started at 11pm, mine started at Midnight, and we were both given transportation from door to door, meaning, pick up at your house, drop off at the very office, every day.
+
+My friend was picked up on time and brought to the office as usual, 15min before his shift started. He was fired on the very spot, for some errors he had made, that in my opinion shouldnt be grounds to fire him but for a warning and coaching, but whatever, they were clauses in our original hiring contract, so, it wasnt appealed. Now comes the bad part.
+
+In my country, the last buses run at 11PM for most areas, and even earlier in some others, and he lived two cities away, and while firing him, they also revoked his access to the building and the business center where the building was located, and was escorted out, with no way to get home.
+
+And of course they wouldnt provide transportation, as he was no longer an employee, and neither could he wait outside for the buses or even his scheduled morning transport, since by firing him, the system automatically removed him from the travel routes.
+
+Couldnt they fire him at the end of his shift, or at least call him and let him know so he would have got to work on his bike? Or at least, not showed up to work that day and come in the next morning, when there are transportation options and then do the paperwork. It was awful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183528.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I know someone who went to his company mailbox and found a paycheck. It was stamped TERM CHECK. He went to his manager and asked about it. She said Oh. About that. You were fired...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183516.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Ex Public Accountant Here - In 09 one of the firms in my city laid off about 30 percent of its staff without warning a week after busy season (IE these poor accountants just worked 80-100 hour weeks with no days off for the last 2-3 months for an annual 50k salary).
+
+I would have literally taken off my bosses high heel and tried to stab her in the jugular, Happy Gilmore style, if she would have pulled that s**t on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183529.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Told my boss I had a 2 week mandatory training block coming up with my reserves unit. Got told theres no way Im not working during that 2 weeks. Told him its not like I have a choice. Got fired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183531.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Its a long story, but I was early in my career. I wasnt fired for a good reason and I hadnt really stood up for myself yet. I just took abuse from management and did the best I could
+
+It was my GMs birthday, and we all had to pick names out of a hat, and we had to buy them a cake etc for their birthday. Well I had the GM, who wanted to do his birthday in the morning with bagels.
+
+So I picked up 30+ bagels, cream cheese, giant thing of coffee, and we had this stupid bagel birthday thing or whatever
+
+Half hour later I get back to my desk, Im called to HR and I was fired. Oh and thanks for the bagels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010427/87183552/87179216.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. This one resonates to me as I was let go three weeks ago. So story time:
+
+I was hired at a company back in October by a woman whom I consider the ebst boss I ever had. Awesome person, kick as marketer, we are still friends to this day. Anyway, at the end of December before we go on a New Year Break, she tells us she is leaving for a much better company. I dont blame her, the company is awesome.
+
+Now when we get back, I instantly inherit all of her work and basically become a Director of Marketing without the title. I proceed to bust my a*s to pick up all the new duties, make sure everything is attended to, and try to make a case for being the replacement. Well the VP goes ahead and does interviews, we meet with some candidates, ultimately they hire the one who was my last choice of the four. I didnt like her. She was just off...anyway, I take it in stride and just go back to doing my job well.
+
+For the next three weeks I proceed to continue doing all of the work I was doing before she arrived, and then some, while teaching her the business and how we did things. Well three weeks ago today I come into the office, go about my routine, and then get pulled into an office where I see HR. I instantly feel sick to my stomach. She then proceeds to terminate my position due to budget and I am let go. No severance, no real explanation, nothing.
+
+So basically I manned a department for nearly four months, trained the new Director, and was then laid off by her three weeks into her tenure. Oh, and I found out she quickly replaced me with a friend she had worked with at four other companies. Needless to say it sucked and I was livid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183533.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. My mom worked for a small medical practice that was fast on its way to bankruptcy. Her boss gave her a promotion without raise and over the course of the next year, made her fire her coworkers one by one. She came to realize the reason she was promoted was so her boss could make her do the firing while he avoided everyone. Her coworkers saw what was happening, but still drifted away from their friendships with my mom as they saw her as an accomplice with the boss. The stress of firing her peers and feeling completely isolated at work was really eating away at my mom right up until the day her boss fired her, too.
+
+
+Im sure theres worse ways to get canned, but my mom is a sweet woman who hadnt yet learned to speak up for herself and Im disgusted at the lack of character and integrity her boss had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183535.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Friend of mine helped secure a BIG contract for the company he was working for. An incentive for getting contracts is you get a percentage of the profit. He *Just* started working there about 2 months prior and went out own his own several states away to talk to a potential customer from a lead he got at a convention (Basically, Oh yeah I have a buddy whos looking into that. You should meet him) in person out of his own pocket. He secured the deal, called his supervisor to tell him, was congratulated, then drove 12 hours back home. His payout would have come out to around $40,000 over 5 years Went into work the next day and was fired for suspicion of theft and the boss of the division (not the supervisor, that guy is lower) would be taking over all his current stuff. He lawyerd up immediately but since he was still on his probationary period and they could fire him without cause nothing but the finders fee (around $3000) was to be paid to him. Basically his boss tossed him to get some free money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183537.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Once when I worked in an office, they told us that we had to visit corporate for a presentation about sexual harassment in the office. We were broken in to groups to go on different days. Monday - Thursday, the groups got a video on harassment. The Friday group got fired en mass. The whole thing was a set up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183539.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. I was in a wreck on New Years Day of 2009. A drunk driver hit me, injuring my leg up really badly. The driver didnt have insurance, their tags were fake, and their license was suspended at the time of the accident, so I was f****d. I couldnt walk and my job was being a soda merchandiser, so I was on my feet all day long. After reporting this to my employer, they told me to concentrate on getting well and to report back to management after seeing the doctor after a week or two of rehab.
+
+My doctor stated I may have to have surgery and wanted to run some tests, so I called my boss after an appointment. While I was being rolled out of the waiting room in a wheelchair, my boss fired me over the phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010443/87183555/87179222.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. I got notice while on holiday. The day before I was supposed to fly back.
+
+I ended up just not getting the plane back and living in holiday city with a new job </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183543.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. We were having a departmental meeting, and the head of engineering, Myron, was giving a speech about how all of our customers are happy - and how all of his ideas are f*****g awesome. Both of these were very false, so he was either lying or is disillusion.
+
+Next his boss is giving her presentation, and the little email message popped up at the bottom corner of the screen saying You need to fire Myron . Myron was soon fired... and good riddance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183544.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. My first job ever was for Baskin Robbins when I was 15. I went in for my first day of training excited to finally be making pocket money!
+
+
+The owner made me try to memorize the ice cream flavours in the first 30 seconds of being there. When I was unable to recite them perfectly in their order he did this big hand motion and screamed training over!
+
+
+I laugh now but man that was crushing for a nervous teenager.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183545.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. I worked at a place that was sold to investors, they brought in a hotshot CEO to bump up the numbers, then sold to our major competitor. During the transition, about 20 people were let go in one day. The head of HR (M) and the other HR employee (F) spent all day at it. It wasnt easy, since a lot of the employees had been there since the early days, 15+ years. There were tears, some shouting, the awkward Hey Imma just stand here casually while I make sure you dont get weird while you clean out your desk also Im so sorry this is happening thing... After a whole day of that, the head of HR turns to the other HR employee and tells her, Oh BTW were gonna have to let you go too.
+
+You may ask, how did I know there were tears, shouting, etc.? Because that skeezy b******e head of HR shared all the gory details with my coworker the next day, in our open office workspace. She didnt ask, but he needed to tell someone. To this day I get mad thinking about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Headed out with family to celebrate at a Christmas Eve service, phone dinged because I inadvertently got copied on an email from my boss to an office assistant, directing her to draft up a letter terminating me for cause, starting with the unsatisfactory job I did painting the entire new office on my own time when I started the job as an associate attorney one year prior. I immediately called him to ask WTF?, He responded that he couldnt talk because he was in a church service with his family.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. My buddy moved across the country for a job. At the end of his second week he was informed they were going to let him go as part of a large reduction in force. He had moved all of his stuff and signed a year lease of an apartment. When he complained that this really screwed him over and the company had to know this was coming well before he started and should have just told him to not come his now former boss patted him on the back, chuckled, and told him something like lifes not fair.
+
+My buddy ended up getting the last laugh. His dads best friend was an attorney with all the right connections in that state. His old company settled with him when they were served with a lawsuit, claiming something like fraud and deception. He ended up settling for something that was over double his yearly salary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. On night shift a coworker comes in and tries to log into the computer system. It doesnt work. Shes locked out of everything. Shed also had trouble clocking in. The night shift supervisor is off that night. This lady starts freaking out and crying. She says she knew they were looking for a reason to fire her. When were they planning on telling her? What is she suppose to do now? Despite multiple people reassuring her that if they were going to fire her, this is not the way they would do it and suggesting there might just be a mistake, she is still determined that shes been fired and they forgot to tell her before they cut her access. She goes home and doesnt come in the next night either. She wont answer calls, and is out for the rest of the next week.
+
+Turns out they hadnt fired her, but they had been looking for a reason to fire her. Not calling and not showing up for work was enough of a reason, so then she really was fired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. I found out today when I got an email from a client stating.   was suppossed to be here today and wont answer his phone. I make a couple calls only to find out EmployeeX was asked to resign and nobody bothered to inform his accounts. I flew out of state to smooth things over (Im in the hotel lobby right now, as this happened today).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Summoned 17 people (~20% of the entire workforce) to the operations managers office 8 am Friday. The day before the Company Christmas party, where bonuses are handed out. Usually to the tune of $2k each.
+
+Two weeks before Christmas, no job, no bonus, needing to cancel a date night with their SOs. Morale wasnt too good.
+
+Two months later another wave of firings occurred, one of the guys was partying in LA the night before and called in sick. They forced his supervisor to call him repeatedly at home, telling him it was mandatory he showed up. He lived 35-40 minutes away. HR was waiting in the parking lot. Parked, they handed him a packet and check, turned around and drove 40 minutes back home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. I made the horrifically naive mistake of telling a co-worker (I thought was a decent person) I was putting out feelers after the clinic I was on probationary period at extended my probationary period for a third time instead of hiring me on. The very next day I was called into the administrators office and was ordered to explain why I would be so disloyal. I explained that I had become concerned when they extended my probationary period for a third time and I was only putting out feelers. The administrator claimed that they had invested a lot of time and money into me and that I had nothing to worry about - I wasnt going anywhere.
+
+So, the next day when I was scheduled to have my weekly meeting with the very same administrator I was feeling quite relaxed and confident. I sat casually in the office and smiled at her when she came in looking all tense. She then proceeded to tell me that I was being let go. When I asked Why? You said I had nothing to worry about yesterday. She just sighed and said You just dont seem confident that youre going to get the job. There was a brief moment of me silence and I said You mean youre firing me because I dont seem confident youre not going to fire me?
+
+Thats when she got flustered - like visible upset, smacked her hands on the table and said while shuffling papers nervously You know this is a Right To Work State, right?
+
+Yes?
+
+That means I dont have to give you a reason, they are just letting you go. Then she offered to call security because I guess she thought I was going to be as upset about losing that s**tastic job as she was about having to fire me in such a s****y way. I assured her that security was unnecessary and that I would leave quietly. It was embarrassing, bewildering, and obviously quite unethical, but thats living in a Right To Work State for ya, o and working in a hospital.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. The police escorted a teacher out of the classroom while he was teaching.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182841.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">39 Naughty Memes That Don't Play Nice</a><br>
+## <a href="#linky3" id="linky2">Boss Embarrassed after He Forces Breastfeeding Mother to Turn On Webcam</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182009.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014136/87182188/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182020.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014141/87182189/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182007.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014204/87182190/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182008.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014228/87182191/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182043.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014253/87182192/end.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">22 Infographics That Might Come in Handy Someday</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182201.gif" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182222.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">46 Fun Pics for Random Kicks</a><br>
+## <a href="#linky4" id="linky3">46 Fun Pics for Random Kicks</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181459.jpg" style="width:100%"><br>
 
@@ -279,7 +256,7 @@ Last updated: 06/04/2022-15:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">35 Photoshopped Memes to Tickle Your Pickle</a><br>
+## <a href="#linky5" id="linky4">35 Photoshopped Memes to Tickle Your Pickle</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182075.jpg" style="width:100%"><br>
 
@@ -353,7 +330,175 @@ Last updated: 06/04/2022-15:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Weekend Meme Roundup For Humor Enthusiasts </a><br>
+## <a href="#linky6" id="linky5">12 People Who Might Regret Asking to Get Roasted</a><br>
+
+<span style="font-size:4em">1. Turned 18 a month ago and just graduated from a private high school. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111016/87182002/get-roasted-35.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110230/87181994/getroasted36.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110233/87181995/getroasted37.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110241/87181996/getroasted38.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Im a proud gamer, I have a construction job for my parents, and yes, I do have a girlfriend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105945/87181964/getroasted1.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110038/87181974/getroasted12.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110040/87181975/getroasted13.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110146/87181986/getroasted26.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Proof that I dont turn into a pumpkin after midnight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110011/87181969/getroasted7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110005/87181968/getroasted4.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105957/87181966/getroasted6.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110001/87181967/getroasted5.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. 18M, I want to be a large animal zoo veterinarian. Burn me!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110029/87181973/getroasted11.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110017/87181971/getroasted9.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105934/87181963/getroasted3.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110024/87181972/getroasted10.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lost a bet with my wife. Have at it, Reddit.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110052/87181977/getroasted15.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105922/87181962/getroasted2.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110049/87181976/getroasted14.png" style="width:100%"><br>
+
+<span style="font-size:4em">20.  Thick as f*ck with no attention span, and pale as f*ck despite living in a red hot country for over a year. Make me warmer with your roasts.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110137/87181985/getroasted24.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110100/87181978/getroasted16.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110104/87181979/getroasted17.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110111/87181980/getroasted18.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. Criminal Justice major, and Im super into sports. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111323/87182045/get-roasted-number.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110014/87181970/getroasted8.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110115/87181981/getroasted19.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110124/87181982/getroasted20.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. My dementia patient said I had a weird face, prove her right.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111112/87182003/get-roasted-25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110127/87181983/getroasted22.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110135/87181984/getroasted23.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. Havent slept well in a while, so roast my high looking ass.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111519/87182046/getroasted44.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110150/87181987/getroasted27.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110157/87181988/getroasted28.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. I have no plans for the future. I like psychology, art and black humor. I wanna hit rock bottom tonight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111211/87182044/get-roasted-32.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110208/87181990/getroasted30.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110201/87181989/getroasted29.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110212/87181991/getroasted31.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. Guess what country Im from.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110305/87182000/getroasted42.png" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110307/87182001/getroasted43.png" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110219/87181992/getroasted33.png" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110223/87181993/getroasted34.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. Artist and van-lifer on hiatus. Give me hell.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110244/87181997/getroasted39.png" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110253/87181998/getroasted40.png" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110256/87181999/getroasted41.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">39 Naughty Memes That Don't Play Nice</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182043.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">Weekend Meme Roundup For Humor Enthusiasts </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182552.jpeg" style="width:100%"><br>
 
@@ -417,7 +562,193 @@ Last updated: 06/04/2022-15:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">25 Facts About Math Genius Albert Einstein</a><br>
+## <a href="#linky9" id="linky8">22 Infographics That Might Come in Handy Someday</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182201.gif" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182222.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">24 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181550.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181551.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181564.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">14 Small Details Hidden in Disney Movies </a><br>
+
+<span style="font-size:4em">1. In the scene where the animals seem to go crazy, while the dentist is attending to his niece Darla, the child in the waiting room frightened by the commotion and screaming is holding a Mr. Incredible comic book, the protagonist of Pixar’s next movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. In 2009, the production company released the film Up and it was a great success. But in the scene where the house flies through the window of a little girl’s room, you can also see Lotso the bear next to her bed. He’d later turn out to be the new antagonist of the third installment of Toy Story 3. Similarly, in the house of the witch in Brave, released in 2012, you can see Sulley in a wood carving. He’s the protagonist of Monsters University, which was released the following year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In Toy Story 2, we discover that Woody is a very old collector’s doll, coveted by many fans. That shows that it had to have been acquired long before the other toys Andy plays with. In fact, the creators of the saga have made it clear that before being owned by Andy Jr., the intrepid cowboy belonged to Andy Sr.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In case you hadn’t noticed, the famous Pizza Planet delivery van appears in almost every film that was released after Toy Story. The picture above proves it, take a look: 1. its first appearance in Toy Story, 2. Brave, 3. Monster University, 4. WALL-E, 5. Bugs, and 6. Finding Nemo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Many people may have wondered how Prince Eric could have mistaken Ariel for the human version of Ursula when the differences between the two of them are so striking. One has red hair and blue eyes and the other is a brunette with darker eyes. This is because the only image he has of her came from when he saw her on the beach. But then the sun was shining right on him and he was just waking up from an unconscious state. Take a look at the image above and you’ll understand everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. It is not a secret, nor is it hidden that on Pocahontas’ right arm there is a tattoo. It is a peculiarity since this small detail makes her the only tattooed princess in Disney history. This is inspired by a true story, that of the daughter of the chief of the Powhatan tribe, for whom tattoos were commonplace for both men and women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Pixar will never miss an opportunity to remind us in very subtle ways what other films they have available or will be releasing soon. In Zootopia, for instance, you can see versions of their other movies, some released and some not. However, they’re all adapted to the animal world, so you see a pig for Big Hero 6, a horse for Tangled, a rhine for Wreck-it Ralph, and so on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. If you take a closer look at the almanac in which Mike Wazowski is counting down the days for the final exam, you’ll see that the shade of red between the “x’s” is not the same. The older, dry “x’s” have a dark red color that clearly differentiates them from the fresh, intense red of the new ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. No stone is left unturned in Pixar’s movies. The proof of it is that animators added to this character even a small detail that lots of cooks and chefs have. It is very common for them to have small burns on their forearms. They get them accidentally when putting food on the grills or ovens or when taking it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This movie has something in common with Brother Bear. They were made at Disney Studios Orlando before it was totally transformed into a theme park. In fact, Mulan was the first and was released just before Lilo and Stitch. On the wall of Lilo’s room, a poster of her predecessor can be seen hanging.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Within the imaginary worlds that animators create for their stories, there are certain places that are inspired by real life. Landscapes, castles, panoramic views of cities, or in this case, a train station. When the characters of Wreck-It Ralph want to leave their games, they travel through the electrical connection until they reach Central Station, from where they can go to all the games in the room. This fictional station was inspired by the actual, extremely busy Grand Central Station in New York.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Mothers seem to have twenty eyes, they see everything, even before it happens, and Helen Parr, the mother of the Incredible family, could not fail to have this maternal and natural gift. In the scene in the image, in which she falls from a plane into the sea with two of her children, she seems to guess that something is going to fall on them and she pushes her little ones out of the way. Watching the scene shot by shot or in slow motion, you can see how in a split second, she sees the reflection of the falling object in the water and pushes her children away. As we said, a mother doesn’t miss a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In Toy Story 3, Buzz suffers a malfunction and starts acting strangely. While his friend Woody tries to get him back to normal, he exposes his batteries, which are none other than the Buy n Large brand. This large chain, in the movie WALL-E, was the manufacturer of both the main robot in charge of cleaning the planet of pollution and the space cruisers that house humans in space.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. After so many years including Easter Eggs everywhere, many fans began to develop theories about a possible connection between all of them. The idea is that there could be a Disney multiverse in which all the stories are developed in parallel. It’d be something similar was what Marvel created for its MCU (Marvel Cinematic Universe). Finally, through an official video on the Toy Story social media accounts, Pixar confirmed that these theories are not so far-fetched after all and that there is a certain connection between all of these stories.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181142.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">25 Facts You Didn’t Know About Stan Lee</a><br>
+
+<span style="font-size:4em">1. Stan Lee had a younger brother, Larry, who co-created Thor, Iron Man, and Ant-Man. Larry Lieber is currently 90 years old and only retired from pencilling comics in 2018.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Stan Lee came up with Spider-Man when he was experiencing writers block for new superpowers and saw a fly crawling on a wall. Lee then started thinking of names like Insect Man, Fly Man, Stick-to-Wall Man, and Mosquito Man before settling on Spider-Man, because it sounded scary and dramatic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Stan Lee created The X-men as mutants because he didnt want to explain how they got their powers. They were BORN with their powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Stan Lee, the co-creator of comic book characters including Iron Man, the Fantastic Four, Spider-Man, Daredevil and the X-Men which have populated a film series that has grossed more than $11bn worldwide, was a victim of elder abuse by his business manager Keya Morgan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Stan Lee and Dr. Seuss were in the same military unit during WW2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. When Stan Lee first introduced Spider-Man the publisher turned him down. Stan Lee didnt give up and snuck Spider-Man in to the last issue of the shuttered series Amazing Fantasy which went on to become a success.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Stan Lee, co-creator of Daredevil, worried that blind people would be offended at how far he exaggerated the way a blind persons other senses are enhanced, until he started receiving letters telling him that blind people greatly enjoyed having Daredevil comics read to them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. In the late 1990s, Michael Jackson nearly bought Marvel Comics so he could star as Spider-Man in the first movie. Michael Jackson and Stan Lee were going to buy the company together. When the deal fell through, he also attempted to play Professor X in the first X-Men movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Iron Man was created by Stan Lee as a challenge to create a hero no one should like and force people to like him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Stan Lee proposed to his wife after two weeks of dating. She was already married and filed for a quick divorce in Nevada an hour before being married to Stan. The judge who granted the divorce was the same one who performed the marriage ceremony.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Stan Lee had a contract awarding him 10% of the net profits of anything based on his characters. The film Spider-Man (2002) made more than $800 million, but the producers claim that it did not make any profit as defined in Lees contract.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Kevin Smith opened his home to Stan Lee after reports of elder abuse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Stan Lee planned on quitting the comic book industry until his wife Joan told him to write the type of characters he wanted to for his last project. The result was the Fantastic Four, which created a more humanly flawed type of superhero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. While Stan Lee was in the army he never missed a deadline for Timely Comics(Marvel in the 40s), when he discovered that mail was being withheld from him, he broke into the mailroom, unhinged the mailbox with the screwdriver, and submitted the assignment, which he was nearly jailed for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Stan Lee used alliterative names like Peter Parker and Reed Richards because he has a poor memory - having first and last name start with the same letter made them easier to remember.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. According to Stan Lee and Lou Ferrigno, CBS thought the name Bruce Banner sounded too gay-ish.” The protagonist’s name on The Incredible Hulk series was then changed to David Banner. Ferrigno thought it was the most absurd, ridiculous thing [I’d] ever heard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180478.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In Deadpool, Stan Lee played a DJ at a Vancouver strip club. He later revealed that he actually filmed his part in a studio and was disappointed not to be in the vicinity of the topless dancers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Gwen Stacy was killed off in the Spider-Man comics because Stan Lee was in a rush to get to a meeting in Europe; Wanting to get his writers out of his office, he told them, If thats what you wanna do, okay, without realizing what hed just agreed to. He came back to find Gwen dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Stan Lee once commented that he liked to work science into all of his stories, and that Hulks pants were the only time he never had a clue how the exact science behind it worked.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Although Stan Lee gave the Hulks alter ego the alliterative name Bruce Banner, Lee misremembered it and referred to him as Bob Banner in some later stories, an error which readers quickly picked up on. To resolve this discrepancy he decided the official name is Robert Bruce Banner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. When Spider-man married Mary Jane in 1987, Marvel held a public wedding featuring actors dressed like the characters and Stan Lee officiated the wedding ceremony.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Stan Lee served in the military during World War II for three years after hearing about the attack in Pearl Harbor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Hulk was originally intended to be grey. Ink problems released in the first edition made Stan Lee decide it should be green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180485.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. In 2016, during a Facebook Q&A, Stan Lee named Sam Raimi’s Spider-Man (2002) as his favorite superhero movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Stan Lee based the characters of Professor X and Magneto on Martin Luther King, Jr. and Malcolm X, respectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180487.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">25 Facts About Math Genius Albert Einstein</a><br>
 
 <span style="font-size:4em">1. The identity politics of the Nazi Party led them to marginalize Albert Einsteins quantum physics as Jewish Physics, which prevented Nazi Germany from pursuing an effective nuclear weapons program.
 
@@ -523,7 +854,65 @@ Last updated: 06/04/2022-15:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Dank Memes to Wash It All Down</a><br>
+## <a href="#linky14" id="linky13">27 Pics Packed to the Brim with NOPE</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010451/87183556/87179234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010432/87183553/87179218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010439/87183554/87179224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010427/87183552/87179216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010443/87183555/87179222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183545.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">25 Dank Memes to Wash It All Down</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87178403.jpg" style="width:100%"><br>
 
@@ -577,7 +966,7 @@ Last updated: 06/04/2022-15:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Facts You Never Knew About Space Cowboy Harrison Ford</a><br>
+## <a href="#linky16" id="linky15">25 Facts You Never Knew About Space Cowboy Harrison Ford</a><br>
 
 <span style="font-size:4em">1. Harrison Ford was frozen in The Empire Strikes Back because, unlike Carrie Fisher and Mark Hamill, Ford had only signed on for two films. After the success of Raiders of the Lost Ark, Lucas didnt think Ford would return for the 3rd Star Wars film, but left him frozen just in case.-u/wjbc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182388.jpg" style="width:100%"><br>
 
@@ -631,48 +1020,7 @@ Last updated: 06/04/2022-15:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">15 Historical Photos to Give You Chills</a><br>
-
-<span style="font-size:4em">1. The quartzite sarcophagus in the burial chamber of Tutankhamun. The winged arms of goddess Isis and Nephthys are outstretched to envelop the basin in a protective embrace. Photo: Harry Burton, 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A carrier pigeon being released from a port-hole in the side of a British tank near Albert during the battle of Amiens, 9 August 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Roman Catholic Church signed a Concordat with the Nazi government. This made the Vatican the first state to officially recognise Nazi Germany. Photo from 1933</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Two women in an opium den. New York City, USA. 1902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The cap (3rd SS “Totenkopf”, Deaths Head Division) covered with mold lies on the floor of the Fuhrerbunker, flooded with water, Germany, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Teddy Roosevelt’s 1907 hunting guide Ben Lilly
-Roosevelt wrote of Lilly:
-
-“There is a white hunter, Ben Lily [sic], who has just joined us who is a really remarkable character. He literally lives in the woods. … He had tramped for twenty-four hours through the woods, without food or water, and had slept a couple of hours in a crooked tree, like a turkey. He has a wild, gentle face, with blue eyes and full beard; he is a religious fanatic and is as hardy as a bear or elk, literally caring nothing for fatigue and exposure which we couldn’t stand at all. … He was particularly fond of the chase of the bear, which he followed by himself with one or two dogs; often he would be on the trail of his quarry for days at a time, lying down to sleep wherever night overtook him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. British airmen dropping bombs by hand during 1st world war, 1914-1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Wedding portrait of a married Khalkha Mongolian couple, ca. 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Man wearing traditional Kiribati armor, circa 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A medical examination of men enlisted to fight in the Red Army in 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Medics of the US 6th Armored Division liberate a concentration camp for Women near Penig, Germany – April 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Boy is just starting work, while an old man who has been there 33 years teaches him how to use a board saw. October 1908 – Peru, Indiana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Launching the James Caird from the shore of Elephant Island to South Georgia which is 800 nautical away, April 24, 1916.
-The voyage of the James Caird was a journey of 800 mi from Elephant Island in the South Shetland Islands through the Southern Ocean to South Georgia, undertaken by Sir Ernest Shackleton and five companions to obtain rescue for the main body of the stranded Imperial Trans-Antarctic Expedition of 1914–1917.
-
-Polar historians regard the voyage of the crew in a 22.5-foot (6.9 m) ship’s boat through the Furious Fifties as one of the greatest small-boat journeys ever completed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A Wehrmacht veteran teaches Hitler Youth boys how to use a Panzerfaust. The badges on his sleeve represent enemy tanks destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Kamloops Indian Residential School ran by the Catholic Church (1937).
-Last year they found 215 unmarked graves at this school. Likely at least a few of these children never made it home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182257.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">Incredible Facts About America's Father George Washington</a><br>
+## <a href="#linky17" id="linky16">Incredible Facts About America's Father George Washington</a><br>
 
 <span style="font-size:4em">1. The portrait of George Washington on the one-dollar bill comes from an unfinished portrait containing only his face, called the Athenaeum Portrait.-u/piponwa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178295.jpg" style="width:100%"><br>
 
@@ -726,311 +1074,44 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">12 People Who Might Regret Asking to Get Roasted</a><br>
+## <a href="#linky18" id="linky17">15 Historical Photos to Give You Chills</a><br>
 
-<span style="font-size:4em">1. Turned 18 a month ago and just graduated from a private high school. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111016/87182002/get-roasted-35.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The quartzite sarcophagus in the burial chamber of Tutankhamun. The winged arms of goddess Isis and Nephthys are outstretched to envelop the basin in a protective embrace. Photo: Harry Burton, 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110230/87181994/getroasted36.png" style="width:100%"><br>
+<span style="font-size:4em">2. A carrier pigeon being released from a port-hole in the side of a British tank near Albert during the battle of Amiens, 9 August 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110233/87181995/getroasted37.png" style="width:100%"><br>
+<span style="font-size:4em">3. The Roman Catholic Church signed a Concordat with the Nazi government. This made the Vatican the first state to officially recognise Nazi Germany. Photo from 1933</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182247.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110241/87181996/getroasted38.png" style="width:100%"><br>
+<span style="font-size:4em">4. Two women in an opium den. New York City, USA. 1902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Im a proud gamer, I have a construction job for my parents, and yes, I do have a girlfriend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105945/87181964/getroasted1.png" style="width:100%"><br>
+<span style="font-size:4em">5. The cap (3rd SS “Totenkopf”, Deaths Head Division) covered with mold lies on the floor of the Fuhrerbunker, flooded with water, Germany, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182249.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110038/87181974/getroasted12.png" style="width:100%"><br>
+<span style="font-size:4em">6. Teddy Roosevelt’s 1907 hunting guide Ben Lilly
+Roosevelt wrote of Lilly:
+
+“There is a white hunter, Ben Lily [sic], who has just joined us who is a really remarkable character. He literally lives in the woods. … He had tramped for twenty-four hours through the woods, without food or water, and had slept a couple of hours in a crooked tree, like a turkey. He has a wild, gentle face, with blue eyes and full beard; he is a religious fanatic and is as hardy as a bear or elk, literally caring nothing for fatigue and exposure which we couldn’t stand at all. … He was particularly fond of the chase of the bear, which he followed by himself with one or two dogs; often he would be on the trail of his quarry for days at a time, lying down to sleep wherever night overtook him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110040/87181975/getroasted13.png" style="width:100%"><br>
+<span style="font-size:4em">7. British airmen dropping bombs by hand during 1st world war, 1914-1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110146/87181986/getroasted26.png" style="width:100%"><br>
+<span style="font-size:4em">8. Wedding portrait of a married Khalkha Mongolian couple, ca. 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Proof that I dont turn into a pumpkin after midnight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110011/87181969/getroasted7.png" style="width:100%"><br>
+<span style="font-size:4em">9. Man wearing traditional Kiribati armor, circa 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110005/87181968/getroasted4.png" style="width:100%"><br>
+<span style="font-size:4em">10. A medical examination of men enlisted to fight in the Red Army in 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182253.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105957/87181966/getroasted6.png" style="width:100%"><br>
+<span style="font-size:4em">11. Medics of the US 6th Armored Division liberate a concentration camp for Women near Penig, Germany – April 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110001/87181967/getroasted5.png" style="width:100%"><br>
+<span style="font-size:4em">12. Boy is just starting work, while an old man who has been there 33 years teaches him how to use a board saw. October 1908 – Peru, Indiana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. 18M, I want to be a large animal zoo veterinarian. Burn me!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110029/87181973/getroasted11.png" style="width:100%"><br>
+<span style="font-size:4em">13. Launching the James Caird from the shore of Elephant Island to South Georgia which is 800 nautical away, April 24, 1916.
+The voyage of the James Caird was a journey of 800 mi from Elephant Island in the South Shetland Islands through the Southern Ocean to South Georgia, undertaken by Sir Ernest Shackleton and five companions to obtain rescue for the main body of the stranded Imperial Trans-Antarctic Expedition of 1914–1917.
+
+Polar historians regard the voyage of the crew in a 22.5-foot (6.9 m) ship’s boat through the Furious Fifties as one of the greatest small-boat journeys ever completed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110017/87181971/getroasted9.png" style="width:100%"><br>
+<span style="font-size:4em">14. A Wehrmacht veteran teaches Hitler Youth boys how to use a Panzerfaust. The badges on his sleeve represent enemy tanks destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105934/87181963/getroasted3.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110024/87181972/getroasted10.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lost a bet with my wife. Have at it, Reddit.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110052/87181977/getroasted15.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/105922/87181962/getroasted2.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110049/87181976/getroasted14.png" style="width:100%"><br>
-
-<span style="font-size:4em">20.  Thick as f*ck with no attention span, and pale as f*ck despite living in a red hot country for over a year. Make me warmer with your roasts.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110137/87181985/getroasted24.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110100/87181978/getroasted16.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110104/87181979/getroasted17.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110111/87181980/getroasted18.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. Criminal Justice major, and Im super into sports. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111323/87182045/get-roasted-number.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110014/87181970/getroasted8.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110115/87181981/getroasted19.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110124/87181982/getroasted20.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. My dementia patient said I had a weird face, prove her right.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111112/87182003/get-roasted-25.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110127/87181983/getroasted22.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110135/87181984/getroasted23.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. Havent slept well in a while, so roast my high looking ass.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111519/87182046/getroasted44.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110150/87181987/getroasted27.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110157/87181988/getroasted28.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. I have no plans for the future. I like psychology, art and black humor. I wanna hit rock bottom tonight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111211/87182044/get-roasted-32.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110208/87181990/getroasted30.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110201/87181989/getroasted29.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110212/87181991/getroasted31.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. Guess what country Im from.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110305/87182000/getroasted42.png" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110307/87182001/getroasted43.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110219/87181992/getroasted33.png" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110223/87181993/getroasted34.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. Artist and van-lifer on hiatus. Give me hell.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110244/87181997/getroasted39.png" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110253/87181998/getroasted40.png" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110256/87181999/getroasted41.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">14 Small Details Hidden in Disney Movies </a><br>
-
-<span style="font-size:4em">1. In the scene where the animals seem to go crazy, while the dentist is attending to his niece Darla, the child in the waiting room frightened by the commotion and screaming is holding a Mr. Incredible comic book, the protagonist of Pixar’s next movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. In 2009, the production company released the film Up and it was a great success. But in the scene where the house flies through the window of a little girl’s room, you can also see Lotso the bear next to her bed. He’d later turn out to be the new antagonist of the third installment of Toy Story 3. Similarly, in the house of the witch in Brave, released in 2012, you can see Sulley in a wood carving. He’s the protagonist of Monsters University, which was released the following year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In Toy Story 2, we discover that Woody is a very old collector’s doll, coveted by many fans. That shows that it had to have been acquired long before the other toys Andy plays with. In fact, the creators of the saga have made it clear that before being owned by Andy Jr., the intrepid cowboy belonged to Andy Sr.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In case you hadn’t noticed, the famous Pizza Planet delivery van appears in almost every film that was released after Toy Story. The picture above proves it, take a look: 1. its first appearance in Toy Story, 2. Brave, 3. Monster University, 4. WALL-E, 5. Bugs, and 6. Finding Nemo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Many people may have wondered how Prince Eric could have mistaken Ariel for the human version of Ursula when the differences between the two of them are so striking. One has red hair and blue eyes and the other is a brunette with darker eyes. This is because the only image he has of her came from when he saw her on the beach. But then the sun was shining right on him and he was just waking up from an unconscious state. Take a look at the image above and you’ll understand everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. It is not a secret, nor is it hidden that on Pocahontas’ right arm there is a tattoo. It is a peculiarity since this small detail makes her the only tattooed princess in Disney history. This is inspired by a true story, that of the daughter of the chief of the Powhatan tribe, for whom tattoos were commonplace for both men and women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Pixar will never miss an opportunity to remind us in very subtle ways what other films they have available or will be releasing soon. In Zootopia, for instance, you can see versions of their other movies, some released and some not. However, they’re all adapted to the animal world, so you see a pig for Big Hero 6, a horse for Tangled, a rhine for Wreck-it Ralph, and so on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. If you take a closer look at the almanac in which Mike Wazowski is counting down the days for the final exam, you’ll see that the shade of red between the “x’s” is not the same. The older, dry “x’s” have a dark red color that clearly differentiates them from the fresh, intense red of the new ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. No stone is left unturned in Pixar’s movies. The proof of it is that animators added to this character even a small detail that lots of cooks and chefs have. It is very common for them to have small burns on their forearms. They get them accidentally when putting food on the grills or ovens or when taking it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This movie has something in common with Brother Bear. They were made at Disney Studios Orlando before it was totally transformed into a theme park. In fact, Mulan was the first and was released just before Lilo and Stitch. On the wall of Lilo’s room, a poster of her predecessor can be seen hanging.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Within the imaginary worlds that animators create for their stories, there are certain places that are inspired by real life. Landscapes, castles, panoramic views of cities, or in this case, a train station. When the characters of Wreck-It Ralph want to leave their games, they travel through the electrical connection until they reach Central Station, from where they can go to all the games in the room. This fictional station was inspired by the actual, extremely busy Grand Central Station in New York.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Mothers seem to have twenty eyes, they see everything, even before it happens, and Helen Parr, the mother of the Incredible family, could not fail to have this maternal and natural gift. In the scene in the image, in which she falls from a plane into the sea with two of her children, she seems to guess that something is going to fall on them and she pushes her little ones out of the way. Watching the scene shot by shot or in slow motion, you can see how in a split second, she sees the reflection of the falling object in the water and pushes her children away. As we said, a mother doesn’t miss a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In Toy Story 3, Buzz suffers a malfunction and starts acting strangely. While his friend Woody tries to get him back to normal, he exposes his batteries, which are none other than the Buy n Large brand. This large chain, in the movie WALL-E, was the manufacturer of both the main robot in charge of cleaning the planet of pollution and the space cruisers that house humans in space.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. After so many years including Easter Eggs everywhere, many fans began to develop theories about a possible connection between all of them. The idea is that there could be a Disney multiverse in which all the stories are developed in parallel. It’d be something similar was what Marvel created for its MCU (Marvel Cinematic Universe). Finally, through an official video on the Toy Story social media accounts, Pixar confirmed that these theories are not so far-fetched after all and that there is a certain connection between all of these stories.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181142.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Boss Embarrassed after He Forces Breastfeeding Mother to Turn On Webcam</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014136/87182188/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014141/87182189/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014204/87182190/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014228/87182191/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/014253/87182192/end.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">24 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181550.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181551.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87181564.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">30 Catastrophic Construction Fails</a><br>
-
-<span style="font-size:4em">1. I Picked The Ladder Up Forgetting The Paint Was On Top</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Thats Not Going To Hold Without A Stud, My SO Said. Dont Worry, I Replied. Ive Got Half Inch Toggle Bolts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Landlords, Please Don’t Paint Over Cockroaches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. A Driveway Crew Was Pouring Concrete At A New House Next To A Duck Pond. They Went To Lunch And Came Back To This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Wife Said Measure The Door, I Told Her All Doors Are The Same Size</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Fixing A Toilet Leak. I Took 2 Trips To Home Depot, Worked With A Hernia, Had A Hard Time Putting The Wax Ring And Screws On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. We Just Moved Into A Brand New House, Painters Came By To Touch Up Some Walls Upstairs. This Poor Guy Fell Down The Whole Staircase With A Full 5 Gallon Bucket Of Paint</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My Dad Isnt So Great At Remodeling, So I Turned His Work Into A Work Of Art</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Ive Heard Of Painting Yourself Into A Corner But My Wife Took It A Step Further. I Dont Even Know</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My Father Forgot To Tell Me The Renovations Would Be Taking The Stairs Out Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. DIY Fail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. What Could Go Wrong If My Neighbor Uses The Longest Possible Drill Out There?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My Landlord: Is It Ok If The Replacement Tile Is Not An Exact Match? Me: Yeah That’s Fine. The Tile:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A Couple Years Ago, My Neighbor Decided To Paint His House Bright Orange... Then Gave Up Halfway Through</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My Moms Garage Is Being Renovated. I Think Its Pretty Obvious That They Have 3 Dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. A Friend Is Renovating His House. He Also Has A Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. A Lovely Paint Job</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Could Be Worse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. How These Pipes Were Installed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Im Doing Renovations And My Roomba Found A Tiny Piece Of Sheetrock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Brother-In-Law Repairing His Awning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. We Just Finished The Construction Of Our Yurt. The Fireplace Was Not Correctly Installed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. What Happens When Youre Renovating And Remove A Load-Bearing Wall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just One Spot Left To Paint Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Neat Fan Installation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Saw This On Facebook With Someone Asking For A Contractor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. GF And I Have Covid. Heater Went Out, Technician Cant Come Out Due To Quarantine. Decided To Try And Fix It Myself. Tripped Over A Pipe And Fell Through The Ceiling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This Is Why You Dont Hire Contractors Who Secure Cabinets To Dry Wall Only. Thousands In Damage Last Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Lockdown Renovations Look So Easy On Instagram</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I Mean, You Couldve Rotated The Toilet, But Whatever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181744.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">25 Facts You Didn’t Know About Stan Lee</a><br>
-
-<span style="font-size:4em">1. Stan Lee had a younger brother, Larry, who co-created Thor, Iron Man, and Ant-Man. Larry Lieber is currently 90 years old and only retired from pencilling comics in 2018.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Stan Lee came up with Spider-Man when he was experiencing writers block for new superpowers and saw a fly crawling on a wall. Lee then started thinking of names like Insect Man, Fly Man, Stick-to-Wall Man, and Mosquito Man before settling on Spider-Man, because it sounded scary and dramatic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Stan Lee created The X-men as mutants because he didnt want to explain how they got their powers. They were BORN with their powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Stan Lee, the co-creator of comic book characters including Iron Man, the Fantastic Four, Spider-Man, Daredevil and the X-Men which have populated a film series that has grossed more than $11bn worldwide, was a victim of elder abuse by his business manager Keya Morgan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Stan Lee and Dr. Seuss were in the same military unit during WW2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When Stan Lee first introduced Spider-Man the publisher turned him down. Stan Lee didnt give up and snuck Spider-Man in to the last issue of the shuttered series Amazing Fantasy which went on to become a success.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Stan Lee, co-creator of Daredevil, worried that blind people would be offended at how far he exaggerated the way a blind persons other senses are enhanced, until he started receiving letters telling him that blind people greatly enjoyed having Daredevil comics read to them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. In the late 1990s, Michael Jackson nearly bought Marvel Comics so he could star as Spider-Man in the first movie. Michael Jackson and Stan Lee were going to buy the company together. When the deal fell through, he also attempted to play Professor X in the first X-Men movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Iron Man was created by Stan Lee as a challenge to create a hero no one should like and force people to like him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Stan Lee proposed to his wife after two weeks of dating. She was already married and filed for a quick divorce in Nevada an hour before being married to Stan. The judge who granted the divorce was the same one who performed the marriage ceremony.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Stan Lee had a contract awarding him 10% of the net profits of anything based on his characters. The film Spider-Man (2002) made more than $800 million, but the producers claim that it did not make any profit as defined in Lees contract.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Kevin Smith opened his home to Stan Lee after reports of elder abuse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Stan Lee planned on quitting the comic book industry until his wife Joan told him to write the type of characters he wanted to for his last project. The result was the Fantastic Four, which created a more humanly flawed type of superhero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. While Stan Lee was in the army he never missed a deadline for Timely Comics(Marvel in the 40s), when he discovered that mail was being withheld from him, he broke into the mailroom, unhinged the mailbox with the screwdriver, and submitted the assignment, which he was nearly jailed for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Stan Lee used alliterative names like Peter Parker and Reed Richards because he has a poor memory - having first and last name start with the same letter made them easier to remember.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. According to Stan Lee and Lou Ferrigno, CBS thought the name Bruce Banner sounded too gay-ish.” The protagonist’s name on The Incredible Hulk series was then changed to David Banner. Ferrigno thought it was the most absurd, ridiculous thing [I’d] ever heard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180478.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In Deadpool, Stan Lee played a DJ at a Vancouver strip club. He later revealed that he actually filmed his part in a studio and was disappointed not to be in the vicinity of the topless dancers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Gwen Stacy was killed off in the Spider-Man comics because Stan Lee was in a rush to get to a meeting in Europe; Wanting to get his writers out of his office, he told them, If thats what you wanna do, okay, without realizing what hed just agreed to. He came back to find Gwen dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Stan Lee once commented that he liked to work science into all of his stories, and that Hulks pants were the only time he never had a clue how the exact science behind it worked.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Although Stan Lee gave the Hulks alter ego the alliterative name Bruce Banner, Lee misremembered it and referred to him as Bob Banner in some later stories, an error which readers quickly picked up on. To resolve this discrepancy he decided the official name is Robert Bruce Banner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. When Spider-man married Mary Jane in 1987, Marvel held a public wedding featuring actors dressed like the characters and Stan Lee officiated the wedding ceremony.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Stan Lee served in the military during World War II for three years after hearing about the attack in Pearl Harbor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Hulk was originally intended to be grey. Ink problems released in the first edition made Stan Lee decide it should be green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180485.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. In 2016, during a Facebook Q&A, Stan Lee named Sam Raimi’s Spider-Man (2002) as his favorite superhero movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Stan Lee based the characters of Professor X and Magneto on Martin Luther King, Jr. and Malcolm X, respectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87180487.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The Kamloops Indian Residential School ran by the Catholic Church (1937).
+Last year they found 215 unmarked graves at this school. Likely at least a few of these children never made it home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182257.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
