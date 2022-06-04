@@ -56,8 +56,8 @@ class baumerSpider(scrapy.Spider):
 
 			if any(extension in link for extension in ['.jpg', '.jpeg', '.png', '.gif']): # Do not include link if not image (ads, social media, etc...)
 				html += f'<span style="font-size:4em">{title}</span><br><img src="{link}" style="width:100%"><br>\n\n'
-				html += f'<a href="#linky1">GO TO TOP</a><br>'
-
+		
+		html += f'<br><a href="#linky1">GO TO TOP</a><br>'
 		with open(self.outputHtml, 'a+', encoding='utf-8') as w: 
 			w.write(html)
 
