@@ -15,15 +15,15 @@ def fusRoDah():
         print('Error') # Fus Roh Duh.
         pass
 
-class memerSpider(scrapy.Spider):
+class baumerSpider(scrapy.Spider):
 	"""Collect all meme dumps from front page of Ebaumsworld.
 	Output to HTML without ads, comments, categories, users, etc..."""
 
-	name = 'memer' #allowed_domains = ['www.ebaumsworld.com/']
+	name = 'baumer' #allowed_domains = ['www.ebaumsworld.com/']
 	start_urls = ['https://www.ebaumsworld.com'] #['https://www.ebaumsworld.com/pictures/?page=1']
 	outputHtml = 'README.md'#'output.html'
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
-	hdr = f'# All ur Memez R belog to Uz<br>\nLast updated: {nowwie}\n<br>\n'
+	hdr = f'# All ur Baums R belog to Uz<br>\nLast updated: {nowwie}\n<br>\n'
 	
 	try:
 		os.remove(outputHtml)
@@ -62,6 +62,6 @@ class memerSpider(scrapy.Spider):
 
 if __name__ == "__main__":
 	process = CrawlerProcess()
-	process.crawl(memerSpider)
+	process.crawl(baumerSpider)
 	process.start()
 	fusRoDah()
