@@ -1,5 +1,5 @@
 # All ur Baums R belog to Uz<br>
-Last updated: 06/05/2022-09:11:33
+Last updated: 06/05/2022-10:11:31
 <br>
 ## <a href="#linky2" id="linky1">Cruise Through the Day with a Big Batch of Cool Random Pics</a><br>
 
@@ -99,7 +99,48 @@ Last updated: 06/05/2022-09:11:33
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Incredible Facts About America's Father George Washington</a><br>
+## <a href="#linky3" id="linky2">15 Historical Photos to Give You Chills</a><br>
+
+<span style="font-size:4em">1. The quartzite sarcophagus in the burial chamber of Tutankhamun. The winged arms of goddess Isis and Nephthys are outstretched to envelop the basin in a protective embrace. Photo: Harry Burton, 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A carrier pigeon being released from a port-hole in the side of a British tank near Albert during the battle of Amiens, 9 August 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Roman Catholic Church signed a Concordat with the Nazi government. This made the Vatican the first state to officially recognise Nazi Germany. Photo from 1933</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Two women in an opium den. New York City, USA. 1902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The cap (3rd SS “Totenkopf”, Deaths Head Division) covered with mold lies on the floor of the Fuhrerbunker, flooded with water, Germany, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Teddy Roosevelt’s 1907 hunting guide Ben Lilly
+Roosevelt wrote of Lilly:
+
+“There is a white hunter, Ben Lily [sic], who has just joined us who is a really remarkable character. He literally lives in the woods. … He had tramped for twenty-four hours through the woods, without food or water, and had slept a couple of hours in a crooked tree, like a turkey. He has a wild, gentle face, with blue eyes and full beard; he is a religious fanatic and is as hardy as a bear or elk, literally caring nothing for fatigue and exposure which we couldn’t stand at all. … He was particularly fond of the chase of the bear, which he followed by himself with one or two dogs; often he would be on the trail of his quarry for days at a time, lying down to sleep wherever night overtook him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. British airmen dropping bombs by hand during 1st world war, 1914-1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Wedding portrait of a married Khalkha Mongolian couple, ca. 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Man wearing traditional Kiribati armor, circa 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A medical examination of men enlisted to fight in the Red Army in 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Medics of the US 6th Armored Division liberate a concentration camp for Women near Penig, Germany – April 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Boy is just starting work, while an old man who has been there 33 years teaches him how to use a board saw. October 1908 – Peru, Indiana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Launching the James Caird from the shore of Elephant Island to South Georgia which is 800 nautical away, April 24, 1916.
+The voyage of the James Caird was a journey of 800 mi from Elephant Island in the South Shetland Islands through the Southern Ocean to South Georgia, undertaken by Sir Ernest Shackleton and five companions to obtain rescue for the main body of the stranded Imperial Trans-Antarctic Expedition of 1914–1917.
+
+Polar historians regard the voyage of the crew in a 22.5-foot (6.9 m) ship’s boat through the Furious Fifties as one of the greatest small-boat journeys ever completed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A Wehrmacht veteran teaches Hitler Youth boys how to use a Panzerfaust. The badges on his sleeve represent enemy tanks destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Kamloops Indian Residential School ran by the Catholic Church (1937).
+Last year they found 215 unmarked graves at this school. Likely at least a few of these children never made it home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182257.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Incredible Facts About America's Father George Washington</a><br>
 
 <span style="font-size:4em">1. The portrait of George Washington on the one-dollar bill comes from an unfinished portrait containing only his face, called the Athenaeum Portrait.-u/piponwa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178295.jpg" style="width:100%"><br>
 
@@ -153,7 +194,7 @@ Last updated: 06/05/2022-09:11:33
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">27 Pics Packed to the Brim with NOPE</a><br>
+## <a href="#linky5" id="linky4">27 Pics Packed to the Brim with NOPE</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010451/87183556/87179234.jpg" style="width:100%"><br>
 
@@ -208,112 +249,6 @@ Last updated: 06/05/2022-09:11:33
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183544.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183545.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">25 Facts About Math Genius Albert Einstein</a><br>
-
-<span style="font-size:4em">1. The identity politics of the Nazi Party led them to marginalize Albert Einsteins quantum physics as Jewish Physics, which prevented Nazi Germany from pursuing an effective nuclear weapons program.
-
--u/JimCalinaya
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. As a result of the Baby Einstein franchise of videos and books being named after Albert Einstein, royalties paid to his estate made Einstein one of the top five earning dead celebrities for a time.
-
--u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In 1931 Albert Einstein sent a letter to Sigmund Freud titled Why War? to better understand the psychological causes of war. Freud responded that biological evolution, inherent power differences within groups, and the paradox of peace (times of peace allow empires to be built) cause war.
-
--u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Einsteins support for pacifist, civil rights and left-wing causes in Europe had drawn suspicion from J. Edgar Hoover’s FBI, and after his arrival to America, the Bureau launched what would eventually become a 22-year surveillance campaign since the FBI believed Einstein was a Soviet spy.
-
--u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. While Einsteins theory of general relativity was complete by 1916 the theory was not seen as very applicable to physics. It took till the 1960s, nearly 50 years later, before the theory became central to modern physics.
-
--u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Two guys flew a clock around the world in different directions and proved Einsteins theory of relativity - 50 years ago. The airline tickets (the clock needed seats too) and hotels cost $8000.
-
--u/Burritoman_209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In 1921, when Einstein arrived in the United States he was given a heros welcome and was cheered by thousands of people.
-
--u/WalkLikeAnEgyptian69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Einstein had a Year of Miracles. In one year, he published 3 papers that changed modern physics. The first about the particle theory of light (won him his Nobel Prize), the second led to people accepting the existence of atoms, and the third introduced special relativity (E=mc^2). He was 26.
-
--u/rasye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Einstein bequeathed his personal archives, library and intellectual assets to the Hebrew University of Jerusalem in Israel.
-
--u/MijTinmol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Einstein once gave a note in lieu of a tip to a Japanese courier. The note said, “a quiet and modest life brings more joy than a pursuit of success bound with constant unrest”. It sold in 2017 for $1.56m.
-
--u/We-are-straw-dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The EPR paradox was proposed by Einstein. Quantum mechanics shows if you measure two quantum particles, they will be in opposite states no matter how far away they are. For this to be true, then information exchanged between the particles would have to be faster than the speed of light.
-
--u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Evelyn Einstein, the granddaughter of Albert, was married to an anthropology professor who tried to prove the existence of Bigfoot. When Einstein attended Berkley in the 60s, she felt anxious because she couldnt tell whether men were interested in her because of her or her name
-
--u/van_datascience</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Golds yellow color and inertness are explained by Einstein’s theory of relativity. Golds electrons travel so close to the speed of light that relativity contracts some of their orbits. This shrinks an energy gap so it absorbs blue light, and makes the outer electron less reactive.
-
--u/ocdumbos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182367.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Albert Einstein spent more time as a Swiss citizen (54 years) than as a German citizen (36 years). In third place comes his American citizenship (15 years).
-
--u/NicoE4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Einsteins view of gravity is not a force of attraction between matter, but a natural consequence of curved space and time caused by mass. Einsteins extraordinary claim is that there is no force of attraction between the Earth and moon; it is simply the moon following curved spacetime.
-
--u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Robert Millikan disliked Einsteins results about light consisting of particles (photons) and carefully designed experiments to disprove them, but ended up confirming the particle nature of light, and earned a Nobel Prize for that.
-
--u/SawOnGam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Einstein failing a math exam is a myth. He failed the entrance exam to Zurich Polytechnic because he did poorly on botany, zoology and language sections.
-
--u/amansaggu26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When Albert Einstein and Mileva Marics marriage wasnt going well, Einstein left his family, moved to Berlin and began a relationship with his cousin, Elsa. Einstein and Maric divorced in 1919, with Einstein giving her his Nobel Prize as part of their divorce settlement.
-
--u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. There is an official world record for time traveling. Its held by cosmonaut Sergei Krikalev, who has spent 803 days total in orbit around Earth. According to Einsteins theories of relativity, this would mean Sergei effectively has travelled about 0.02 seconds forward in time.
-
--u/Al_Capwned13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. As a child, Einsteins Uncle Jakob introduced him to algebra and called it a merry science. He compared algebra to hunting a little animal. You didnt know the name of the animal, so you called it x. When you finally caught the animal you gave it the correct name
-
--u/thepresident45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The orbit of Mercury follows a unique pattern different from other planets which remained unexplained until Einstein’s theory of bending space-time due to large nearby gravitation. Previous theory was there was another planet between mercury and the sun, Vulcan.
-
--u/reduxde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Albert Einstein was Charlie Chaplins special guest at the 1931 premiere of Chaplins movie, City Lights. The two became friends, and Chaplin would go on to remember Einstein fondly in his autobiography.
-
--u/SeizeOpportunity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182376.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The Theory of Relativity was an attempt to explain Machs principle, the fact that centrifugal force cannot be explained by any existing theory. Einstein failed to explain it, and remains the only known violation of relativity.
-
--u/Legitimate_Mousse_29</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Einstein Wrote a 1935 New York Times Obituary upon Emmy Noethers demise to highlight her mathematical genius, which was oft-overlooked because of her gender.
-
--u/CryptoCreativity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182378.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Einstein hated wearing socks. In a letter to his wife, he said that the reason he stopped wearing them was because his big toe always ended up making a hole in them.
-
--u/Tokyono</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182379.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -560,7 +495,235 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">46 Fun Pics for Random Kicks</a><br>
+## <a href="#linky8" id="linky7">38 Comments That Had a Sniper's Accuracy</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022303/87183101/87180936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022212/87183091/87166718.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022201/87183089/87166710.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022138/87183087/87166708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022150/87183088/87166713.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022208/87183090/87166709.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022219/87183093/87166723.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022319/87183104/87180939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022222/87183094/87166722.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022252/87183099/87180933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022230/87183095/87166724.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022234/87183096/87166727.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022241/87183097/87170128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022245/87183098/87170172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022256/87183100/87180934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022307/87183102/87180937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022314/87183103/87180938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022325/87183105/87180942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022331/87183106/87180944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022336/87183107/87180948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022341/87183108/87180951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022348/87183109/87180956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022352/87183110/87180957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182916.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182925.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182912.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182909.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182910.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182911.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182921.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182913.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182922.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182906.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182917.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182919.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182924.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182920.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182923.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">22 Infographics That Might Come in Handy Someday</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182201.gif" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182222.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">Savage Memes to Scratch Your Funny Bone </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. To be fair, I would do the same thing. Just peace and quiet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Shes in major trouble now. We all know where this goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Why not just have them sit on your lap? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182457.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Learn to code </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bees are now fish. Yup its the law. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I know the pain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This is our political stance on most issues. Beside the bad ones. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Well when you say it like that, you start making a lot of sense. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Yo these eggs are about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. See, Mars wants nothing to do with us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Hmm, well this is a nice room, maybe Ill stay a while. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Super Straight. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. There is no other way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182476.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">22 Coworkers Satan Himself Wouldn't Work With</a><br>
+
+<span style="font-size:4em">1. While I was away from my desk, one of my coworkers scrambled my cubes and left me a nice little drawing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I’ve had this rubber band ball for 6 years, carefully preserving its shape by removing one band at a time. I let a colleague borrow it for one day, and she destroyed it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My coworker parks in the same spot like this everyday.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I left my coffee unattended at the work bench for a half hour and when I came back a coworker had taken my free coffee sticker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180963.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My Coworker just zip tied my pliers while I was gone for a minute.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Coworkers not collapsing their cardboard before putting it in the bin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This is how my coworkers throw away trash. The bin was totally empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180966.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I think my coworkers are trying to murder me Looney Tunes style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Coworker got mad working in the soup aisle so they just left their stuff and clocked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I know my coworkers were thirsty but isn’t this a bit too much?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180969.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The way my coworker organized this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My coworkers’ idea of stacking dishes almost gave me an aneurysm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My coworker never winds the cord.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The cable of my colleague’s phone at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. We give stickers at my job for your ID, if you passed the temperature check. My coworker had to cut the stickers and did this. Mildly is an understatement. Guess who has to cut new stickers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Seems like my coworkers think everyone needs his own roll.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. How my coworker uses up micropipette tips.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My Coworkers lunch plate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Coworker cut the cake by layer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I told my coworker we could be stacking packages more efficiently. She keeps doing this because my way is too hard for her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. How my coworker puts his laptop while he washes his hands.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. How a coworker took half of the last doughnut at my friend’s office.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180981.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">46 Fun Pics for Random Kicks</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181459.jpg" style="width:100%"><br>
 
@@ -656,299 +819,7 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Savage Memes to Scratch Your Funny Bone </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. To be fair, I would do the same thing. Just peace and quiet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Shes in major trouble now. We all know where this goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Why not just have them sit on your lap? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182457.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Learn to code </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bees are now fish. Yup its the law. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I know the pain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This is our political stance on most issues. Beside the bad ones. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Well when you say it like that, you start making a lot of sense. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Yo these eggs are about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. See, Mars wants nothing to do with us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hmm, well this is a nice room, maybe Ill stay a while. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Super Straight. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. There is no other way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182476.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">22 Coworkers Satan Himself Wouldn't Work With</a><br>
-
-<span style="font-size:4em">1. While I was away from my desk, one of my coworkers scrambled my cubes and left me a nice little drawing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I’ve had this rubber band ball for 6 years, carefully preserving its shape by removing one band at a time. I let a colleague borrow it for one day, and she destroyed it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My coworker parks in the same spot like this everyday.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I left my coffee unattended at the work bench for a half hour and when I came back a coworker had taken my free coffee sticker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Coworker just zip tied my pliers while I was gone for a minute.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Coworkers not collapsing their cardboard before putting it in the bin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. This is how my coworkers throw away trash. The bin was totally empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I think my coworkers are trying to murder me Looney Tunes style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Coworker got mad working in the soup aisle so they just left their stuff and clocked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I know my coworkers were thirsty but isn’t this a bit too much?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The way my coworker organized this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My coworkers’ idea of stacking dishes almost gave me an aneurysm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My coworker never winds the cord.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The cable of my colleague’s phone at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. We give stickers at my job for your ID, if you passed the temperature check. My coworker had to cut the stickers and did this. Mildly is an understatement. Guess who has to cut new stickers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Seems like my coworkers think everyone needs his own roll.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. How my coworker uses up micropipette tips.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My Coworkers lunch plate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Coworker cut the cake by layer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I told my coworker we could be stacking packages more efficiently. She keeps doing this because my way is too hard for her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. How my coworker puts his laptop while he washes his hands.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. How a coworker took half of the last doughnut at my friend’s office.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180981.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">22 Infographics That Might Come in Handy Someday</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182201.gif" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182222.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">38 Comments That Had a Sniper's Accuracy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022303/87183101/87180936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022212/87183091/87166718.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022201/87183089/87166710.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022138/87183087/87166708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022150/87183088/87166713.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022208/87183090/87166709.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022219/87183093/87166723.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022319/87183104/87180939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022222/87183094/87166722.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022252/87183099/87180933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022230/87183095/87166724.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022234/87183096/87166727.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022241/87183097/87170128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022245/87183098/87170172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022256/87183100/87180934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022307/87183102/87180937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022314/87183103/87180938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022325/87183105/87180942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022331/87183106/87180944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022336/87183107/87180948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022341/87183108/87180951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022348/87183109/87180956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022352/87183110/87180957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182916.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182925.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182912.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182909.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182910.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182911.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182921.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182913.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182922.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182906.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182917.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182919.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182924.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182920.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182923.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Weekend Meme Roundup For Humor Enthusiasts </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182552.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. *eats shredded cheese at 3am* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182565.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Thats enough of that. Talk to you boys next week. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182556.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182557.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182558.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182559.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182560.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. These women deff spit in the food. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182570.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182561.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182553.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. And it never gets old. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182562.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My god, it stepped on a bee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182563.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A drive in the summer time is all the therapy a man needs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182564.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182567.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182579.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182568.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182569.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182572.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182573.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182574.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182575.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182576.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182577.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. If some ever sends me something this stupid Ill delete their number. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182578.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The truth was right in front of us the entire time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182581.jpeg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">35 Photoshopped Memes to Tickle Your Pickle</a><br>
+## <a href="#linky13" id="linky12">35 Photoshopped Memes to Tickle Your Pickle</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182075.jpg" style="width:100%"><br>
 
@@ -1022,7 +893,7 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">25 Dank Memes to Wash It All Down</a><br>
+## <a href="#linky14" id="linky13">25 Dank Memes to Wash It All Down</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87178403.jpg" style="width:100%"><br>
 
@@ -1076,48 +947,71 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">15 Historical Photos to Give You Chills</a><br>
+## <a href="#linky15" id="linky14">Weekend Meme Roundup For Humor Enthusiasts </a><br>
 
-<span style="font-size:4em">1. The quartzite sarcophagus in the burial chamber of Tutankhamun. The winged arms of goddess Isis and Nephthys are outstretched to envelop the basin in a protective embrace. Photo: Harry Burton, 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182244.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182552.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A carrier pigeon being released from a port-hole in the side of a British tank near Albert during the battle of Amiens, 9 August 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182246.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. *eats shredded cheese at 3am* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182565.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Roman Catholic Church signed a Concordat with the Nazi government. This made the Vatican the first state to officially recognise Nazi Germany. Photo from 1933</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182247.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Thats enough of that. Talk to you boys next week. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182556.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Two women in an opium den. New York City, USA. 1902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182248.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182557.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The cap (3rd SS “Totenkopf”, Deaths Head Division) covered with mold lies on the floor of the Fuhrerbunker, flooded with water, Germany, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182249.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182558.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Teddy Roosevelt’s 1907 hunting guide Ben Lilly
-Roosevelt wrote of Lilly:
-
-“There is a white hunter, Ben Lily [sic], who has just joined us who is a really remarkable character. He literally lives in the woods. … He had tramped for twenty-four hours through the woods, without food or water, and had slept a couple of hours in a crooked tree, like a turkey. He has a wild, gentle face, with blue eyes and full beard; he is a religious fanatic and is as hardy as a bear or elk, literally caring nothing for fatigue and exposure which we couldn’t stand at all. … He was particularly fond of the chase of the bear, which he followed by himself with one or two dogs; often he would be on the trail of his quarry for days at a time, lying down to sleep wherever night overtook him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182243.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182559.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. British airmen dropping bombs by hand during 1st world war, 1914-1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182250.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182560.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Wedding portrait of a married Khalkha Mongolian couple, ca. 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182251.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. These women deff spit in the food. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182570.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Man wearing traditional Kiribati armor, circa 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182252.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182561.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A medical examination of men enlisted to fight in the Red Army in 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182253.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182553.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Medics of the US 6th Armored Division liberate a concentration camp for Women near Penig, Germany – April 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182254.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. And it never gets old. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182562.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Boy is just starting work, while an old man who has been there 33 years teaches him how to use a board saw. October 1908 – Peru, Indiana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182255.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. My god, it stepped on a bee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182555.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Launching the James Caird from the shore of Elephant Island to South Georgia which is 800 nautical away, April 24, 1916.
-The voyage of the James Caird was a journey of 800 mi from Elephant Island in the South Shetland Islands through the Southern Ocean to South Georgia, undertaken by Sir Ernest Shackleton and five companions to obtain rescue for the main body of the stranded Imperial Trans-Antarctic Expedition of 1914–1917.
-
-Polar historians regard the voyage of the crew in a 22.5-foot (6.9 m) ship’s boat through the Furious Fifties as one of the greatest small-boat journeys ever completed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182245.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182563.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. A Wehrmacht veteran teaches Hitler Youth boys how to use a Panzerfaust. The badges on his sleeve represent enemy tanks destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182256.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. A drive in the summer time is all the therapy a man needs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182564.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The Kamloops Indian Residential School ran by the Catholic Church (1937).
-Last year they found 215 unmarked graves at this school. Likely at least a few of these children never made it home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182257.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182567.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182579.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182568.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182569.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182572.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182573.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182574.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182575.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182576.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182577.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. If some ever sends me something this stupid Ill delete their number. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182578.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The truth was right in front of us the entire time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182581.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">25 Facts You Never Knew About Space Cowboy Harrison Ford</a><br>
+## <a href="#linky16" id="linky15">25 Facts You Never Knew About Space Cowboy Harrison Ford</a><br>
 
 <span style="font-size:4em">1. Harrison Ford was frozen in The Empire Strikes Back because, unlike Carrie Fisher and Mark Hamill, Ford had only signed on for two films. After the success of Raiders of the Lost Ark, Lucas didnt think Ford would return for the 3rd Star Wars film, but left him frozen just in case.-u/wjbc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182388.jpg" style="width:100%"><br>
 
@@ -1168,6 +1062,112 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 <span style="font-size:4em">24. Harrison Fords 4th time playing the role of Indiana Jones wasnt in the 4th movie.-u/MADNESS_NH97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182410.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. Harrison Ford and Sean Connery filmed their conversation scenes onboard the Zeppelin in Indiana Jones and the Last Crusade without pants on, because of the hot set.-u/vienna95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182404.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">25 Facts About Math Genius Albert Einstein</a><br>
+
+<span style="font-size:4em">1. The identity politics of the Nazi Party led them to marginalize Albert Einsteins quantum physics as Jewish Physics, which prevented Nazi Germany from pursuing an effective nuclear weapons program.
+
+-u/JimCalinaya
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. As a result of the Baby Einstein franchise of videos and books being named after Albert Einstein, royalties paid to his estate made Einstein one of the top five earning dead celebrities for a time.
+
+-u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In 1931 Albert Einstein sent a letter to Sigmund Freud titled Why War? to better understand the psychological causes of war. Freud responded that biological evolution, inherent power differences within groups, and the paradox of peace (times of peace allow empires to be built) cause war.
+
+-u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Einsteins support for pacifist, civil rights and left-wing causes in Europe had drawn suspicion from J. Edgar Hoover’s FBI, and after his arrival to America, the Bureau launched what would eventually become a 22-year surveillance campaign since the FBI believed Einstein was a Soviet spy.
+
+-u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. While Einsteins theory of general relativity was complete by 1916 the theory was not seen as very applicable to physics. It took till the 1960s, nearly 50 years later, before the theory became central to modern physics.
+
+-u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Two guys flew a clock around the world in different directions and proved Einsteins theory of relativity - 50 years ago. The airline tickets (the clock needed seats too) and hotels cost $8000.
+
+-u/Burritoman_209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In 1921, when Einstein arrived in the United States he was given a heros welcome and was cheered by thousands of people.
+
+-u/WalkLikeAnEgyptian69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Einstein had a Year of Miracles. In one year, he published 3 papers that changed modern physics. The first about the particle theory of light (won him his Nobel Prize), the second led to people accepting the existence of atoms, and the third introduced special relativity (E=mc^2). He was 26.
+
+-u/rasye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Einstein bequeathed his personal archives, library and intellectual assets to the Hebrew University of Jerusalem in Israel.
+
+-u/MijTinmol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Einstein once gave a note in lieu of a tip to a Japanese courier. The note said, “a quiet and modest life brings more joy than a pursuit of success bound with constant unrest”. It sold in 2017 for $1.56m.
+
+-u/We-are-straw-dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The EPR paradox was proposed by Einstein. Quantum mechanics shows if you measure two quantum particles, they will be in opposite states no matter how far away they are. For this to be true, then information exchanged between the particles would have to be faster than the speed of light.
+
+-u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Evelyn Einstein, the granddaughter of Albert, was married to an anthropology professor who tried to prove the existence of Bigfoot. When Einstein attended Berkley in the 60s, she felt anxious because she couldnt tell whether men were interested in her because of her or her name
+
+-u/van_datascience</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Golds yellow color and inertness are explained by Einstein’s theory of relativity. Golds electrons travel so close to the speed of light that relativity contracts some of their orbits. This shrinks an energy gap so it absorbs blue light, and makes the outer electron less reactive.
+
+-u/ocdumbos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182367.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Albert Einstein spent more time as a Swiss citizen (54 years) than as a German citizen (36 years). In third place comes his American citizenship (15 years).
+
+-u/NicoE4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Einsteins view of gravity is not a force of attraction between matter, but a natural consequence of curved space and time caused by mass. Einsteins extraordinary claim is that there is no force of attraction between the Earth and moon; it is simply the moon following curved spacetime.
+
+-u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Robert Millikan disliked Einsteins results about light consisting of particles (photons) and carefully designed experiments to disprove them, but ended up confirming the particle nature of light, and earned a Nobel Prize for that.
+
+-u/SawOnGam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Einstein failing a math exam is a myth. He failed the entrance exam to Zurich Polytechnic because he did poorly on botany, zoology and language sections.
+
+-u/amansaggu26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When Albert Einstein and Mileva Marics marriage wasnt going well, Einstein left his family, moved to Berlin and began a relationship with his cousin, Elsa. Einstein and Maric divorced in 1919, with Einstein giving her his Nobel Prize as part of their divorce settlement.
+
+-u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. There is an official world record for time traveling. Its held by cosmonaut Sergei Krikalev, who has spent 803 days total in orbit around Earth. According to Einsteins theories of relativity, this would mean Sergei effectively has travelled about 0.02 seconds forward in time.
+
+-u/Al_Capwned13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. As a child, Einsteins Uncle Jakob introduced him to algebra and called it a merry science. He compared algebra to hunting a little animal. You didnt know the name of the animal, so you called it x. When you finally caught the animal you gave it the correct name
+
+-u/thepresident45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The orbit of Mercury follows a unique pattern different from other planets which remained unexplained until Einstein’s theory of bending space-time due to large nearby gravitation. Previous theory was there was another planet between mercury and the sun, Vulcan.
+
+-u/reduxde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Albert Einstein was Charlie Chaplins special guest at the 1931 premiere of Chaplins movie, City Lights. The two became friends, and Chaplin would go on to remember Einstein fondly in his autobiography.
+
+-u/SeizeOpportunity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182376.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The Theory of Relativity was an attempt to explain Machs principle, the fact that centrifugal force cannot be explained by any existing theory. Einstein failed to explain it, and remains the only known violation of relativity.
+
+-u/Legitimate_Mousse_29</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Einstein Wrote a 1935 New York Times Obituary upon Emmy Noethers demise to highlight her mathematical genius, which was oft-overlooked because of her gender.
+
+-u/CryptoCreativity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182378.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Einstein hated wearing socks. In a letter to his wife, he said that the reason he stopped wearing them was because his big toe always ended up making a hole in them.
+
+-u/Tokyono</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182379.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
