@@ -1,5 +1,5 @@
 # All ur Baums R belog to Uz<br>
-Last updated: 06/05/2022-00:11:32
+Last updated: 06/05/2022-01:11:32
 <br>
 ## <a href="#linky2" id="linky1">22 Coworkers Satan Himself Wouldn't Work With</a><br>
 
@@ -125,103 +125,7 @@ Last updated: 06/05/2022-00:11:32
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">46 Fun Pics for Random Kicks</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181504.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">25 Dank Memes to Wash It All Down</a><br>
+## <a href="#linky4" id="linky3">25 Dank Memes to Wash It All Down</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87178403.jpg" style="width:100%"><br>
 
@@ -272,6 +176,112 @@ Last updated: 06/05/2022-00:11:32
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87178426.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87178427.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">25 Facts About Math Genius Albert Einstein</a><br>
+
+<span style="font-size:4em">1. The identity politics of the Nazi Party led them to marginalize Albert Einsteins quantum physics as Jewish Physics, which prevented Nazi Germany from pursuing an effective nuclear weapons program.
+
+-u/JimCalinaya
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. As a result of the Baby Einstein franchise of videos and books being named after Albert Einstein, royalties paid to his estate made Einstein one of the top five earning dead celebrities for a time.
+
+-u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In 1931 Albert Einstein sent a letter to Sigmund Freud titled Why War? to better understand the psychological causes of war. Freud responded that biological evolution, inherent power differences within groups, and the paradox of peace (times of peace allow empires to be built) cause war.
+
+-u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Einsteins support for pacifist, civil rights and left-wing causes in Europe had drawn suspicion from J. Edgar Hoover’s FBI, and after his arrival to America, the Bureau launched what would eventually become a 22-year surveillance campaign since the FBI believed Einstein was a Soviet spy.
+
+-u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. While Einsteins theory of general relativity was complete by 1916 the theory was not seen as very applicable to physics. It took till the 1960s, nearly 50 years later, before the theory became central to modern physics.
+
+-u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Two guys flew a clock around the world in different directions and proved Einsteins theory of relativity - 50 years ago. The airline tickets (the clock needed seats too) and hotels cost $8000.
+
+-u/Burritoman_209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In 1921, when Einstein arrived in the United States he was given a heros welcome and was cheered by thousands of people.
+
+-u/WalkLikeAnEgyptian69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Einstein had a Year of Miracles. In one year, he published 3 papers that changed modern physics. The first about the particle theory of light (won him his Nobel Prize), the second led to people accepting the existence of atoms, and the third introduced special relativity (E=mc^2). He was 26.
+
+-u/rasye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Einstein bequeathed his personal archives, library and intellectual assets to the Hebrew University of Jerusalem in Israel.
+
+-u/MijTinmol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Einstein once gave a note in lieu of a tip to a Japanese courier. The note said, “a quiet and modest life brings more joy than a pursuit of success bound with constant unrest”. It sold in 2017 for $1.56m.
+
+-u/We-are-straw-dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The EPR paradox was proposed by Einstein. Quantum mechanics shows if you measure two quantum particles, they will be in opposite states no matter how far away they are. For this to be true, then information exchanged between the particles would have to be faster than the speed of light.
+
+-u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Evelyn Einstein, the granddaughter of Albert, was married to an anthropology professor who tried to prove the existence of Bigfoot. When Einstein attended Berkley in the 60s, she felt anxious because she couldnt tell whether men were interested in her because of her or her name
+
+-u/van_datascience</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Golds yellow color and inertness are explained by Einstein’s theory of relativity. Golds electrons travel so close to the speed of light that relativity contracts some of their orbits. This shrinks an energy gap so it absorbs blue light, and makes the outer electron less reactive.
+
+-u/ocdumbos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182367.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Albert Einstein spent more time as a Swiss citizen (54 years) than as a German citizen (36 years). In third place comes his American citizenship (15 years).
+
+-u/NicoE4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Einsteins view of gravity is not a force of attraction between matter, but a natural consequence of curved space and time caused by mass. Einsteins extraordinary claim is that there is no force of attraction between the Earth and moon; it is simply the moon following curved spacetime.
+
+-u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Robert Millikan disliked Einsteins results about light consisting of particles (photons) and carefully designed experiments to disprove them, but ended up confirming the particle nature of light, and earned a Nobel Prize for that.
+
+-u/SawOnGam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Einstein failing a math exam is a myth. He failed the entrance exam to Zurich Polytechnic because he did poorly on botany, zoology and language sections.
+
+-u/amansaggu26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When Albert Einstein and Mileva Marics marriage wasnt going well, Einstein left his family, moved to Berlin and began a relationship with his cousin, Elsa. Einstein and Maric divorced in 1919, with Einstein giving her his Nobel Prize as part of their divorce settlement.
+
+-u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. There is an official world record for time traveling. Its held by cosmonaut Sergei Krikalev, who has spent 803 days total in orbit around Earth. According to Einsteins theories of relativity, this would mean Sergei effectively has travelled about 0.02 seconds forward in time.
+
+-u/Al_Capwned13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. As a child, Einsteins Uncle Jakob introduced him to algebra and called it a merry science. He compared algebra to hunting a little animal. You didnt know the name of the animal, so you called it x. When you finally caught the animal you gave it the correct name
+
+-u/thepresident45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The orbit of Mercury follows a unique pattern different from other planets which remained unexplained until Einstein’s theory of bending space-time due to large nearby gravitation. Previous theory was there was another planet between mercury and the sun, Vulcan.
+
+-u/reduxde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Albert Einstein was Charlie Chaplins special guest at the 1931 premiere of Chaplins movie, City Lights. The two became friends, and Chaplin would go on to remember Einstein fondly in his autobiography.
+
+-u/SeizeOpportunity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182376.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The Theory of Relativity was an attempt to explain Machs principle, the fact that centrifugal force cannot be explained by any existing theory. Einstein failed to explain it, and remains the only known violation of relativity.
+
+-u/Legitimate_Mousse_29</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Einstein Wrote a 1935 New York Times Obituary upon Emmy Noethers demise to highlight her mathematical genius, which was oft-overlooked because of her gender.
+
+-u/CryptoCreativity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182378.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Einstein hated wearing socks. In a letter to his wife, he said that the reason he stopped wearing them was because his big toe always ended up making a hole in them.
+
+-u/Tokyono</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182379.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -428,7 +438,297 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">35 Most Sociopathic Ways People Were Fired</a><br>
+## <a href="#linky9" id="linky8">Weekend Meme Roundup For Humor Enthusiasts </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182552.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. *eats shredded cheese at 3am* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182565.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Thats enough of that. Talk to you boys next week. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182556.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182557.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182558.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182559.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182560.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. These women deff spit in the food. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182570.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182561.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182553.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. And it never gets old. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182562.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My god, it stepped on a bee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182563.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A drive in the summer time is all the therapy a man needs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182564.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182567.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182579.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182568.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182569.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182572.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182573.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182574.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182575.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182576.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182577.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. If some ever sends me something this stupid Ill delete their number. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182578.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The truth was right in front of us the entire time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182581.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">47 Pics of Things that are Just Plain Awesome</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182955.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182963.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182966.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182969.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182977.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">38 Comments That Had a Sniper's Accuracy</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022303/87183101/87180936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022212/87183091/87166718.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022201/87183089/87166710.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022138/87183087/87166708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022150/87183088/87166713.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022208/87183090/87166709.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022219/87183093/87166723.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022319/87183104/87180939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022222/87183094/87166722.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022252/87183099/87180933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022230/87183095/87166724.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022234/87183096/87166727.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022241/87183097/87170128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022245/87183098/87170172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022256/87183100/87180934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022307/87183102/87180937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022314/87183103/87180938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022325/87183105/87180942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022331/87183106/87180944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022336/87183107/87180948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022341/87183108/87180951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022348/87183109/87180956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022352/87183110/87180957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182916.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182925.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182912.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182909.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182910.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182911.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182921.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182913.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182922.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182906.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182917.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182919.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182924.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182920.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182923.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">22 Infographics That Might Come in Handy Someday</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182201.gif" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182222.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">35 Most Sociopathic Ways People Were Fired</a><br>
 
 <span style="font-size:4em">1. I worked at a Chiropractic office once. One if the girls found out she was being fired when she was on Craigslist looking for other jobs and found her job posted for another X-ray technician. She came to work pissed and stripped off her scrubs in front everyone and walked out in her undies. My hero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182812.jpg" style="width:100%"><br>
 
@@ -573,377 +873,7 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">47 Pics of Things that are Just Plain Awesome</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182977.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">35 Photoshopped Memes to Tickle Your Pickle</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182094.gif" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182108.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">38 Comments That Had a Sniper's Accuracy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022303/87183101/87180936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022212/87183091/87166718.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022201/87183089/87166710.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022138/87183087/87166708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022150/87183088/87166713.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022208/87183090/87166709.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022219/87183093/87166723.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022319/87183104/87180939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022222/87183094/87166722.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022252/87183099/87180933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022230/87183095/87166724.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022234/87183096/87166727.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022241/87183097/87170128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022245/87183098/87170172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022256/87183100/87180934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022307/87183102/87180937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022314/87183103/87180938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022325/87183105/87180942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022331/87183106/87180944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022336/87183107/87180948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022341/87183108/87180951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022348/87183109/87180956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022352/87183110/87180957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182916.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182925.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182912.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182909.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182910.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182911.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182921.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182913.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182922.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182906.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182917.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182919.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182924.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182920.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182923.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Facts You Never Knew About Space Cowboy Harrison Ford</a><br>
-
-<span style="font-size:4em">1. Harrison Ford was frozen in The Empire Strikes Back because, unlike Carrie Fisher and Mark Hamill, Ford had only signed on for two films. After the success of Raiders of the Lost Ark, Lucas didnt think Ford would return for the 3rd Star Wars film, but left him frozen just in case.-u/wjbc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Prior to establishing an acting career, Harrison Ford worked as a roadie for The Doors. He stated that after the job was done he was was one step away from joining a Jesuit monastery and that he couldnt keep up with those guys. It was too much.-u/Stonewalled89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Bill Murray and Harrison Ford were considered for the role of Batman and Willem Dafoe was falsely reported to be considered for the Joker.-u/Movie_Advance_101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Steven Spielberg, while filming Raiders of the Lost Ark in Tunisia, avoided the dysentery that afflicted Harrison Ford & most of the cast & crew. Spielbergs secret weapon? The suitcases full of SpaghettiOs he brought with him on the shoot.-u/AintEverLucky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Harrison Ford got his ear pierced at the popular preteen store, Claire’s Accessories. After the piercing he signed a notepad to the woman who pierced his ear: To Tavora. You made a hole in me. Harrison Ford.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. George Lucas didn’t want Harrison Ford to play Indiana Jones because he didn’t want them to become known as a pair like DeNiro and Scorsese. Lucas and Spielberg thought Tom Selleck was perfect for the part but he had already filmed the pilot “Magnum P.I.” and couldn’t get out of the contract-u/SappyGilmore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Raiders of the Lost Ark was originally going to have an elaborate fight scene between Indiana Jones and a master swordsman. But Harrison Ford was ill so they just had Indy pull out a gun and shoot him instead.-u/Mr-Thursday</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Harrison Ford made $10,000 for A New Hope and $20,000,000 for The Force Awakens-u/Threnulak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. French filmmaker Jacques Demy chose Harrison Ford for the lead role of his first American film, Model Shop (1969), but the head of Columbia Pictures thought Ford had no future in the film business, and told Demy to hire a more experienced actor-u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In Star Wars: Episode V – The Empire Strikes Back, Han Solos I know reply when Princess Leia professed her love to him was improvised by Harrison Ford on the spot, as he felt that the original line (I love you too) doesnt effectively suit Hans characterization.-u/EnoughPM2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. There are 2 stars dedicated to Harrison Ford on the Hollywood walk of fame. Harrison Ford the star of Indiana Jones / Star Wars, and Harrison Ford the star of the silent movie era 1915-1932.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182397.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Harrison Ford, Chevy Chase, and Bill Murray were main actors considered to play Eddie Valiant in Who Framed Roger Rabbits. They did not get it because Fords price was too high, Chase was not interested, and Murray never got the message and was dismayed he missed out on his careers biggest role.-u/TrendWarrior101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. On the list of celebrity plane crashes in the last 20 years, Harrison Ford is the only one who has been in more than one. Hes been in 4.-u/GodNamedBob</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Rob Reiner attempted to buy the rights to the movie Shawshank Redemption from Frank Darabont. If he had succeeded, Red and Andy would have been played by Harrison Ford and Tom Cruise respectively.-u/BaconReceptacle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Due to the explosive popularity following the release of A New Hope, the cast was thrusted into stardom so quickly that when Harrison Ford went to a record store to buy an album one day, enthusiastic fans tore half his shirt off.-u/Soft_Light</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Harrison Ford, wholl play Indiana Jones in a 2023 sequel, is actually a year older than the actor who played old Indy on the 1990s TV series The Young Indiana Jones Chronicles.-u/PikesPique</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Harrison Ford has personally provided emergency helicopter services at the behest of local authorities multiple times, in one instance rescuing a hiker overcome by dehydration in Jackson, Wyoming-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Hollywood father-son duo Sean Connery and Harrison Ford are only 12 years apart in age.-u/zmanoomzaki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Harrison Ford isnt grumpy in all his interviews, he actually suffers from anxiety and a fear of public speaking.-u/WhiteRun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Ian McDiarmid (The Emperor) was only 38 years old when Return of the Jedi was released (Harrison Ford is older then him)-u/speence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. All In The Family star Rob Reiner wasnt the first choice for the son-in-law Mike (Meathead), it was Harrison Ford.-u/mrrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Harrison Ford declined the lead role of Benjamin Martin in The Patriot, feeling the script had boiled the Revolutionary War down to a one-mans-revenge melodrama.-u/SHIT_DOWN_MY_PEEHOLE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The coat that Harrison Ford wears in Han Solos Hoth scenes in The Empire Strikes Back is actually brown. While the coat may appear blue, this is an example of “color constancy: the mental models we have of what certain colors should look like depending on the environment they are in.-u/ralphbernardo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Harrison Fords 4th time playing the role of Indiana Jones wasnt in the 4th movie.-u/MADNESS_NH97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Harrison Ford and Sean Connery filmed their conversation scenes onboard the Zeppelin in Indiana Jones and the Last Crusade without pants on, because of the hot set.-u/vienna95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182404.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Weekend Meme Roundup For Humor Enthusiasts </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182552.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. *eats shredded cheese at 3am* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182565.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Thats enough of that. Talk to you boys next week. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182556.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182557.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182558.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182559.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182560.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. These women deff spit in the food. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182570.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182561.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182553.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. And it never gets old. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182562.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My god, it stepped on a bee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182563.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A drive in the summer time is all the therapy a man needs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182564.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182567.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182579.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182568.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182569.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182572.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182573.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182574.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182575.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182576.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182577.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. If some ever sends me something this stupid Ill delete their number. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182578.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The truth was right in front of us the entire time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87182581.jpeg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Savage Memes to Scratch Your Funny Bone </a><br>
+## <a href="#linky14" id="linky13">Savage Memes to Scratch Your Funny Bone </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182453.jpg" style="width:100%"><br>
 
@@ -995,161 +925,7 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">25 Facts About Math Genius Albert Einstein</a><br>
-
-<span style="font-size:4em">1. The identity politics of the Nazi Party led them to marginalize Albert Einsteins quantum physics as Jewish Physics, which prevented Nazi Germany from pursuing an effective nuclear weapons program.
-
--u/JimCalinaya
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. As a result of the Baby Einstein franchise of videos and books being named after Albert Einstein, royalties paid to his estate made Einstein one of the top five earning dead celebrities for a time.
-
--u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In 1931 Albert Einstein sent a letter to Sigmund Freud titled Why War? to better understand the psychological causes of war. Freud responded that biological evolution, inherent power differences within groups, and the paradox of peace (times of peace allow empires to be built) cause war.
-
--u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Einsteins support for pacifist, civil rights and left-wing causes in Europe had drawn suspicion from J. Edgar Hoover’s FBI, and after his arrival to America, the Bureau launched what would eventually become a 22-year surveillance campaign since the FBI believed Einstein was a Soviet spy.
-
--u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. While Einsteins theory of general relativity was complete by 1916 the theory was not seen as very applicable to physics. It took till the 1960s, nearly 50 years later, before the theory became central to modern physics.
-
--u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Two guys flew a clock around the world in different directions and proved Einsteins theory of relativity - 50 years ago. The airline tickets (the clock needed seats too) and hotels cost $8000.
-
--u/Burritoman_209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In 1921, when Einstein arrived in the United States he was given a heros welcome and was cheered by thousands of people.
-
--u/WalkLikeAnEgyptian69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Einstein had a Year of Miracles. In one year, he published 3 papers that changed modern physics. The first about the particle theory of light (won him his Nobel Prize), the second led to people accepting the existence of atoms, and the third introduced special relativity (E=mc^2). He was 26.
-
--u/rasye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Einstein bequeathed his personal archives, library and intellectual assets to the Hebrew University of Jerusalem in Israel.
-
--u/MijTinmol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Einstein once gave a note in lieu of a tip to a Japanese courier. The note said, “a quiet and modest life brings more joy than a pursuit of success bound with constant unrest”. It sold in 2017 for $1.56m.
-
--u/We-are-straw-dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The EPR paradox was proposed by Einstein. Quantum mechanics shows if you measure two quantum particles, they will be in opposite states no matter how far away they are. For this to be true, then information exchanged between the particles would have to be faster than the speed of light.
-
--u/HotFlamingo7676</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Evelyn Einstein, the granddaughter of Albert, was married to an anthropology professor who tried to prove the existence of Bigfoot. When Einstein attended Berkley in the 60s, she felt anxious because she couldnt tell whether men were interested in her because of her or her name
-
--u/van_datascience</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Golds yellow color and inertness are explained by Einstein’s theory of relativity. Golds electrons travel so close to the speed of light that relativity contracts some of their orbits. This shrinks an energy gap so it absorbs blue light, and makes the outer electron less reactive.
-
--u/ocdumbos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182367.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Albert Einstein spent more time as a Swiss citizen (54 years) than as a German citizen (36 years). In third place comes his American citizenship (15 years).
-
--u/NicoE4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Einsteins view of gravity is not a force of attraction between matter, but a natural consequence of curved space and time caused by mass. Einsteins extraordinary claim is that there is no force of attraction between the Earth and moon; it is simply the moon following curved spacetime.
-
--u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Robert Millikan disliked Einsteins results about light consisting of particles (photons) and carefully designed experiments to disprove them, but ended up confirming the particle nature of light, and earned a Nobel Prize for that.
-
--u/SawOnGam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Einstein failing a math exam is a myth. He failed the entrance exam to Zurich Polytechnic because he did poorly on botany, zoology and language sections.
-
--u/amansaggu26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When Albert Einstein and Mileva Marics marriage wasnt going well, Einstein left his family, moved to Berlin and began a relationship with his cousin, Elsa. Einstein and Maric divorced in 1919, with Einstein giving her his Nobel Prize as part of their divorce settlement.
-
--u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. There is an official world record for time traveling. Its held by cosmonaut Sergei Krikalev, who has spent 803 days total in orbit around Earth. According to Einsteins theories of relativity, this would mean Sergei effectively has travelled about 0.02 seconds forward in time.
-
--u/Al_Capwned13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. As a child, Einsteins Uncle Jakob introduced him to algebra and called it a merry science. He compared algebra to hunting a little animal. You didnt know the name of the animal, so you called it x. When you finally caught the animal you gave it the correct name
-
--u/thepresident45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The orbit of Mercury follows a unique pattern different from other planets which remained unexplained until Einstein’s theory of bending space-time due to large nearby gravitation. Previous theory was there was another planet between mercury and the sun, Vulcan.
-
--u/reduxde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Albert Einstein was Charlie Chaplins special guest at the 1931 premiere of Chaplins movie, City Lights. The two became friends, and Chaplin would go on to remember Einstein fondly in his autobiography.
-
--u/SeizeOpportunity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182376.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The Theory of Relativity was an attempt to explain Machs principle, the fact that centrifugal force cannot be explained by any existing theory. Einstein failed to explain it, and remains the only known violation of relativity.
-
--u/Legitimate_Mousse_29</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Einstein Wrote a 1935 New York Times Obituary upon Emmy Noethers demise to highlight her mathematical genius, which was oft-overlooked because of her gender.
-
--u/CryptoCreativity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182378.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Einstein hated wearing socks. In a letter to his wife, he said that the reason he stopped wearing them was because his big toe always ended up making a hole in them.
-
--u/Tokyono</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182379.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">22 Infographics That Might Come in Handy Someday</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182201.gif" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182222.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">12 People Who Might Regret Asking to Get Roasted</a><br>
+## <a href="#linky15" id="linky14">12 People Who Might Regret Asking to Get Roasted</a><br>
 
 <span style="font-size:4em">1. Turned 18 a month ago and just graduated from a private high school. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/111016/87182002/get-roasted-35.jpg" style="width:100%"><br>
 
@@ -1238,6 +1014,230 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 <span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110253/87181998/getroasted40.png" style="width:100%"><br>
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/02/110256/87181999/getroasted41.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">35 Photoshopped Memes to Tickle Your Pickle</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182094.gif" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182108.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">46 Fun Pics for Random Kicks</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87181504.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">25 Facts You Never Knew About Space Cowboy Harrison Ford</a><br>
+
+<span style="font-size:4em">1. Harrison Ford was frozen in The Empire Strikes Back because, unlike Carrie Fisher and Mark Hamill, Ford had only signed on for two films. After the success of Raiders of the Lost Ark, Lucas didnt think Ford would return for the 3rd Star Wars film, but left him frozen just in case.-u/wjbc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Prior to establishing an acting career, Harrison Ford worked as a roadie for The Doors. He stated that after the job was done he was was one step away from joining a Jesuit monastery and that he couldnt keep up with those guys. It was too much.-u/Stonewalled89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Bill Murray and Harrison Ford were considered for the role of Batman and Willem Dafoe was falsely reported to be considered for the Joker.-u/Movie_Advance_101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Steven Spielberg, while filming Raiders of the Lost Ark in Tunisia, avoided the dysentery that afflicted Harrison Ford & most of the cast & crew. Spielbergs secret weapon? The suitcases full of SpaghettiOs he brought with him on the shoot.-u/AintEverLucky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Harrison Ford got his ear pierced at the popular preteen store, Claire’s Accessories. After the piercing he signed a notepad to the woman who pierced his ear: To Tavora. You made a hole in me. Harrison Ford.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. George Lucas didn’t want Harrison Ford to play Indiana Jones because he didn’t want them to become known as a pair like DeNiro and Scorsese. Lucas and Spielberg thought Tom Selleck was perfect for the part but he had already filmed the pilot “Magnum P.I.” and couldn’t get out of the contract-u/SappyGilmore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Raiders of the Lost Ark was originally going to have an elaborate fight scene between Indiana Jones and a master swordsman. But Harrison Ford was ill so they just had Indy pull out a gun and shoot him instead.-u/Mr-Thursday</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Harrison Ford made $10,000 for A New Hope and $20,000,000 for The Force Awakens-u/Threnulak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. French filmmaker Jacques Demy chose Harrison Ford for the lead role of his first American film, Model Shop (1969), but the head of Columbia Pictures thought Ford had no future in the film business, and told Demy to hire a more experienced actor-u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In Star Wars: Episode V – The Empire Strikes Back, Han Solos I know reply when Princess Leia professed her love to him was improvised by Harrison Ford on the spot, as he felt that the original line (I love you too) doesnt effectively suit Hans characterization.-u/EnoughPM2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. There are 2 stars dedicated to Harrison Ford on the Hollywood walk of fame. Harrison Ford the star of Indiana Jones / Star Wars, and Harrison Ford the star of the silent movie era 1915-1932.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182397.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Harrison Ford, Chevy Chase, and Bill Murray were main actors considered to play Eddie Valiant in Who Framed Roger Rabbits. They did not get it because Fords price was too high, Chase was not interested, and Murray never got the message and was dismayed he missed out on his careers biggest role.-u/TrendWarrior101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. On the list of celebrity plane crashes in the last 20 years, Harrison Ford is the only one who has been in more than one. Hes been in 4.-u/GodNamedBob</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Rob Reiner attempted to buy the rights to the movie Shawshank Redemption from Frank Darabont. If he had succeeded, Red and Andy would have been played by Harrison Ford and Tom Cruise respectively.-u/BaconReceptacle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Due to the explosive popularity following the release of A New Hope, the cast was thrusted into stardom so quickly that when Harrison Ford went to a record store to buy an album one day, enthusiastic fans tore half his shirt off.-u/Soft_Light</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Harrison Ford, wholl play Indiana Jones in a 2023 sequel, is actually a year older than the actor who played old Indy on the 1990s TV series The Young Indiana Jones Chronicles.-u/PikesPique</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Harrison Ford has personally provided emergency helicopter services at the behest of local authorities multiple times, in one instance rescuing a hiker overcome by dehydration in Jackson, Wyoming-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hollywood father-son duo Sean Connery and Harrison Ford are only 12 years apart in age.-u/zmanoomzaki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Harrison Ford isnt grumpy in all his interviews, he actually suffers from anxiety and a fear of public speaking.-u/WhiteRun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Ian McDiarmid (The Emperor) was only 38 years old when Return of the Jedi was released (Harrison Ford is older then him)-u/speence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. All In The Family star Rob Reiner wasnt the first choice for the son-in-law Mike (Meathead), it was Harrison Ford.-u/mrrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Harrison Ford declined the lead role of Benjamin Martin in The Patriot, feeling the script had boiled the Revolutionary War down to a one-mans-revenge melodrama.-u/SHIT_DOWN_MY_PEEHOLE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The coat that Harrison Ford wears in Han Solos Hoth scenes in The Empire Strikes Back is actually brown. While the coat may appear blue, this is an example of “color constancy: the mental models we have of what certain colors should look like depending on the environment they are in.-u/ralphbernardo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Harrison Fords 4th time playing the role of Indiana Jones wasnt in the 4th movie.-u/MADNESS_NH97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Harrison Ford and Sean Connery filmed their conversation scenes onboard the Zeppelin in Indiana Jones and the Last Crusade without pants on, because of the hot set.-u/vienna95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182404.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
