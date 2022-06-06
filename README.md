@@ -1,5 +1,5 @@
 # All ur Baums R belog to Uz<br>
-Last updated: 06/06/2022-04:11:31
+Last updated: 06/06/2022-05:11:31
 <br>
 ## <a href="#linky2" id="linky1">Entitled Client Gets a Full Refund For a Video But Still Thinks They Can Use It</a><br>
 
@@ -25,199 +25,59 @@ Last updated: 06/06/2022-04:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Incredible Facts About America's Father George Washington</a><br>
+## <a href="#linky3" id="linky2">Savage Memes to Scratch Your Funny Bone </a><br>
 
-<span style="font-size:4em">1. The portrait of George Washington on the one-dollar bill comes from an unfinished portrait containing only his face, called the Athenaeum Portrait.-u/piponwa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178295.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The mammoth jack is a huge breed of donkey developed in the US. A pet project of George Washington and its ears can be 33 inches-u/KnightofForestsWild</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178296.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. To be fair, I would do the same thing. Just peace and quiet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In Hawaiian Shinto shrines, George Washington is worshiped as a kami.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178297.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Shes in major trouble now. We all know where this goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The Founding Fathers had a love for ice cream. Thomas Jefferson crafted an 18-step recipe for vanilla ice cream that is housed in the Library of Congress. George Washington was said to have spent $200 on ice cream in the summer of 1790.-u/ronache_9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178298.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The first blow of the Seven Years War was triggered by a 21-year-old Colonel and his ambush squad that attempted (and failed) to drive out French forces from the Ohio Valley. The newly appointed officer was none other than future president George Washington.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178299.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Why not just have them sit on your lap? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182457.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. George Washington was born in Virginia on February 11, 1731 according to the then-used Julian calendar. In 1752, however, Britain and all its colonies adopted the Gregorian calendar which moved Washingtons birthday a year and 11 days to February 22, 1732.-u/thisisnprnews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178300.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Learn to code </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. George Washington never wore a wig. He was a natural redhead and powdered it white to look more fashionable.-u/blindsniperx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178301.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. George Washington was essentially killed by his doctors. Due to them draining 40% of his blood ultimately leading to his death.-u/ComplexIngenuity11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178302.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Bees are now fish. Yup its the law. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. George Washingtons official portrait has a spelling error: one of the books in the painting is titled Laws and Constitution of the United S-a-t-e-s-u/SettyDub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178303.png" style="width:100%"><br>
+<span style="font-size:4em">9. I know the pain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The Russian victory over Napoleon using attrition warfare was inspired by George Washingtons victory over the British in the American Revolution.-u/Bergdorf0221</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178304.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In 1830, an attempt was made to steal the skull from the remains of American president George Washington, which resided in a tomb at Mount Vernon. However, the thief mistakenly stole the skull of Supreme Court Justice Bushrod Washington, who also happened to be the former Washingtons Nephew-u/FranklinDRoosevelt32</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178294.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. This is our political stance on most issues. Beside the bad ones. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. During his lifetime, George Washington owned almost every group of dog currently recognized by the American Kennel Club. Many of his dogs had interesting names too, such as: Madame Moose, Truelove, Tipsy, Mopesy, and Ragman.-u/jesuisdeepak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178305.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. George Washington declined to run for a third term of office because he believed his death in office would create an image of a lifetime appointment. The precedent of a two-term limit was created by his retirement from office.-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178306.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. George Washington was an imposing figure at over 6 feet tall and 225 pounds. The average man at the time was only 56.-u/TheManInTheShack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178307.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. When George Washington died, Napoleon Bonaparte of France gave a personal eulogy and ordered a ten-day mourning period for France.-u/theirishcoffeemaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178308.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Well when you say it like that, you start making a lot of sense. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. During the Revolution, British Capt. Patrick Ferguson refused an opportunity to shoot a passing American officer in the back. Historians say theres a very good chance that the officer was George Washington. Ferguson was later killed at the battle of Kings Mountain in South Carolina.-u/p38-lightning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178309.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. George Washington instituted a system of review at Mount Vernon to prevent his slaves from being whipped frequently. He generally preferred admonition for disobedience and incentives for good work. Slaves would occasionally receive cash payments for good behavior.-u/sneedsformerlychucks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178310.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Yo these eggs are about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. George Washington decorated most of the rooms at Mount Vernon, while his wife Martha only designed her private bedchamber.-u/valandsend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178311.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. George Washingtons salary as a US President was 2% of the total US budget at that time.-u/thatWhiteBear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178312.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. See, Mars wants nothing to do with us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. In 1786, the President of the Continental Congress wrote on behalf of the U.S. government to Prince Henry, younger brother of the Prussian king, Frederick the Great, and asked him to become King of the USA, but he refused. They also considered making George Washington King, but he also refused.-u/dustofoblivion123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178313.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Hmm, well this is a nice room, maybe Ill stay a while. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. When George Washington died in 1799, the British Royal Navy was ordered to lower their flags to half-mast. The London Morning Chronicle opined that ‘The whole range of history does not present to our view a character upon which we can dwell with such entire and unmixed admiration.-u/AnUnlikelyUsurper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178314.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Super Straight. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. George Washington moved his slaves in and out of Pennsylvania every 6 months to avoid them taking advantage of a law that meant slaves residing in the state longer than half a year could claim freedom-u/Lilybaum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178315.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. In 1861, Japan had an illustrated history of America which depicted, among other things, John Adams stabbing a giant snake, and George Washington punching a Tiger.-u/notbobby125</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178316.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. There is no other way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. George Washington borrowed The Law of Nations from the New York Society Library and didnt return it. Mount Vernon estate returned the book in 2010 (221 years overdue) after the Head librarian joked they were not actively pursuing the overdue fines, but they would appreciate having it back.-u/Plazomicin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. In order to set a precedent for the future of the office, George Washington chose to be called Mr. President instead of the senate proposed titles of His Excellency or His Highness the President-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178318.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182476.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">27 Pics Packed to the Brim with NOPE</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010451/87183556/87179234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010432/87183553/87179218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010439/87183554/87179224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010427/87183552/87179216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010443/87183555/87179222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183545.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">38 Comments That Had a Sniper's Accuracy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022303/87183101/87180936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022212/87183091/87166718.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022201/87183089/87166710.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022138/87183087/87166708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022150/87183088/87166713.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022208/87183090/87166709.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022219/87183093/87166723.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022319/87183104/87180939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022222/87183094/87166722.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022252/87183099/87180933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022230/87183095/87166724.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022234/87183096/87166727.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022241/87183097/87170128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022245/87183098/87170172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022256/87183100/87180934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022307/87183102/87180937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022314/87183103/87180938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022325/87183105/87180942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022331/87183106/87180944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022336/87183107/87180948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022341/87183108/87180951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022348/87183109/87180956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022352/87183110/87180957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182916.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182925.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182912.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182909.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182910.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182911.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182921.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182913.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182922.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182906.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182917.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182919.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182924.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182920.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182923.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">35 Most Sociopathic Ways People Were Fired</a><br>
+## <a href="#linky4" id="linky3">35 Most Sociopathic Ways People Were Fired</a><br>
 
 <span style="font-size:4em">1. I worked at a Chiropractic office once. One if the girls found out she was being fired when she was on Craigslist looking for other jobs and found her job posted for another X-ray technician. She came to work pissed and stripped off her scrubs in front everyone and walked out in her undies. My hero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182812.jpg" style="width:100%"><br>
 
@@ -362,61 +222,61 @@ That means I dont have to give you a reason, they are just letting you go. Then 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">25 Facts You Never Knew About Space Cowboy Harrison Ford</a><br>
+## <a href="#linky5" id="linky4">Incredible Facts About America's Father George Washington</a><br>
 
-<span style="font-size:4em">1. Harrison Ford was frozen in The Empire Strikes Back because, unlike Carrie Fisher and Mark Hamill, Ford had only signed on for two films. After the success of Raiders of the Lost Ark, Lucas didnt think Ford would return for the 3rd Star Wars film, but left him frozen just in case.-u/wjbc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182388.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The portrait of George Washington on the one-dollar bill comes from an unfinished portrait containing only his face, called the Athenaeum Portrait.-u/piponwa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Prior to establishing an acting career, Harrison Ford worked as a roadie for The Doors. He stated that after the job was done he was was one step away from joining a Jesuit monastery and that he couldnt keep up with those guys. It was too much.-u/Stonewalled89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182389.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The mammoth jack is a huge breed of donkey developed in the US. A pet project of George Washington and its ears can be 33 inches-u/KnightofForestsWild</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Bill Murray and Harrison Ford were considered for the role of Batman and Willem Dafoe was falsely reported to be considered for the Joker.-u/Movie_Advance_101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182390.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In Hawaiian Shinto shrines, George Washington is worshiped as a kami.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Steven Spielberg, while filming Raiders of the Lost Ark in Tunisia, avoided the dysentery that afflicted Harrison Ford & most of the cast & crew. Spielbergs secret weapon? The suitcases full of SpaghettiOs he brought with him on the shoot.-u/AintEverLucky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182387.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The Founding Fathers had a love for ice cream. Thomas Jefferson crafted an 18-step recipe for vanilla ice cream that is housed in the Library of Congress. George Washington was said to have spent $200 on ice cream in the summer of 1790.-u/ronache_9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178298.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Harrison Ford got his ear pierced at the popular preteen store, Claire’s Accessories. After the piercing he signed a notepad to the woman who pierced his ear: To Tavora. You made a hole in me. Harrison Ford.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182391.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The first blow of the Seven Years War was triggered by a 21-year-old Colonel and his ambush squad that attempted (and failed) to drive out French forces from the Ohio Valley. The newly appointed officer was none other than future president George Washington.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. George Lucas didn’t want Harrison Ford to play Indiana Jones because he didn’t want them to become known as a pair like DeNiro and Scorsese. Lucas and Spielberg thought Tom Selleck was perfect for the part but he had already filmed the pilot “Magnum P.I.” and couldn’t get out of the contract-u/SappyGilmore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182392.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. George Washington was born in Virginia on February 11, 1731 according to the then-used Julian calendar. In 1752, however, Britain and all its colonies adopted the Gregorian calendar which moved Washingtons birthday a year and 11 days to February 22, 1732.-u/thisisnprnews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Raiders of the Lost Ark was originally going to have an elaborate fight scene between Indiana Jones and a master swordsman. But Harrison Ford was ill so they just had Indy pull out a gun and shoot him instead.-u/Mr-Thursday</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182393.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. George Washington never wore a wig. He was a natural redhead and powdered it white to look more fashionable.-u/blindsniperx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178301.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Harrison Ford made $10,000 for A New Hope and $20,000,000 for The Force Awakens-u/Threnulak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182394.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. George Washington was essentially killed by his doctors. Due to them draining 40% of his blood ultimately leading to his death.-u/ComplexIngenuity11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178302.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. French filmmaker Jacques Demy chose Harrison Ford for the lead role of his first American film, Model Shop (1969), but the head of Columbia Pictures thought Ford had no future in the film business, and told Demy to hire a more experienced actor-u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182395.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. George Washingtons official portrait has a spelling error: one of the books in the painting is titled Laws and Constitution of the United S-a-t-e-s-u/SettyDub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178303.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. In Star Wars: Episode V – The Empire Strikes Back, Han Solos I know reply when Princess Leia professed her love to him was improvised by Harrison Ford on the spot, as he felt that the original line (I love you too) doesnt effectively suit Hans characterization.-u/EnoughPM2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182396.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Russian victory over Napoleon using attrition warfare was inspired by George Washingtons victory over the British in the American Revolution.-u/Bergdorf0221</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. There are 2 stars dedicated to Harrison Ford on the Hollywood walk of fame. Harrison Ford the star of Indiana Jones / Star Wars, and Harrison Ford the star of the silent movie era 1915-1932.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182397.png" style="width:100%"><br>
+<span style="font-size:4em">11. In 1830, an attempt was made to steal the skull from the remains of American president George Washington, which resided in a tomb at Mount Vernon. However, the thief mistakenly stole the skull of Supreme Court Justice Bushrod Washington, who also happened to be the former Washingtons Nephew-u/FranklinDRoosevelt32</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178294.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Harrison Ford, Chevy Chase, and Bill Murray were main actors considered to play Eddie Valiant in Who Framed Roger Rabbits. They did not get it because Fords price was too high, Chase was not interested, and Murray never got the message and was dismayed he missed out on his careers biggest role.-u/TrendWarrior101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182398.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. During his lifetime, George Washington owned almost every group of dog currently recognized by the American Kennel Club. Many of his dogs had interesting names too, such as: Madame Moose, Truelove, Tipsy, Mopesy, and Ragman.-u/jesuisdeepak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. On the list of celebrity plane crashes in the last 20 years, Harrison Ford is the only one who has been in more than one. Hes been in 4.-u/GodNamedBob</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182399.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. George Washington declined to run for a third term of office because he believed his death in office would create an image of a lifetime appointment. The precedent of a two-term limit was created by his retirement from office.-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178306.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Rob Reiner attempted to buy the rights to the movie Shawshank Redemption from Frank Darabont. If he had succeeded, Red and Andy would have been played by Harrison Ford and Tom Cruise respectively.-u/BaconReceptacle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182400.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. George Washington was an imposing figure at over 6 feet tall and 225 pounds. The average man at the time was only 56.-u/TheManInTheShack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178307.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Due to the explosive popularity following the release of A New Hope, the cast was thrusted into stardom so quickly that when Harrison Ford went to a record store to buy an album one day, enthusiastic fans tore half his shirt off.-u/Soft_Light</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182401.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. When George Washington died, Napoleon Bonaparte of France gave a personal eulogy and ordered a ten-day mourning period for France.-u/theirishcoffeemaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178308.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Harrison Ford, wholl play Indiana Jones in a 2023 sequel, is actually a year older than the actor who played old Indy on the 1990s TV series The Young Indiana Jones Chronicles.-u/PikesPique</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182402.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. During the Revolution, British Capt. Patrick Ferguson refused an opportunity to shoot a passing American officer in the back. Historians say theres a very good chance that the officer was George Washington. Ferguson was later killed at the battle of Kings Mountain in South Carolina.-u/p38-lightning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178309.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Harrison Ford has personally provided emergency helicopter services at the behest of local authorities multiple times, in one instance rescuing a hiker overcome by dehydration in Jackson, Wyoming-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182403.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. George Washington instituted a system of review at Mount Vernon to prevent his slaves from being whipped frequently. He generally preferred admonition for disobedience and incentives for good work. Slaves would occasionally receive cash payments for good behavior.-u/sneedsformerlychucks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Hollywood father-son duo Sean Connery and Harrison Ford are only 12 years apart in age.-u/zmanoomzaki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182411.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. George Washington decorated most of the rooms at Mount Vernon, while his wife Martha only designed her private bedchamber.-u/valandsend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Harrison Ford isnt grumpy in all his interviews, he actually suffers from anxiety and a fear of public speaking.-u/WhiteRun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182405.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. George Washingtons salary as a US President was 2% of the total US budget at that time.-u/thatWhiteBear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178312.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Ian McDiarmid (The Emperor) was only 38 years old when Return of the Jedi was released (Harrison Ford is older then him)-u/speence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182406.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. In 1786, the President of the Continental Congress wrote on behalf of the U.S. government to Prince Henry, younger brother of the Prussian king, Frederick the Great, and asked him to become King of the USA, but he refused. They also considered making George Washington King, but he also refused.-u/dustofoblivion123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178313.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. All In The Family star Rob Reiner wasnt the first choice for the son-in-law Mike (Meathead), it was Harrison Ford.-u/mrrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182407.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. When George Washington died in 1799, the British Royal Navy was ordered to lower their flags to half-mast. The London Morning Chronicle opined that ‘The whole range of history does not present to our view a character upon which we can dwell with such entire and unmixed admiration.-u/AnUnlikelyUsurper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Harrison Ford declined the lead role of Benjamin Martin in The Patriot, feeling the script had boiled the Revolutionary War down to a one-mans-revenge melodrama.-u/SHIT_DOWN_MY_PEEHOLE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182408.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. George Washington moved his slaves in and out of Pennsylvania every 6 months to avoid them taking advantage of a law that meant slaves residing in the state longer than half a year could claim freedom-u/Lilybaum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The coat that Harrison Ford wears in Han Solos Hoth scenes in The Empire Strikes Back is actually brown. While the coat may appear blue, this is an example of “color constancy: the mental models we have of what certain colors should look like depending on the environment they are in.-u/ralphbernardo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182409.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. In 1861, Japan had an illustrated history of America which depicted, among other things, John Adams stabbing a giant snake, and George Washington punching a Tiger.-u/notbobby125</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Harrison Fords 4th time playing the role of Indiana Jones wasnt in the 4th movie.-u/MADNESS_NH97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182410.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. George Washington borrowed The Law of Nations from the New York Society Library and didnt return it. Mount Vernon estate returned the book in 2010 (221 years overdue) after the Head librarian joked they were not actively pursuing the overdue fines, but they would appreciate having it back.-u/Plazomicin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Harrison Ford and Sean Connery filmed their conversation scenes onboard the Zeppelin in Indiana Jones and the Last Crusade without pants on, because of the hot set.-u/vienna95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87182404.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. In order to set a precedent for the future of the office, George Washington chose to be called Mr. President instead of the senate proposed titles of His Excellency or His Highness the President-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87178318.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">15 Historical Photos to Give You Chills</a><br>
+## <a href="#linky6" id="linky5">15 Historical Photos to Give You Chills</a><br>
 
 <span style="font-size:4em">1. The quartzite sarcophagus in the burial chamber of Tutankhamun. The winged arms of goddess Isis and Nephthys are outstretched to envelop the basin in a protective embrace. Photo: Harry Burton, 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182244.jpg" style="width:100%"><br>
 
@@ -457,7 +317,7 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">47 Pics of Things that are Just Plain Awesome</a><br>
+## <a href="#linky7" id="linky6">47 Pics of Things that are Just Plain Awesome</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182931.jpg" style="width:100%"><br>
 
@@ -555,7 +415,7 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">22 Coworkers Satan Himself Wouldn't Work With</a><br>
+## <a href="#linky8" id="linky7">22 Coworkers Satan Himself Wouldn't Work With</a><br>
 
 <span style="font-size:4em">1. While I was away from my desk, one of my coworkers scrambled my cubes and left me a nice little drawing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180982.jpg" style="width:100%"><br>
 
@@ -600,6 +460,144 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 <span style="font-size:4em">21. How my coworker puts his laptop while he washes his hands.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180980.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. How a coworker took half of the last doughnut at my friend’s office.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180981.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">27 Pics Packed to the Brim with NOPE</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010451/87183556/87179234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010432/87183553/87179218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010439/87183554/87179224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010427/87183552/87179216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/04/010443/87183555/87179222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183545.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">38 Comments That Had a Sniper's Accuracy</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022303/87183101/87180936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022212/87183091/87166718.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022201/87183089/87166710.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022138/87183087/87166708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022150/87183088/87166713.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022208/87183090/87166709.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022219/87183093/87166723.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022319/87183104/87180939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022222/87183094/87166722.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022252/87183099/87180933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022230/87183095/87166724.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022234/87183096/87166727.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022241/87183097/87170128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022245/87183098/87170172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022256/87183100/87180934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022307/87183102/87180937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022314/87183103/87180938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022325/87183105/87180942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022331/87183106/87180944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022336/87183107/87180948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022341/87183108/87180951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022348/87183109/87180956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/03/022352/87183110/87180957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182916.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182925.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182912.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182909.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182910.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182911.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182921.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182913.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182922.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182906.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182917.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182919.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182924.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182920.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87182923.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -707,113 +705,7 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">25 Attention Seeking People Lying on the Internet</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123320/87183955/87178150.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123258/87183953/87178149.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123309/87183954/87178151.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123331/87183956/87178152.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123334/87183957/87178154.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123338/87183958/87178153.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123408/87183964/87178161.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123343/87183959/87178155.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123347/87183960/87178156.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123351/87183961/87178158.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123357/87183962/87178159.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123402/87183963/87178160.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183947.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183948.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183950.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183949.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183938.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183939.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183944.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183940.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183943.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183942.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183945.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183946.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183951.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Savage Memes to Scratch Your Funny Bone </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. To be fair, I would do the same thing. Just peace and quiet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Shes in major trouble now. We all know where this goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Why not just have them sit on your lap? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182457.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Learn to code </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bees are now fish. Yup its the law. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I know the pain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This is our political stance on most issues. Beside the bad ones. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Well when you say it like that, you start making a lot of sense. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Yo these eggs are about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. See, Mars wants nothing to do with us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hmm, well this is a nice room, maybe Ill stay a while. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Super Straight. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. There is no other way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87182476.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Cruise Through the Day with a Big Batch of Cool Random Pics</a><br>
+## <a href="#linky12" id="linky11">Cruise Through the Day with a Big Batch of Cool Random Pics</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87177794.jpg" style="width:100%"><br>
 
@@ -911,7 +803,7 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">39 Funny Tweets and Memes Courtesy of Twitter</a><br>
+## <a href="#linky13" id="linky12">39 Funny Tweets and Memes Courtesy of Twitter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/124013/87183973/87183132.jpg" style="width:100%"><br>
 
@@ -993,7 +885,61 @@ Last year they found 215 unmarked graves at this school. Likely at least a few o
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">16 Historical Record-Setting Moments Caught On Camera </a><br>
+## <a href="#linky14" id="linky13">25 Attention Seeking People Lying on the Internet</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123320/87183955/87178150.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123258/87183953/87178149.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123309/87183954/87178151.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123331/87183956/87178152.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123334/87183957/87178154.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123338/87183958/87178153.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123408/87183964/87178161.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123343/87183959/87178155.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123347/87183960/87178156.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123351/87183961/87178158.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123357/87183962/87178159.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/123402/87183963/87178160.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183947.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183948.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183950.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183949.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183938.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183939.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183944.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183940.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183943.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183942.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183945.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183946.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183951.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">16 Historical Record-Setting Moments Caught On Camera </a><br>
 
 <span style="font-size:4em">1. The 1905 Black Sea Bass Record</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178105.jpg" style="width:100%"><br>
 
