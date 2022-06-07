@@ -1,7 +1,373 @@
 # All ur Baums R belog to Uz<br>
-Last updated: 06/07/2022-09:11:31
+Last updated: 06/07/2022-10:11:31
 <br>
-## <a href="#linky2" id="linky1">35 Wholesome Posts to Spread Good Vibes Today</a><br>
+## <a href="#linky2" id="linky1">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
+
+<span style="font-size:4em">1. I wonder how many times these tent pole were pulled down before this sign went up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Beware, the birds will poop in your mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Gotta love Google Maps. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. We dont know what happened here, but we do have some guesses. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This one is a classic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. John getting called out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. you know the story behind this sign didnt end well. Ouch. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Hey, whats your problem with the Danish? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Google Maps for the win. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Well, exhibit B will be a document from my doctor stating that Im both stupid and legally blind, so whats your next move? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183870.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">People Having the Worst Day Ever</a><br>
+
+<span style="font-size:4em">1. “Results from an allergy test – my body reacts to every type of local allergen!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I’m being over charged by insurance after my daughter was born. This is the pile of mail I have to go through to prove they’re ripping me off. Pear for scale.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My boss’s secretary quit this morning after delivering breakfast.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “So part of the automated chicken feeding system broke today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Someone managed to lose their new box of… lost-item trackers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Yesterday our neighbor’s 80′ locust tree gave us some live edge sky lights, a great view of the stars, and that Rainforest Cafe atmosphere that our living room had just always been missing. No injuries, dogs pissed the bed, life goes on..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My dad does the lottery every week, this is 4-5 months of losing tickets.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “For a month, I thought I lost my wedding ring on a cross country road trip. I called gas stations, pawn shops, searched lost and found post. Finally, I gave up ever seeing it again when we realized it was under my husbands deodorant!!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “$400 window replacement to steal a pair of $20 headphones I found at goodwill…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I’m starting to think this view isn’t worth golfers aiming directly at our homes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Boyfriend decided to try out a new hairdresser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “This is my view from the bathroom floor, looking at the hole in the ceiling I just fell through.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Son decided to swallow a nickel and turn $.05 into $4400.00.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Sold my iPad in public space at night in Minnesotan -10F temperature, turned out it’s fake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Is it funnier knowing that these are antidepressants?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My commute is 45 minutes. Just pulled up to the office, reached for my bags and…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “When it’s your stop and the doors open to this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “In ten seconds I’m going to discover the value of lifejackets and renter’s insurance.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “The Fedex deliveries in my area frequently get lost. Today someone found 300-400 boxes in a ravine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “I’m a solar roofer, and we are required to wear gloves while we work…..it’s only may.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184002.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Fresh Memes For Savage Humor Enthusiasts </a><br>
+
+<span style="font-size:4em">1. Whos excited for season three of The Boys? If you havent seen it yet, you are missing out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I would rather watch two YouTube ads than wait through the death star of tv commercials. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Small time YouTubers do a thankless job and you need to start putting some respect on their names. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh boy, the day youve all been waiting for. Now time to gp find my safely stored gun, away from ammo and unlock it before.. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Jana didnt know why her birthday party was such a hit. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183732.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. You know what, never mind. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Its the most hardship any of us have had to endure in years. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Why do they always get so horny at the worst possible times?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183738.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183743.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. *Shipping restrictions may apply* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Dont appropriate my culture. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Lmao, this is some classic dad humor right here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183748.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. Aww, shes so cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Lmao, bro look, Ive got thousands of pictures of birds right here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183751.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183753.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">Surreal Photographs of Rundown and Abandoned Places</a><br>
+
+<span style="font-size:4em">1. Ksar Nalut is an 11th century fortified granary located in Nalut District, Libya.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Former mansion of a cult leader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A cinema in northern Thailand that I shot in 2016 – abandoned since the mid 80’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. It happened just two days ago! I walked for 80 km through the desert just to see this beauty – an abandoned 60m heights space rocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The abandoned pyramid in Memphis, TN, before it was renovated into a Bass Pro Shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Abandoned Dunalastair Castle – SCOTLAND</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Abandoned car but make it cute (Oakland, CA)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Brand new Fiat 147 abandoned for 35 years in an old shed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Forgotten Treehouse in Redmond, Washington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Bannerman Castle, Beacon, NY</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My favorite thing in the world to do is to search on google maps for hours for abandoned places, then see the evolution from before it was abandoned to slowly deteriorating into a forgotten place. Not sure if it’s OC since I found the pics but didn’t take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Abandoned train in the mountains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Crypt, Scotland, UK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hashima Island in Nagasaki, Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A few days ago I posted about Energia in Baikonur cosmodrome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You could probably survive a nuclear blast in this fridge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. On New Year’s Eve 1993, this ocean liner left Greece for Thailand, towed by a tugboat. The tow lines broke during a storm, the ship was left adrift and, on 18 January 1994, it ran aground near Fuerteventura, Canary Islands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184607.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">The Most Gruesome Disasters People Ever Witnessed In School</a><br>
+
+<span style="font-size:4em">1. Witnessed the end of a girl being jumped by about 6 other girls in high school. Dont know what exactly they cut her face with but they tried to cut her eye out and did a pretty close job. Sadly she went blind in that eye. That was sophomore year and she graduated with us as the second highest GPA. The amount of blood that was there and the eye almost hanging out of her skull was just wild to see.
+
+-u/skeedlz
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. We used to spray soap on the floor in the shower and do penguin slides. One kid got a running start, jumped and slid across the floor on his chest full speed. Right up until he hit the black grip tape on the floor exiting the showers... Ripped one nipple clean off... Or should I say sanded one clean off.
+
+-u/Green420Basturd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Saw a kid die from cardiac arrest at wrestling practice. I was in 6th grade, he was a seventh-grader </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+We were doing a takedown drill. He and his partner were right next to me. He got taken down and stopped breathing. Turned purple. They rushed us out of the gym. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+Apparently, he had a hole in his heart and the doctors warned him not to do sports. RIP </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+-u/coci222</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Our female gym teacher was a tough lady, built similarly to WWEs Chyna if that helps paint a picture. Anyhow, kind of a rough school district in the city, and the gym teacher had just gotten this f*cking rough ass girl suspended for fighting. Upon rough ass girl returning to school, word was she was going to attack the gym teacher </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+And well, she did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Only this rough-ass girl, she had stitches in her face from the previous fight, and the gym teacher went right for the stitches, she grabbed them by the handful and just ripped the stitches right out of the girls face, right there in gym class. In self-defense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+ 
+-u/Scapular_Fin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My 8th-grade year, I saw a kid get run over by a school bus. He died later that day
+
+-u/spacebarthingy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Classmate turned his thumb inside out with a table saw. Blood didnt squirt, it just oozed out in big drops. Still picture one guy eating a chocolate cupcake while looking closely at the wound.
+
+-u/Nonamanadus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A guy in woodshop class turned up a lathe at too high a setting, had some boards glued together I think and wanted to make a bat or something. He revved it up and applied a chisel or something during the process, the wood blew apart and it gouged out one of his eyes. Blood everywhere.
+
+-u/privatemidnight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. A kid tripped during cross country practice and broke his arm. And by broke, I mean broke. About of the third of the way down the forearm it was bent 45 degrees. When he got up it was flopping like a dead fish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+ 
+Wasn’t any blood and the kid wasn’t screaming, either, according to him he couldn’t feel a thing. The juxtaposition of such an obviously bad injury with the kid casually laughing like “wow, my arm looks weird” was profoundly unsettling.
+
+-u/Karatekan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Our star basketball player died on the court during an afternoon practice - he had an undiagnosed heart condition and that was that. The rest of us players were shuffled into the other gymnasium as a coach grabbed a defibrillator, but at that point it was too late. It was a very sad and surreal experience.
+
+-u/GoFightFoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173575.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Kid had his neck broken in a wrestling match by a dude slamming him in a full nelson. Circa 2006, before phone cameras and such thankfully. His poor parents.
+
+-u/TheHeresyTrain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I watched two girls fight and one grabbed the other by the back of the head and ran her face along the concrete sidewalk. It happened so fast and was over before anyone could break it up. Needless to say the girl with the pavement facial lost the fight.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A kid grabbed some fries from another kids tray during lunch. Other kid leaps up, grabs him, and bangs his head into a metal railing until its bleeding. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+Also in the parking lot, a kid I barely knew pulled me aside and popped his trunk open. Inside were several AK47s. Not gruesome, but pretty surprising for the time. This was 1995.
+
+-u/BlackLetterLies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Someone threw an Arizona iced tea bottle at a kids face. Split him open about 6 inches.
+
+-u/DuFFman_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. About 12 at a swimming lesson, someone decided to show off by jumping off a board, with his speedo goggle’s on, hit the water and started screaming as one of his eyes had been sucked into the goggle, jeez a very short lesson, not sure if he lost it or not
+
+-u/Old-Ambassador-8143</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. During 4th grade, my elementary school had a tall rusted fence that blocked the schoolyard from the outside, and some kid tried to climb it to get a ball back. He slipped on top and his arm got stuck by the top of the railing, perforating his arm and cutting it deep almost from wrist to elbow. He collapsed from shock and loss of blood still stuck to the railing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+ 
+Fortunately, the fire department got there in less than 15 minutes and they got the kid out of it, saving him. He has this huge scar on his arm, but its alive, well, and moves his arm well. To this day I cant shake that image out of my mind.
+ 
+-u/_Didds_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173584.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">25 Questions You Should Never Ask Another Person</a><br>
+
+<span style="font-size:4em">1. Why cant you be like insert persons name? Well... Because I am not that persons name. -u/f_rice </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Why are you so quiet? -u/MrMagpie91</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Have you noticed youre going bald? -u/Relative-Ad-87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Why are you single? -u/GrouchyPuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. When in a relationship: Do you think [friend] is prettier than me? Or any related question of which you actually dont want to hear the answer to. -u/leonmarino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The same question over again, and really pressing the matter until the person gives you the answer that shocks ya. -u/djdjsksldbahehe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When is the baby due? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Is your daughter seeing anyone? -u/MorningLineDirt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Are you depressed or just want attention? -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. When did you put on all that extra weight? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. When are yall gonna break up? -u/PafflaxTP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “What’s the worst thing you’ve ever seen?” to any EMT/Paramedic/Firefighter….etc. I promise you it’s horrible and not something you’d want to think about. We don’t want to relive those memories, especially so unexpectedly. Ask about something funny instead. You’ll get a better answer. -u/shitscrubber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Are you in yet? -u/jabularich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Do you have a prettier sister? -u/paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. What, are you on your period or something? -u/Thibideaux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Are you going to try again? Asked after my miscarriage. But at least people stopped asking, When are you two going to have a baby? after I miscarried. -u/LadyJedi1286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Why are you so skinny? -u/Aadityajoshi151</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Don’t ask a veteran if they killed someone during their time in service. Surprisingly it’s common, please don’t. It’s really insensitive. -u/dover_boi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Why does your Argentinian grandfather speak fluent German? -u/Arabeskas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. When are you (insert societal “milestone” here)? Either when the time’s right or never. Society created that milestone, it’s not something that actually needs to be done so shut the hell up. -u/SimShade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Apparently, a lot of asexuals get asked if they were molested as kids and I dont know on what planet is it okay to ask anyone that. -u/puella_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Why arent you drinking? -u/ShrubberyDragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184760.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. “How did he/she die?”particularly if the death was recent. The answer could be something that the family doesn’t want to share…drugs, suicide, etc. If they haven’t brought it up, you shouldn’t, either. -u/sarcastinymph</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184761.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. When are you two having kids? My wife cant have a baby, its honestly like having someone rip my heart out of my chest whenever were asked. -u/MFLevel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. So am I better than your ex? -u/33Stickers33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184763.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">35 Wholesome Posts to Spread Good Vibes Today</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87182980.jpg" style="width:100%"><br>
 
@@ -79,39 +445,53 @@ Last updated: 06/07/2022-09:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">14 Clever and Unique Details Hidden in Movies</a><br>
+## <a href="#linky9" id="linky8">22 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. In The Batman (2022), a bust of William Shakespeare can be seen near Alfred at Wayne Manor. This was a sly reference to the 1966 Batman TV series where Shakespeare’s head contained a secret button when pushed, leading to the entrance of the Bat Cave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183461.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. In Back to the Future Part III, when Doc and Marty were taking a picture with the new clock for the clock tower, the time was 08:08. This was a subtle nod to the 88 miles per hour the DeLorean needs to travel through time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183464.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Stan Lee, one of the creators of the Spider-man comic book, was the subject of one Easter egg in Spider-man: No Way Home. In the scene where Spider-man was about to face Doc Ock, Stan Lee’s birthday, December 28 or 12-28, can be seen on top of the taxicab behind him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183465.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Chef Skinner from Ratatouille was cleverly named after behavioral psychologist B.F. Skinner, who is popular for his experiments with rats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183466.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The prop designers for Free Guy hid a neat detail in his home. Guy’s calendar without the 4th day of the month can be seen when he watches television. This was a hint that Guy is still an underdeveloped character prone to glitches and errors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183468.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A true member of the British Royal Family once starred in a film about Queen Victoria! Princess Beatrice of York, a granddaughter of Queen Elizabeth, had a minor role as a lady-in-waiting in The Young Victoria. This was the first for a British royal to appear in a movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183470.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184237.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. The last names of the three main characters in the Pirates of the Caribbean franchise were taken from the names of birds: (Jack) Sparrow, (Elizabeth) Swann, and (William) Tern (Turner).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183472.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In Encanto, Bruno can be heard chanting “Sana sana, colita de rana” while patching the cracks on Casita. When they get hurt, this Colombian saying is typically said to children to comfort them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183462.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In Luca, a Donald Duck plush toy can be found under Guilia’s bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183463.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Ariel’s lovable fish friend, Flounder, in The Little Mermaid (1989) can be spotted in another ocean adventure movie. He can be seen swimming with a school of fish while Maui sings “You’re Welcome” in Moana.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183467.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When Prince Naveen had his tarot cards read in The Princess and the Frog, a split-second scene was shown with him laying on a lily pad, foreshadowing his transformation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183469.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The name of the elementary school where Wilbur went to in Meet the Robinsons was actually a clever twist on the name of William Joyce, author of A Day with Wilbur Robinson, the book which the movie was adapted from.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183471.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When Mei was gushing over her emo boy crush Carter Murphy-Mayhew in Turning Red, he was wearing an Escápula shirt. Escápula was the band that played onstage before Miguel and Hector in Coco.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183474.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. In the scene where Indiana Jones was lifting the ark in Raiders of the Lost Ark, a pillar with ancient symbols can be seen beside him. Eagle-eyed fans noticed that, if you look closely, a doodle of droids R2-D2 and C-3PO were inscribed. This was a nod to Harrison Ford’s character in the Star Wars movies, Han Solo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183473.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184231.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184250.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Monday Morning Randomness User Edition - Kenku</a><br>
+## <a href="#linky10" id="linky9">Monday Morning Randomness User Edition - Kenku</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/05/012041/87184064/87178027.jpg" style="width:100%"><br>
 
@@ -239,7 +619,7 @@ Last updated: 06/07/2022-09:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">30 Moments People Realized They Weren't Getting Paid Enough For This</a><br>
+## <a href="#linky11" id="linky10">30 Moments People Realized They Weren't Getting Paid Enough For This</a><br>
 
 <span style="font-size:4em">1. Had a guy come in with a raging hard on that wouldnt go away. Priapism for those that enjoy science. I had to hold this guys throbbing boner while a resident stabbed it with needles trying to drain it and inject medications to make it go down. After 8 stabs, no luck. Dude went to surgery and was told he will never have an erection again. I was the last person to hold his functional wiener. PSA- if youve had a four hour long stiffy, get to the ER in a jiffy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184391.jpg" style="width:100%"><br>
 
@@ -359,257 +739,7 @@ So I worked with them all night, then they paged me back in the next day, and my
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Fresh Memes For Savage Humor Enthusiasts </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183732.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183738.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183743.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183748.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183751.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183753.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">22 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184237.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184231.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184250.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">The Most Gruesome Disasters People Ever Witnessed In School</a><br>
-
-<span style="font-size:4em">1. Witnessed the end of a girl being jumped by about 6 other girls in high school. Dont know what exactly they cut her face with but they tried to cut her eye out and did a pretty close job. Sadly she went blind in that eye. That was sophomore year and she graduated with us as the second highest GPA. The amount of blood that was there and the eye almost hanging out of her skull was just wild to see.
-
--u/skeedlz
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. We used to spray soap on the floor in the shower and do penguin slides. One kid got a running start, jumped and slid across the floor on his chest full speed. Right up until he hit the black grip tape on the floor exiting the showers... Ripped one nipple clean off... Or should I say sanded one clean off.
-
--u/Green420Basturd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Saw a kid die from cardiac arrest at wrestling practice. I was in 6th grade, he was a seventh-grader </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-We were doing a takedown drill. He and his partner were right next to me. He got taken down and stopped breathing. Turned purple. They rushed us out of the gym. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-Apparently, he had a hole in his heart and the doctors warned him not to do sports. RIP </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
--u/coci222</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Our female gym teacher was a tough lady, built similarly to WWEs Chyna if that helps paint a picture. Anyhow, kind of a rough school district in the city, and the gym teacher had just gotten this f*cking rough ass girl suspended for fighting. Upon rough ass girl returning to school, word was she was going to attack the gym teacher </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-And well, she did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Only this rough-ass girl, she had stitches in her face from the previous fight, and the gym teacher went right for the stitches, she grabbed them by the handful and just ripped the stitches right out of the girls face, right there in gym class. In self-defense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
- 
--u/Scapular_Fin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My 8th-grade year, I saw a kid get run over by a school bus. He died later that day
-
--u/spacebarthingy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Classmate turned his thumb inside out with a table saw. Blood didnt squirt, it just oozed out in big drops. Still picture one guy eating a chocolate cupcake while looking closely at the wound.
-
--u/Nonamanadus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A guy in woodshop class turned up a lathe at too high a setting, had some boards glued together I think and wanted to make a bat or something. He revved it up and applied a chisel or something during the process, the wood blew apart and it gouged out one of his eyes. Blood everywhere.
-
--u/privatemidnight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. A kid tripped during cross country practice and broke his arm. And by broke, I mean broke. About of the third of the way down the forearm it was bent 45 degrees. When he got up it was flopping like a dead fish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
- 
-Wasn’t any blood and the kid wasn’t screaming, either, according to him he couldn’t feel a thing. The juxtaposition of such an obviously bad injury with the kid casually laughing like “wow, my arm looks weird” was profoundly unsettling.
-
--u/Karatekan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Our star basketball player died on the court during an afternoon practice - he had an undiagnosed heart condition and that was that. The rest of us players were shuffled into the other gymnasium as a coach grabbed a defibrillator, but at that point it was too late. It was a very sad and surreal experience.
-
--u/GoFightFoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Kid had his neck broken in a wrestling match by a dude slamming him in a full nelson. Circa 2006, before phone cameras and such thankfully. His poor parents.
-
--u/TheHeresyTrain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I watched two girls fight and one grabbed the other by the back of the head and ran her face along the concrete sidewalk. It happened so fast and was over before anyone could break it up. Needless to say the girl with the pavement facial lost the fight.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A kid grabbed some fries from another kids tray during lunch. Other kid leaps up, grabs him, and bangs his head into a metal railing until its bleeding. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-Also in the parking lot, a kid I barely knew pulled me aside and popped his trunk open. Inside were several AK47s. Not gruesome, but pretty surprising for the time. This was 1995.
-
--u/BlackLetterLies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Someone threw an Arizona iced tea bottle at a kids face. Split him open about 6 inches.
-
--u/DuFFman_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. About 12 at a swimming lesson, someone decided to show off by jumping off a board, with his speedo goggle’s on, hit the water and started screaming as one of his eyes had been sucked into the goggle, jeez a very short lesson, not sure if he lost it or not
-
--u/Old-Ambassador-8143</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. During 4th grade, my elementary school had a tall rusted fence that blocked the schoolyard from the outside, and some kid tried to climb it to get a ball back. He slipped on top and his arm got stuck by the top of the railing, perforating his arm and cutting it deep almost from wrist to elbow. He collapsed from shock and loss of blood still stuck to the railing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
- 
-Fortunately, the fire department got there in less than 15 minutes and they got the kid out of it, saving him. He has this huge scar on his arm, but its alive, well, and moves his arm well. To this day I cant shake that image out of my mind.
- 
--u/_Didds_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173584.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Surreal Photographs of Rundown and Abandoned Places</a><br>
-
-<span style="font-size:4em">1. Ksar Nalut is an 11th century fortified granary located in Nalut District, Libya.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Former mansion of a cult leader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A cinema in northern Thailand that I shot in 2016 – abandoned since the mid 80’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. It happened just two days ago! I walked for 80 km through the desert just to see this beauty – an abandoned 60m heights space rocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The abandoned pyramid in Memphis, TN, before it was renovated into a Bass Pro Shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Abandoned Dunalastair Castle – SCOTLAND</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Abandoned car but make it cute (Oakland, CA)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Brand new Fiat 147 abandoned for 35 years in an old shed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Forgotten Treehouse in Redmond, Washington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Bannerman Castle, Beacon, NY</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My favorite thing in the world to do is to search on google maps for hours for abandoned places, then see the evolution from before it was abandoned to slowly deteriorating into a forgotten place. Not sure if it’s OC since I found the pics but didn’t take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Abandoned train in the mountains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Crypt, Scotland, UK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hashima Island in Nagasaki, Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A few days ago I posted about Energia in Baikonur cosmodrome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. You could probably survive a nuclear blast in this fridge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. On New Year’s Eve 1993, this ocean liner left Greece for Thailand, towed by a tugboat. The tow lines broke during a storm, the ship was left adrift and, on 18 January 1994, it ran aground near Fuerteventura, Canary Islands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184607.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">21 Historical Pictures of D-Day That Chill Us to the Bone</a><br>
+## <a href="#linky12" id="linky11">21 Historical Pictures of D-Day That Chill Us to the Bone</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/06/115544/87184566/fight.jpg" style="width:100%"><br>
 
@@ -655,113 +785,63 @@ Fortunately, the fire department got there in less than 15 minutes and they got 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">25 Questions You Should Never Ask Another Person</a><br>
+## <a href="#linky13" id="linky12">25 Old Things That Should Make A Comeback</a><br>
 
-<span style="font-size:4em">1. Why cant you be like insert persons name? Well... Because I am not that persons name. -u/f_rice </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184739.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Why are you so quiet? -u/MrMagpie91</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184740.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Cloaks. They look cool, often one size fits all, easier to take on or off than a jacket, and don’t have a dumb zipper.” -lordcaledonia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Have you noticed youre going bald? -u/Relative-Ad-87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184741.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “$800 rent for 2/2 apartments.” -revamped4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Why are you single? -u/GrouchyPuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184742.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “More real effects instead of CGI in movies. Obviously, CGI has made the impossible possible, but directors like Guillermo Tel Toro prove that there is a lot that can be created believably and beautifully on film.” --PyramidHead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. When in a relationship: Do you think [friend] is prettier than me? Or any related question of which you actually dont want to hear the answer to. -u/leonmarino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184743.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Stuff being made to last a lifetime rather than a few months to a few years.” -Nobody91765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The same question over again, and really pressing the matter until the person gives you the answer that shocks ya. -u/djdjsksldbahehe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184745.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “The expectation of lack of availability. The amount of technology we have is truly amazing and I love that I get to experience it. That being said, the idea that I am available 100% of the time from morning to night is easily the biggest source of stress I have in my life. I miss the time before smartphones.” -candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. When is the baby due? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184751.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Appliances that dont constantly break.” -HildegardofBingo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Is your daughter seeing anyone? -u/MorningLineDirt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184744.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Biodegradable packaging and things without plastic.” -Savitribaii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Are you depressed or just want attention? -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184746.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Dinosaurs. What could possibly go wrong.” -OA-Imoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. When did you put on all that extra weight? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184747.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “A sense of community.” -Jaxxs90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When are yall gonna break up? -u/PafflaxTP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184748.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Canteens. Disposable plastic bottles are wasteful, so you should carry around your own canteen and refill it at drink dispensers, vending machines etc.” -Vtfyfudtd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “What’s the worst thing you’ve ever seen?” to any EMT/Paramedic/Firefighter….etc. I promise you it’s horrible and not something you’d want to think about. We don’t want to relive those memories, especially so unexpectedly. Ask about something funny instead. You’ll get a better answer. -u/shitscrubber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184749.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “My Dad.” -JohnOliverismysexgod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Are you in yet? -u/jabularich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184750.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “A relaxed life style and more family gatherings.” -adallal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Do you have a prettier sister? -u/paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184752.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Bipartisanship, statesmanship, and a true sense of national unity.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. What, are you on your period or something? -u/Thibideaux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184753.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Video games that don’t require a Day 1, 70gb patch.” -IWantToPlayGame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Are you going to try again? Asked after my miscarriage. But at least people stopped asking, When are you two going to have a baby? after I miscarried. -u/LadyJedi1286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184754.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Drive-in movies. I used to love those.” -wwwangels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Why are you so skinny? -u/Aadityajoshi151</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184755.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Good manners and discretion.” -W-S_Wannabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Don’t ask a veteran if they killed someone during their time in service. Surprisingly it’s common, please don’t. It’s really insensitive. -u/dover_boi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184756.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Old design of McDonalds buildings.” -Left-Pop-9420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Why does your Argentinian grandfather speak fluent German? -u/Arabeskas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184757.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Gas prices.” -iwastouchedbyanangle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When are you (insert societal “milestone” here)? Either when the time’s right or never. Society created that milestone, it’s not something that actually needs to be done so shut the hell up. -u/SimShade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184758.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Capital C real Cocaine in Coca-cola. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185122.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Apparently, a lot of asexuals get asked if they were molested as kids and I dont know on what planet is it okay to ask anyone that. -u/puella_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184759.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Canes, capes, and top-hats for formal wear. Mens fashion peaked in that era and has never reached such highs again.” -darkknight109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185123.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Why arent you drinking? -u/ShrubberyDragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184760.png" style="width:100%"><br>
+<span style="font-size:4em">22. “Guillotines for corrupt politicians.” -thomriddle45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185124.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “How did he/she die?”particularly if the death was recent. The answer could be something that the family doesn’t want to share…drugs, suicide, etc. If they haven’t brought it up, you shouldn’t, either. -u/sarcastinymph</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184761.png" style="width:100%"><br>
+<span style="font-size:4em">23. “Expunging juvenile records for stupid and petty crimes. I get having to prosecute minors as adults for serious crimes, but for stupid and petty things they dont automatically expunge them anymore like they used to and a juvenile record can haunt them for years. As long as the crime was petty and non-violent I want to get back to letting that child once they turn adult having a fresh start.” -llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185125.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. When are you two having kids? My wife cant have a baby, its honestly like having someone rip my heart out of my chest whenever were asked. -u/MFLevel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184762.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Mixtapes.” -Vv3eb1024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185126.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. So am I better than your ex? -u/33Stickers33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184763.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">24 Women Reveal Embarrassing Questions They Want To Ask Men</a><br>
-
-<span style="font-size:4em">1. “Do you use that opening in your boxers/briefs to pee, or do you just pull down the top of your boxers/briefs? That little opening just doesn’t seem that useful. Thank you in advance.” -sparkmatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Someone probably already asked this, but is it hard/difficult to shave your balls?” -CatLikesPulms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Honestly, how thoroughly do you wipe your butt? What about cleaning it in the shower? And uhh unrelated, how open are you to the idea of prostate massages/any kind of sexual attention being paid to your asshole? If youre straight, do you ever include any of that in masturbation? would it feel weird/uncomfortable if a partner wanted to?” -addangel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Is being able to helicopter an innate skill or do you have to practice?” -EbenHSHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “How often do you really cry? What makes you cry?” -nerdcorner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “When you use the toilet, does your weenie just hang into the toilet? Do you rest it on the seat? Do you ever get poop splash on your ween?” -misternuggies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “You like cuddling after sex just as much as we do, don’t you? Don’t lie.” -swfbh234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Do you ever worry about what your friends think of the attractiveness of your girlfriend/wife? Like are you ever worried that people you know don’t find her good looking or judge you for being with her?” -MommaJ94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Does a woman’s height matter? What about weight? Is using urinals when they’re all full but there’s one left, is it awkward? Do you mind a little hair down there (even if it’s nicely trimmed and short)?” -oh_the_struggle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Do guys really appreciate a woman that makes the move? Whether you are newly dating or married for years? I want him to feel wanted by me and I want to convey that. Or do guys feel it could threaten them a little bit? I know it sounds weird and maybe old school but I have always wondered what the answer is.” -catsmom63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “What are some of your thoughts on girls making the first move?” -Ranagios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Can you feel our boobs when we hug?” -onajourney314</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Do yall enjoy late night chats as much as girls do or it annoys yall if its very often?” -spillbeanss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Is it true you really get random boners?” -kanyesbitch7889</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “What the f**k do you do with someone’s balls during sex?” -Apprehensive_Crew_93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Serious question men: does it/would it bother you if a girl had self harm scars? How far along in the relationship would you want to know about/see them?” -imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Are all boobies good boobies?” -odiumvibe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “I’m with someone who buys me flowers to make me smile - what would be something I could do similarly for him that is nonsexual that would brighten his day?” -justfineand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Do men like it when females (friend/girlfriend) tell you they feel safe around you?” -2muddy2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Do pussies generally taste/smell appealing?” -Infinite-Furiosa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Does what our vaginas look like truly matter to you? Like girls having longer lips and such. I’ve always felt incredibly self conscious about guys going down on me even if guys have never mentioned it before.” -MamaMingyu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Is it true that guys generally hesitate or avoid going up to and talking women that are super attractive? I mean like a 9 or a 10/10? Is attractiveness/appearance something that makes you stall when “shooting your shot”?” -hoodfairyy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “What does it feel like to run with no underwear on. Does it just flop around? Does it hurt? Does the bouncing get you hard?” -Jurazel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “What does an erection feel like?” -fatherimustfeed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185369.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Physical media. Miss the days of VHS and browsing video stores.” -lunchboxbeard82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185127.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">14 No-Money Date Ideas for All the Frugal Folks</a><br>
+## <a href="#linky14" id="linky13">14 No-Money Date Ideas for All the Frugal Folks</a><br>
 
 <span style="font-size:4em">1. Play boardgames and talk, or just watching a movie with a glass of wine/beer. Nothing wrong with a night in, as long as you make it memorable. -Jazz_vE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102764.jpg" style="width:100%"><br>
 
@@ -793,155 +873,47 @@ Fortunately, the fire department got there in less than 15 minutes and they got 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Funny Memes to Start Your Week With</a><br>
+## <a href="#linky15" id="linky14">Funny Memes to Start Your Week With</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177949.png" style="width:100%"><br>
+<span style="font-size:4em">1. Growing up is learning that adults arent super heroes, but are imperfect beings just trying their best to raise children. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177949.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177950.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The face of a man who is down bad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177951.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Yes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177952.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. If you arent six foot two, your best bet is die alone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177953.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Can I have the attention of the class? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177953.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177954.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Shes still pretty though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177955.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If Ive been there once I dont need directions. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177955.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177956.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177957.png" style="width:100%"><br>
+<span style="font-size:4em">9. The JIF people could not be more wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177957.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177958.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This is not okay. Whats the address? We are on our way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177959.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Toughen up boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177961.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Is this meme still funny? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177962.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Wow, I look incredible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177962.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177963.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177964.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. We might be trash, but we look cool doing it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177965.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. I remember my first beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177966.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. This hurts my brain and my heart. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177967.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The hypocrisy is astounding. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177968.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Hes the piano man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177969.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">People Having the Worst Day Ever</a><br>
-
-<span style="font-size:4em">1. “Results from an allergy test – my body reacts to every type of local allergen!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “I’m being over charged by insurance after my daughter was born. This is the pile of mail I have to go through to prove they’re ripping me off. Pear for scale.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My boss’s secretary quit this morning after delivering breakfast.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “So part of the automated chicken feeding system broke today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Someone managed to lose their new box of… lost-item trackers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Yesterday our neighbor’s 80′ locust tree gave us some live edge sky lights, a great view of the stars, and that Rainforest Cafe atmosphere that our living room had just always been missing. No injuries, dogs pissed the bed, life goes on..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My dad does the lottery every week, this is 4-5 months of losing tickets.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “For a month, I thought I lost my wedding ring on a cross country road trip. I called gas stations, pawn shops, searched lost and found post. Finally, I gave up ever seeing it again when we realized it was under my husbands deodorant!!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “$400 window replacement to steal a pair of $20 headphones I found at goodwill…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “I’m starting to think this view isn’t worth golfers aiming directly at our homes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Boyfriend decided to try out a new hairdresser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “This is my view from the bathroom floor, looking at the hole in the ceiling I just fell through.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Son decided to swallow a nickel and turn $.05 into $4400.00.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Sold my iPad in public space at night in Minnesotan -10F temperature, turned out it’s fake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Is it funnier knowing that these are antidepressants?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My commute is 45 minutes. Just pulled up to the office, reached for my bags and…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “When it’s your stop and the doors open to this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “In ten seconds I’m going to discover the value of lifejackets and renter’s insurance.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “The Fedex deliveries in my area frequently get lost. Today someone found 300-400 boxes in a ravine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “I’m a solar roofer, and we are required to wear gloves while we work…..it’s only may.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184002.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183870.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Lets see how that pans out for them Cotton. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177969.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
