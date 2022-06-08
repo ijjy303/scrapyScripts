@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/07/2022-22:11:31
+Last updated: 06/07/2022-23:11:31
 <br>
 ## <a href="#linky2" id="linky1">56 Dank And Dirty Memes To Get You Going</a><br>
 
@@ -117,55 +117,67 @@ Last updated: 06/07/2022-22:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">24 Women Reveal Embarrassing Questions They Want To Ask Men</a><br>
+## <a href="#linky3" id="linky2">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
 
-<span style="font-size:4em">1. “Do you use that opening in your boxers/briefs to pee, or do you just pull down the top of your boxers/briefs? That little opening just doesn’t seem that useful. Thank you in advance.” -sparkmatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185346.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I wonder how many times these tent pole were pulled down before this sign went up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Someone probably already asked this, but is it hard/difficult to shave your balls?” -CatLikesPulms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185347.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Honestly, how thoroughly do you wipe your butt? What about cleaning it in the shower? And uhh unrelated, how open are you to the idea of prostate massages/any kind of sexual attention being paid to your asshole? If youre straight, do you ever include any of that in masturbation? would it feel weird/uncomfortable if a partner wanted to?” -addangel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185348.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Is being able to helicopter an innate skill or do you have to practice?” -EbenHSHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185349.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Beware, the birds will poop in your mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “You like cuddling after sex just as much as we do, don’t you? Don’t lie.” -swfbh234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185352.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Gotta love Google Maps. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Do you ever worry about what your friends think of the attractiveness of your girlfriend/wife? Like are you ever worried that people you know don’t find her good looking or judge you for being with her?” -MommaJ94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185353.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “When you use the toilet, does your weenie just hang into the toilet? Do you rest it on the seat? Do you ever get poop splash on your ween?” -misternuggies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185351.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Does a woman’s height matter? What about weight? Is using urinals when they’re all full but there’s one left, is it awkward? Do you mind a little hair down there (even if it’s nicely trimmed and short)?” -oh_the_struggle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185354.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. We dont know what happened here, but we do have some guesses. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Do guys really appreciate a woman that makes the move? Whether you are newly dating or married for years? I want him to feel wanted by me and I want to convey that. Or do guys feel it could threaten them a little bit? I know it sounds weird and maybe old school but I have always wondered what the answer is.” -catsmom63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185355.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “What are some of your thoughts on girls making the first move?” -Ranagios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185356.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This one is a classic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Can you feel our boobs when we hug?” -onajourney314</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185357.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Do yall enjoy late night chats as much as girls do or it annoys yall if its very often?” -spillbeanss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185358.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Is it true you really get random boners?” -kanyesbitch7889</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185359.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “What the f**k do you do with someone’s balls during sex?” -Apprehensive_Crew_93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185360.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “How often do you really cry? What makes you cry?” -nerdcorner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185350.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Serious question men: does it/would it bother you if a girl had self harm scars? How far along in the relationship would you want to know about/see them?” -imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185361.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. John getting called out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Are all boobies good boobies?” -odiumvibe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185362.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “I’m with someone who buys me flowers to make me smile - what would be something I could do similarly for him that is nonsexual that would brighten his day?” -justfineand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185363.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Do men like it when females (friend/girlfriend) tell you they feel safe around you?” -2muddy2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185364.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. you know the story behind this sign didnt end well. Ouch. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Do pussies generally taste/smell appealing?” -Infinite-Furiosa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185365.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Hey, whats your problem with the Danish? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Does what our vaginas look like truly matter to you? Like girls having longer lips and such. I’ve always felt incredibly self conscious about guys going down on me even if guys have never mentioned it before.” -MamaMingyu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185366.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Is it true that guys generally hesitate or avoid going up to and talking women that are super attractive? I mean like a 9 or a 10/10? Is attractiveness/appearance something that makes you stall when “shooting your shot”?” -hoodfairyy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185367.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “What does it feel like to run with no underwear on. Does it just flop around? Does it hurt? Does the bouncing get you hard?” -Jurazel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185368.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “What does an erection feel like?” -fatherimustfeed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185369.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Google Maps for the win. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Well, exhibit B will be a document from my doctor stating that Im both stupid and legally blind, so whats your next move? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183870.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -273,59 +285,69 @@ Last updated: 06/07/2022-22:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">26 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky6" id="linky5">Funny Pics and Memes That Are Perfect Time Wasters </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184898.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. We laugh at this but it is based in reality. If I cant think straight, then all my motor functions go right out the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185034.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184899.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This picture is going to haunt us all daylong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185035.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184900.png" style="width:100%"><br>
+<span style="font-size:4em">3. WTF guys I love a good airpot battle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185036.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184901.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I am the one who knocks, not you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185037.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184902.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. He does pull it off, you have to give him that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185038.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184903.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Sorry kid, I dont make the rules here. Oh wait, yes I do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185039.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184904.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Whats wrong babe, lost your appetite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185040.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184905.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This is why you need people to help proof read your work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185041.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184906.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185042.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184907.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185043.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184908.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185044.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184909.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Too soon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185045.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184910.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Explain this then? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185046.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184911.png" style="width:100%"><br>
+<span style="font-size:4em">14. We cant let him get away with this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185047.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184912.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Because thats how you explode. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185048.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184913.png" style="width:100%"><br>
+<span style="font-size:4em">16. Wow shes so random. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184914.png" style="width:100%"><br>
+<span style="font-size:4em">17. Bro had been training his entire life and he didnt even get a single swing in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185050.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184915.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185051.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184916.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Im probably going to jail, but damn my lawyer is cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185052.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184917.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Hes dead. Thats funny to you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185053.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184918.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. If it makes him happy, why shouldnt it make you happy as well? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185054.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184919.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185055.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184920.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185056.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184921.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185057.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184922.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185058.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184923.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185059.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185060.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185061.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185062.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185063.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185064.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -457,73 +479,107 @@ Last updated: 06/07/2022-22:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Funny Pics and Memes That Are Perfect Time Wasters </a><br>
+## <a href="#linky10" id="linky9">26 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. We laugh at this but it is based in reality. If I cant think straight, then all my motor functions go right out the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185034.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184898.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This picture is going to haunt us all daylong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185035.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184899.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. WTF guys I love a good airpot battle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185036.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184900.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. I am the one who knocks, not you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185037.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. He does pull it off, you have to give him that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185038.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Sorry kid, I dont make the rules here. Oh wait, yes I do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185039.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Whats wrong babe, lost your appetite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185040.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184904.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This is why you need people to help proof read your work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185041.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185042.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185043.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185044.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184908.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Too soon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185045.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Explain this then? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185046.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. We cant let him get away with this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185047.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184911.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Because thats how you explode. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185048.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Wow shes so random. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185049.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184913.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Bro had been training his entire life and he didnt even get a single swing in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185050.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184914.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185051.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184915.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Im probably going to jail, but damn my lawyer is cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185052.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Hes dead. Thats funny to you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185053.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184917.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. If it makes him happy, why shouldnt it make you happy as well? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185054.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184918.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185055.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184919.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185056.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184920.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185057.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184921.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185058.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184922.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185059.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185060.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185061.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185062.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185063.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185064.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184923.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Funny Memes to Start Your Week With</a><br>
+## <a href="#linky11" id="linky10">Surreal Photographs of Rundown and Abandoned Places</a><br>
+
+<span style="font-size:4em">1. Ksar Nalut is an 11th century fortified granary located in Nalut District, Libya.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Former mansion of a cult leader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A cinema in northern Thailand that I shot in 2016 – abandoned since the mid 80’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. It happened just two days ago! I walked for 80 km through the desert just to see this beauty – an abandoned 60m heights space rocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The abandoned pyramid in Memphis, TN, before it was renovated into a Bass Pro Shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Abandoned Dunalastair Castle – SCOTLAND</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Abandoned car but make it cute (Oakland, CA)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Brand new Fiat 147 abandoned for 35 years in an old shed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Forgotten Treehouse in Redmond, Washington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Bannerman Castle, Beacon, NY</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My favorite thing in the world to do is to search on google maps for hours for abandoned places, then see the evolution from before it was abandoned to slowly deteriorating into a forgotten place. Not sure if it’s OC since I found the pics but didn’t take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Abandoned train in the mountains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Crypt, Scotland, UK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hashima Island in Nagasaki, Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A few days ago I posted about Energia in Baikonur cosmodrome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You could probably survive a nuclear blast in this fridge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. On New Year’s Eve 1993, this ocean liner left Greece for Thailand, towed by a tugboat. The tow lines broke during a storm, the ship was left adrift and, on 18 January 1994, it ran aground near Fuerteventura, Canary Islands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184607.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Funny Memes to Start Your Week With</a><br>
 
 <span style="font-size:4em">1. Growing up is learning that adults arent super heroes, but are imperfect beings just trying their best to raise children. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177949.png" style="width:100%"><br>
 
@@ -567,7 +623,59 @@ Last updated: 06/07/2022-22:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">25 Questions You Should Never Ask Another Person</a><br>
+## <a href="#linky13" id="linky12">24 Women Reveal Embarrassing Questions They Want To Ask Men</a><br>
+
+<span style="font-size:4em">1. “Do you use that opening in your boxers/briefs to pee, or do you just pull down the top of your boxers/briefs? That little opening just doesn’t seem that useful. Thank you in advance.” -sparkmatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Someone probably already asked this, but is it hard/difficult to shave your balls?” -CatLikesPulms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Honestly, how thoroughly do you wipe your butt? What about cleaning it in the shower? And uhh unrelated, how open are you to the idea of prostate massages/any kind of sexual attention being paid to your asshole? If youre straight, do you ever include any of that in masturbation? would it feel weird/uncomfortable if a partner wanted to?” -addangel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Is being able to helicopter an innate skill or do you have to practice?” -EbenHSHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “You like cuddling after sex just as much as we do, don’t you? Don’t lie.” -swfbh234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Do you ever worry about what your friends think of the attractiveness of your girlfriend/wife? Like are you ever worried that people you know don’t find her good looking or judge you for being with her?” -MommaJ94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “When you use the toilet, does your weenie just hang into the toilet? Do you rest it on the seat? Do you ever get poop splash on your ween?” -misternuggies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Does a woman’s height matter? What about weight? Is using urinals when they’re all full but there’s one left, is it awkward? Do you mind a little hair down there (even if it’s nicely trimmed and short)?” -oh_the_struggle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Do guys really appreciate a woman that makes the move? Whether you are newly dating or married for years? I want him to feel wanted by me and I want to convey that. Or do guys feel it could threaten them a little bit? I know it sounds weird and maybe old school but I have always wondered what the answer is.” -catsmom63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “What are some of your thoughts on girls making the first move?” -Ranagios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Can you feel our boobs when we hug?” -onajourney314</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Do yall enjoy late night chats as much as girls do or it annoys yall if its very often?” -spillbeanss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Is it true you really get random boners?” -kanyesbitch7889</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “What the f**k do you do with someone’s balls during sex?” -Apprehensive_Crew_93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “How often do you really cry? What makes you cry?” -nerdcorner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Serious question men: does it/would it bother you if a girl had self harm scars? How far along in the relationship would you want to know about/see them?” -imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Are all boobies good boobies?” -odiumvibe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “I’m with someone who buys me flowers to make me smile - what would be something I could do similarly for him that is nonsexual that would brighten his day?” -justfineand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Do men like it when females (friend/girlfriend) tell you they feel safe around you?” -2muddy2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Do pussies generally taste/smell appealing?” -Infinite-Furiosa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Does what our vaginas look like truly matter to you? Like girls having longer lips and such. I’ve always felt incredibly self conscious about guys going down on me even if guys have never mentioned it before.” -MamaMingyu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Is it true that guys generally hesitate or avoid going up to and talking women that are super attractive? I mean like a 9 or a 10/10? Is attractiveness/appearance something that makes you stall when “shooting your shot”?” -hoodfairyy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “What does it feel like to run with no underwear on. Does it just flop around? Does it hurt? Does the bouncing get you hard?” -Jurazel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “What does an erection feel like?” -fatherimustfeed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185369.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">25 Questions You Should Never Ask Another Person</a><br>
 
 <span style="font-size:4em">1. Why cant you be like insert persons name? Well... Because I am not that persons name. -u/f_rice </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184739.jpg" style="width:100%"><br>
 
@@ -621,51 +729,7 @@ Last updated: 06/07/2022-22:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Surreal Photographs of Rundown and Abandoned Places</a><br>
-
-<span style="font-size:4em">1. Ksar Nalut is an 11th century fortified granary located in Nalut District, Libya.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Former mansion of a cult leader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A cinema in northern Thailand that I shot in 2016 – abandoned since the mid 80’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. It happened just two days ago! I walked for 80 km through the desert just to see this beauty – an abandoned 60m heights space rocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The abandoned pyramid in Memphis, TN, before it was renovated into a Bass Pro Shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Abandoned Dunalastair Castle – SCOTLAND</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Abandoned car but make it cute (Oakland, CA)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Brand new Fiat 147 abandoned for 35 years in an old shed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Forgotten Treehouse in Redmond, Washington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Bannerman Castle, Beacon, NY</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My favorite thing in the world to do is to search on google maps for hours for abandoned places, then see the evolution from before it was abandoned to slowly deteriorating into a forgotten place. Not sure if it’s OC since I found the pics but didn’t take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Abandoned train in the mountains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Crypt, Scotland, UK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hashima Island in Nagasaki, Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A few days ago I posted about Energia in Baikonur cosmodrome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. You could probably survive a nuclear blast in this fridge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. On New Year’s Eve 1993, this ocean liner left Greece for Thailand, towed by a tugboat. The tow lines broke during a storm, the ship was left adrift and, on 18 January 1994, it ran aground near Fuerteventura, Canary Islands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184607.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">14 No-Money Date Ideas for All the Frugal Folks</a><br>
+## <a href="#linky15" id="linky14">14 No-Money Date Ideas for All the Frugal Folks</a><br>
 
 <span style="font-size:4em">1. Play boardgames and talk, or just watching a movie with a glass of wine/beer. Nothing wrong with a night in, as long as you make it memorable. -Jazz_vE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102764.jpg" style="width:100%"><br>
 
@@ -694,70 +758,6 @@ Last updated: 06/07/2022-22:11:31
 <span style="font-size:4em">13. People watch. Get or bring some cheap eats to a park where there are a lot of people and make up stories about the people walking by. -rynnmango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102776.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">14. Make her favorite dinner, stargazing while getting high, and for the grand finale a massage. A real massage with lotion, heated towels, music, and some aroma therapy. I can literally make my S/O drool. -gimme3strokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102777.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
-
-<span style="font-size:4em">1. I wonder how many times these tent pole were pulled down before this sign went up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Beware, the birds will poop in your mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gotta love Google Maps. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. We dont know what happened here, but we do have some guesses. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This one is a classic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. John getting called out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. you know the story behind this sign didnt end well. Ouch. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hey, whats your problem with the Danish? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Google Maps for the win. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Well, exhibit B will be a document from my doctor stating that Im both stupid and legally blind, so whats your next move? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183870.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
