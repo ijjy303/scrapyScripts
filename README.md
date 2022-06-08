@@ -1,7 +1,253 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/08/2022-14:11:31
+Last updated: 06/08/2022-15:11:31
 <br>
-## <a href="#linky2" id="linky1">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
+## <a href="#linky2" id="linky1">30 Incredible Discoveries From Around the World</a><br>
+
+<span style="font-size:4em">1. Redhead Festival, Dublin Ireland A Lot Of People Gather In This Place, united Only By The Fact That They Have Orange Hair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The Giant Of Pratolino Is A Gigantic Statue By Giambologna, A Masterpiece Of Sixteenth-Century Sculpture Located A Few Kilometers From Florence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Peoples Living In Northern Regions And In Severe Snowy Climates, Such As The Inuit, Carved Whalebone, Horn, And Ivory Sunglasses To Protect Their Glare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Hisashimichi Interchange! Its A Japanese Highway Junction, Made With Minimum Loss To Environment. This Is A Seriously Impressive Engineering Masterpiece Situated In Hachioji, Near Tokyo, Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. At The Southwestern End Of The Korean Peninsula, In The Jeollanam-Do Region, There Is A Folk Village In Which The Inhabitants Retain The Way Of Life Of The Past</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sakya Monastery. The Library Was Discovered In Tibet Behind A Huge Wall (60 Meters Long And 10 Meters High). It Contains 84,000 Secret Manuscripts,which Include The History Of Mankind Over 1000 Years Old</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The Japanese Have Been Producing Wood For 700 Years Without Cutting Down Trees. In The 14th Century, The Extraordinary Daisugi Technique Was Born In Japan. Indeed, The Daisugi Provide That These Trees Will Be Planted For Future Generations And Not Be Cut Down But Pruned As If They Were Giant Bonsai Trees; By Applying This Technique To Cedars, The Wood That Can Be Obtained Is Uniform, Straight And Without Knots, Practically Perfect For Construction</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Singapores Amazing Changi Airport</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Bridge That Comes From Sweden Turns Into A Tunnel Under The Sea And Reappears In Denmark; Both Countries United By This Wonderful Work Of Engineering</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This Medieval House, Located In The French Village Of Argentan, Built In 1509</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. First Image Shows An Ancient Greek Pelike Depicting A Woman Acrobat Shooting An Arrow With Her Feet. The Artifact Dates Back To The 4th Century Bc. Second Image Shows An Acrobatic Archer At The 2016 World Nomad Games Held In Kyrgyzstan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Fish Pond Mosaic By Gary Drostle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Pyramids Of Giza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Statue Of King Arthur Located In A Castle In Cornwall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. This Village Is Built On A Basaltic Cliff More Than 50m High And Spreads About 1 Kilometers Long. (Castellfollit De La Roca, Spain)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Inside Mysore Palace, India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. An Argentine Farmer Found This 20,000-Year-Old Family Of Giant Armadillos (Glyptodon) Buried Near A River. They Were All Looking In The Same Direction, As If They Were Walking Towards Something, The Largest Being The Size Of A Volkswagen Beetle, It Is Estimated That They Weighed Around 2 Tons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Petra/Jordan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Botanical Park Of Rio De Janeiro Brazil. Founded In 1808, It Is Considered One Of The Most Important In The World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A Team Of Archaeologists LED By Professor Kutalmış Görkay, Of The University Of Ankara In Turkey, Has Unearthed Three Ancient Greek Mosaics In The Turkish City Of Zeugma, Near The Border With Syria</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Worlds Oldest Intact Carpet Ever Found, Woven Somewhere 2500 Years Ago And Found Frozen In A Kurgan In Altai Mountains In Central Asia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Basilicata: Pietragalla Is The Town Of The Fantastic “Palmenti”, In The Local Dialect Called “Rutte”, Cave-Cellars Dug Into The Rock Still Used Today For The Conservation Of Wine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Architectural Details Of The Column Of Marcus Aurelius.carved Military Scenes Line This 2nd Century Column In Rome, Italy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Cemetery In Taiwan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. My Favorite Room In The Whole Castle! Hall Of Mirrors, Versailles, France</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Portuguese Royal Library - Located In Rio De Janeiro, Brazil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. An 800 Year-Old Pack Horse Bridge, Lancashire, England</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The Vasa Warship Sank At The Occasion Of His Inaugural Journey In Stockholm In 1628. After 333 Years At The Bottom Of The Sea, The Impressive Warship Was Recovered And He Could Finally Continue His Journey. Today, The Vasa Is The Best-Preserved 17th Century Ships And Can Be Admired Within A Museum Structure Specially Built In Stockholm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Staircase In The Chambord Castle In France. Designed By The Great Legend Of High Renaissance Leonardo Da Vinci In 1516</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Syrian Archaeologist Khaled Al Asaad He Gave 50 Years To Palmyra And Was Beheaded Six Years Ago Today For The Cultural Heritage To Which He Devoted His Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186327.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">25 Wedding Moments of Unholy WTF-Levels</a><br>
+
+<span style="font-size:4em">1. “The morning after the wedding at campfire coffee the new bride turned to the groom asked, Are you going to wear your ring everyday because it kinda makes you look like a fa**ot? Those of us there side glanced and took deep sips of coffee.. I think it lasted 4-6 months.” - billy_biceps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “One of my good friends got married and Id never met her before the wedding because shes just shy. On the wedding day, she was belligerently drunk before the ceremony even started and couldnt even get through the lines she was supposed to repeat (i.e. I promise to love you). She ended up slapping the groom, spilling champagne on her dress, and then crying under a table while he tried to comfort her. They lasted about 4 months.” - irrelevant_usernam3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Not the couple getting married but the Best Man and Maid of Honor who were married to each other. Best Mans speech was all about how hard it was to be married. Ive been married for a year and it feels like 100 years. Maid of Honor stands up to give a speech and just says Ditto. It was so awkward and really brought the whole room down. Brother of the bride stood up and gave a nice impromptu speech about teamwork and having a partner to go through life with. How happy the family was to have the groom join their family. Best Man and Maid of Honor were divorced within a year. Couple who got married are still married 30+ years later. I sometimes wonder if the speeches actually were helpful in how not to act as a couple. For me the complex backstory. Brides brother is gay and has been in a longterm relationship for 40+ years. At the time he gave his speech about marriage he couldnt marry the man he loved and I think his passioned defense of marriage was born from that. When people would say they were against gay marriage because it makes a mockery of marriage Id think of that night. The married couple who had no respect for marriage could easily marry (and did over and over again) and the man who stood up and defended marriage could not. Hes married now and lovingly takes care of his husband as he battles health issues.” - designgoddess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “A fun light-hearted dance with the groom followed by a close and slow dance with her male best friend.” - codyish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “He ended up at the emergency room between the ceremony and the reception. He went out out the night night before with his sister and friends and got plastered. They had to hold a cold pak to the back of his neck to keep him vertical during the wedding photos. Marriage lasted 30 days until they had a fight, she left the house and he filled the U-Haul truck with everything but her clothes.” - blackhart452</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “When the bride drank vodka out of a pint glass and spent a significant amount of time making out with another guy on the dance floor.” - csdirty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “When they were doing the vows and the priest got to the for richer or poorer part and she said for richer or richer and maybe for poorer. The officiant was not pleased. I think they made it a year.” - crm115</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “He got so f**ked up at the reception he had a fist fight with her cousin in the toilets over coke. He told all the other cousins to fuck off. He hit on my aunt. He told my cousins child to come back to him when she was 15/16. And he forgot to bring his child to the hotel.” - TheAdminAreEvil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Source: My Wedding. Well start three days before. The wedding was a ren-fair style wedding outside at a large gazebo and the Maid of honor had promised to purchase a stylized dress for my bride that they had agreed on. THREE DAYS before the wedding she calls to tell us she had no money and was embarrased to admit it....so we literally hand-sewed ont together in 24 hours. IMO it turned out pretty nice for what we had… Brides mother was supposed to pick up the cake in ATX and drive an hour south for the wedding. She left her house 30 minutes before the wedding to pick it up. When she finally showed up (hour late) the cake was DESTROYED....she put it in the back seat and drove like hell all the way down, just slamming it against box with every turn. During the one hour delay, there was almost a fist fight between two groomsmen because....well the MoH showed up, IN THE DRESS THAT SHE WAS UNABLE TO AFFORD. Obvious attempt to upstage the bride. The same MoH during her speech after the ceremony started it of by saying When we all met, I did not like Drakkarim411 at all, however I found that he grows on you...like a fungus. Needless to say my entire side of the family was super cold to all of this. Since all of these issues were on her side of friendships or families, I was told to suck it up and well discuss later. I sort of assumed that a lot of these friends had just shown themselves the door. Quite the opposite. In fact, two years later when I accepted my first well paying job out of college, it became an issue that it was an hour and a half out of Austin...so she decided to just stay in ATX to be with her friends. ...I mailed her the divorce papers and since she couldnt be bothered to even show up to the hearing....Ive never seen her again.” - Drakkarim411</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “She told me two days before that she found her fiancé annoying and that she didn’t like him and that he was AWFUL in bed. She was visibly, endlessly uncomfortable at the rehearsal wedding/dinner combo. Then she sobbed the ENTIRE morning, day-of. She ended up not getting any makeup done cause she wouldn’t stop scream-sobbing and refused to get dressed, stalling the wedding ~35 minutes. She then said 45 minutes of “vows” that she had prepared (9 pages of things like inappropriate vows to friends and family, his parents and sisters, none of them her husband), and then ALMOST didn’t say “I do”. Managed to get a, “uh, yeah, okay, yeah I do” out of her almost a full 60 seconds after she was supposed to say anything. I could go on for HOURS, but it was the most painful and awkward wedding I’ve ever been to. I’ve got my money on 10 months. We’re 1 month in.” - brbdead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Another one was my wifes friend. Shes a very conservative, religious white girl who married a black man. Most of her racist family didnt approve of the marriage and didnt show up. But she planned the whole marriage around race. Like a vanilla cake for her and a chocolate cake for him, the wedding colors were black and white, and even the meals were white meat for her side and dark meat for his. It was extremely uncomfortable as a guest. They lasted 2 years (but broke up because he was abusive and almost killed her, rather than the weird racial tension).” - irrelevant_usernam3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Not at the wedding itself, but I used to work at a Davids Bridal. Bride came in with tons of friends, we did the Say Yes To The Dress Thing, and an hour later shed standing there in $3,000 worth of stuff and doesnt have any money with her or in her account. She decides she wants to apply for the store credit card, I run it through the system, and she gets denied. She then calls the groom for his info (which, to be fair, people did all the time), and he tells her no. She threw a HUGE fit on the phone with him, standing on the bridal stage, literally demanding WHY NOT? WHY?! WHY!! like an actual child over and over again. Ive never seen a 30 year old age backwards so quickly. She was just a brat. Literally stomping her feet in front of me, all her friends, and the other bride in the store. *I* was embarassed. At the end of all of that, she hangs up on him and her friend is like Im so sorry you cant get your dress and the bride stops crying instantly and just goes Oh Ill get the dress. I just have to do this at home and when he gets mad enough hell come get it for me so Ill stop. Speechless. Sure enough. Girl came back two days later with her man and he applied for the credit card and bought the dress. He was livid and silent, and she was smug as hell. Cant imagine theyre having a happy marriage if they are still together.” - alsothebagel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I’M WITNESSING ONE FROM THE SIDELINES NOW!!! My wife’s brother just got married this past May. Bride’s mother is a big DIY person and went a little nuts with extra flowers, table pieces, decorations, etc… Note I said extra, it was already decorated by the venue, she just took it upon herself to buy and add way more stuff. Anyway, a few weeks ago she sends my MIL (grooms mom) and email with receipts of all the extra stuff she bought ($7,000 worth!!! ) and asked that she pay half since it was technically set up in time for the rehearsal dinner for guests to enjoy. It’s causing a huge rift between the newlyweds since the bride is taking her moms side.” - WanderingRaindog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My wife got invited to a clients daughters wedding. The couple were both drama students. Many of the bridal party were drama students. The maid-of-honours toast consisted of tearful declarations of unrequited love to the groom, along the lines of if it couldnt be me, Im glad its my best friend thats marrying you. The best-mans speech was a lusty declaration of if it doesnt work out, call me, babe... like the previous time you called me. Other toasts were similarly weird. A guy at the table I was seated at was a friend of the bride and said to me that he was this close to standing up during the speak now or forever hold your peace thing. Im still not sure if the whole thing was a bunch of emotionally fucked-up 20-year-olds, or one big piece of performance art.” - sharplescorner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “When my sister married her first husband she mouthed to my father walking her down the aisle I can make this work, right?... They were divorced 6 months later.... my whole family knew it wasnt a good idea since the original engagement a year prior…” - IMgonnaDIE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I was maid of honour. Me, best man and the couple went into a separate little room to do the signing stuff. Bride excused herself to go the bathroom and the groom started making pretty mean remarks about her cooking (sth shes passionate about) to the officiary. She came back, heard they were talking about cooking family meals together and gave him the warmest smile, thinking he had praised her. He scoffed awkwardly and changed the topic. That always stuck with me. He wasnt laughing WITH her but AT her, behind her back. They lasted 7 months.” - Kraken_of_BeverlyRd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Well here it goes…. My cousin got married probably a decade ago and during the wedding it came out that groom was not the best to my cousin while dating. The brides brother did not take this well and during the after party a shouting match became a brawl between the two families. Next thing you know the police show up and literally pepper spray everyone. Including my grandma, kids and anyone near the area. I don’t remember if anyone got arrested but the story got on CBS the early show for the international news. Lol they did not last long to say the least.” - mendoza327</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Groom had surprise gifts scheduled to show up once an hour for the 8 hours prior to the wedding, with special meaning behind each one relating to relevant moments of their relationship. Bride was bitchy because some of them werent up to her standards. Theyre currently in the maybe if we have a baby, the immense increased stress will save our marriage stage.” - CoderDispose</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “When the bride tried to playfully feed the groom some cake, pulling it back once it got close to his mouth. The third time she did this, he slapped it out of her hand and stormed off. In the ensuing awkward silence and wide-eyed staring, we all knew it wouldnt last. Surprisingly, they were together for nearly two years before the bride eloped away with her step-brother. No one saw that coming.” - grubychild</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Prior to my wedding I’d asked my husband to practice dancing with me because I’m uncoordinated, due to a disability. He blew me off and said we’d be fine. As we were dancing, he spoke in my ear, not even quietly. “What are you doing? What’s wrong with you? You’re embarrassing me!!” We lasted 2 years. Leaving was the best decision I ever made.” - Edavis050694</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “My uncle when he broke his neck trying to breakdance on his stag do, He went down the aisle in a wheelchair. She divorced shortly after. He can walk again now but because of his surgery he cannot turn his neck. One of my go to stories because its insane.” - Byrdie55555</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The groom showed up drunk after golfing with buddies all day. The bride in her vows said For Richer... left out the poorer - kellygrrrl328</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Wedding videographer here, I think my favorite moment was when I was sitting at the miscellaneous table with all the randoms and the girl next to me, the grooms ex, drunkenly admitted to sleeping with the groom a few months prior” - qwertyNopesir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “I worked at a museum that also doubled as a wedding venue in the summers. As part of the wedding package, the museum would stay open after hours for the guests only so I’d just sit there and greet people basically. One wedding got particularly rowdy. Almost everyone was drunk, people were jumping into the fountain, someone vomited in said fountain. At one point, the bride is crying. Turns out the groom and one of his groomsmen were screwing upstairs in one of the bathrooms. A fight ensued between the groom and the father of the bride and cops were called because it really got ugly. Entertaining for me but I felt so bad for the bride.” - lacrimal_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185344.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">25 Old Things That Should Make A Comeback</a><br>
+
+<span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Cloaks. They look cool, often one size fits all, easier to take on or off than a jacket, and don’t have a dumb zipper.” -lordcaledonia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “$800 rent for 2/2 apartments.” -revamped4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “More real effects instead of CGI in movies. Obviously, CGI has made the impossible possible, but directors like Guillermo Tel Toro prove that there is a lot that can be created believably and beautifully on film.” --PyramidHead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Stuff being made to last a lifetime rather than a few months to a few years.” -Nobody91765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “The expectation of lack of availability. The amount of technology we have is truly amazing and I love that I get to experience it. That being said, the idea that I am available 100% of the time from morning to night is easily the biggest source of stress I have in my life. I miss the time before smartphones.” -candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Drive-in movies. I used to love those.” -wwwangels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Appliances that dont constantly break.” -HildegardofBingo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Biodegradable packaging and things without plastic.” -Savitribaii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Dinosaurs. What could possibly go wrong.” -OA-Imoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A sense of community.” -Jaxxs90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Canteens. Disposable plastic bottles are wasteful, so you should carry around your own canteen and refill it at drink dispensers, vending machines etc.” -Vtfyfudtd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My Dad.” -JohnOliverismysexgod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “A relaxed life style and more family gatherings.” -adallal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Bipartisanship, statesmanship, and a true sense of national unity.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Video games that don’t require a Day 1, 70gb patch.” -IWantToPlayGame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Good manners and discretion.” -W-S_Wannabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Old design of McDonalds buildings.” -Left-Pop-9420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Gas prices.” -iwastouchedbyanangle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Guillotines for corrupt politicians.” -thomriddle45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Capital C real Cocaine in Coca-cola. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Canes, capes, and top-hats for formal wear. Mens fashion peaked in that era and has never reached such highs again.” -darkknight109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Expunging juvenile records for stupid and petty crimes. I get having to prosecute minors as adults for serious crimes, but for stupid and petty things they dont automatically expunge them anymore like they used to and a juvenile record can haunt them for years. As long as the crime was petty and non-violent I want to get back to letting that child once they turn adult having a fresh start.” -llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Mixtapes.” -Vv3eb1024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Physical media. Miss the days of VHS and browsing video stores.” -lunchboxbeard82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185127.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">Funny Struggle Memes That Are Giving Us Life </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Hey, if it works it works. Dont knock it until you try it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Google Earth is awesome and if you think otherwise you suck. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This one hit a bit too close to close to home. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. At least hes eating his veggies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Dont even think about buying a house. You cant afford it loser. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Out of the way sir, Im coming down. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185719.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186203.jpeg" style="width:100%"><br>
 
@@ -67,73 +313,255 @@ Last updated: 06/08/2022-14:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Funny Pics and Memes That Are Perfect Time Wasters </a><br>
+## <a href="#linky8" id="linky7">27 Fascinating Photos that are A Visual Delight</a><br>
 
-<span style="font-size:4em">1. We laugh at this but it is based in reality. If I cant think straight, then all my motor functions go right out the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185034.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. The aftermath of a laser burning through this piece of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This picture is going to haunt us all daylong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185035.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Just rainbow cat activating his super powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. WTF guys I love a good airpot battle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185036.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. The galactic core of the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I am the one who knocks, not you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185037.png" style="width:100%"><br>
+<span style="font-size:4em">4. The tropical rock lobster (Panulirus Ornatus) takes 18 months to grow to 1kg and is farmed in parts of the Indo-Pacific oceans.bster </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. He does pull it off, you have to give him that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185038.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. THis potato crisp looks like some kind of fossile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Sorry kid, I dont make the rules here. Oh wait, yes I do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185039.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. The sunset under the clouds make them appear like they are on fire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Whats wrong babe, lost your appetite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185040.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Chunky horned lizard is chunky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This is why you need people to help proof read your work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185041.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Time for a smoke break.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185042.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. An adolescent Blue Jay that is only halfway through puberty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186636.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185043.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. This absolute unit of a military man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185044.png" style="width:100%"><br>
+<span style="font-size:4em">11. Guy walking his dog in the city almost looks like a post apocalyptic scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Too soon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185045.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. This ducking is intense!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Explain this then? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185046.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. The Eye of the Earth, Cetina River source in Mount Dinara Nature Park, Croatia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. We cant let him get away with this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185047.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Smooth fencing move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186632.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Because thats how you explode. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185048.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. A fully grown Australian saltwater Crocodile next to a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Wow shes so random. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185049.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Absolutely stunning amethyst geode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186633.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Bro had been training his entire life and he didnt even get a single swing in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185050.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. Black Sapphire grapes from Syria.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185051.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Hasbullah in a very important meeting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186635.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Im probably going to jail, but damn my lawyer is cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185052.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. Cool mask and a walk by a castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186637.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Hes dead. Thats funny to you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185053.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. 30,000 individual 2-megapixel images of the moon to create 1 80-megapixel image with insane detail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186638.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. If it makes him happy, why shouldnt it make you happy as well? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185054.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. The “Arab” room in Cardiff Castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186639.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185055.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. Ethiopian Welo Opal New gem found looks like the ocean in rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185056.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. Cool cosplay with black and white and color parts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185057.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. This is what Jupiter’s North Pole in infrared looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185058.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. Chomp chomp chomp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185059.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. This Devils Fingers fungus looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185060.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185061.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185062.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185063.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185064.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. How every kid feels during serious or ceremonious events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186646.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">56 Dank And Dirty Memes To Get You Going</a><br>
+## <a href="#linky9" id="linky8">25 Anti-Memes for Boring People</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
+
+<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">24 Dangerous Spots to Avoid Entirely</a><br>
+
+<span style="font-size:4em">1. “When the park service tells you not to go somewhere, listen to them, especially regarding hot springs in Yellowstone.” -Fantastic_Rock_3836 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The blind spots next to and behind big trucks.” -HawaiianShirtsOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Monastery Beach in Monterey, CA. Going into the water can kill you and the waves have pulled people from the shore to their death.” -_zydrate_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Caves. I know spelunking is a cool hobby for some people, just like scuba diving and rock climbing. But things can go so wrong so fast when youre in a subterranean cave, and it can be really difficult for anyone to come rescue you. You can die by falling, by getting stuck, by a cave-in, by getting lost, by getting caught in a flash flood and drowning... Just so many awful ways to die in a cave. (See: John Jones dying in Nutty Putty cave)” -Clara_Coulson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Old battlefields. You should never cross an an old battlefield even if it’s from decades ago, and seems “safe”. There could be landmines hidden and you could end up with a limb blown off, or dead. It can be very difficult for someone to rescue you because there are landmines and it’s difficult to know where to step, and most battlefields are abandoned or far away from civilization. You can die by being exploded of course, wound infection or bleeding out (if limb was blown off), starvation and thirst. Either way, just don’t do it.” -NimbleVaseline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Kayaking or any water rafting type sport with amateurs. Many people die due to carelessness or not knowing safety precautions.” -MaximumRabbit5276</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “East Saint Louis on any evening when the weather is nice. Even more dangerous on a holiday such as the 4th of July.” -tdfitz89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Sulfur vents. You get nose-blind to the smell almost immediately. If the concentration gets high enough, you will asphyxiate. If you fall in, you may die from the steam burns, before you asphyxiate, though. Either way, you aint coming out.” -Sttocs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Please stay away from rails, people always underestimate how fast trains are.” -RedandAlive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Low head dams on rivers. They are drowning machines. You fall off the dam, or swim too close the the downstream side where the water spills over- there is a circular current. It draws a person into the water fall; waterfall pushes the down to near bottom and shoots you down stream, but not enough to get out of the cycle. If you lived through it and surface, you are pulled back to the waterfall again.” -Popcorn53</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The parts of Bondi beach that arent the red and yellow flags if you want to go swimming. Paddling or wading for outside the flags? Sure. Full-on swimming though? Youre in dangerous territory for a rip. Be careful when at Bondi.” -Arc_the_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Anywhere with a floating liveleak logo.” -Aromatic-Car-824</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “If your intuition is freaking out, get out. Full stop. Dont worry about what anyone else thinks. Trust thy gut.” -No-Comfortable9850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “If youre in a parking garage, no matter gender, please be careful.” --skyrone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Somalia. It seems like a no brainer but I have never seen anywhere else on the travel wiki that says that traveling alone is very likely to result in your death.” -TPrice1616</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “That one island with the indigenous tribe that will straight up kill you if you set foot on it.” -ItsDanIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Port-a-potties that have been somewhere for A LONG TIME. (I have heard the word lethal is appropriate.)” -fanofpolkadotts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “American malls at a black friday sale.” -Sorry_Deer_4162</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Wittenoom. Idiot tourists go there for instagram likes or whatever. There are plenty of perfectly good gorges nearby that aren’t full of the worst kind of asbestos. Sure, I do personally have something against the place, but surely it’s not worth it to go there. The croc in Wittenoom will still be there long after the radiation in Chernobyl has completely faded.” -SilentHuman8</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Any underwater cave. Theres gotta be a ton of skeletons in diving gear, hundreds of feet underground, in pitch black. No thank you.” -radio-morioh-cho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “That one small town in the US where the coal mine caught on fire and now the ground is burning forever. They evacuated the place but apparently a few people refused to leave.” -Rainbow_Dash_RL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Open space, even thinking about it is scary. Astronauts are the most fearless people on the planet” -Tox-Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “The reactor room at Chernobyl.” -Bjarki56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Dont go swimming in lakes or oceans after dark. It takes surprisingly little for your brain to get confused, illogical and panic. Its also surprisingly easy to drown while in those states.” -NordicShimmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185160.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">18 Beings That Are Extra Special</a><br>
+
+<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">56 Dank And Dirty Memes To Get You Going</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184714.jpg" style="width:100%"><br>
 
@@ -249,179 +677,7 @@ Last updated: 06/08/2022-14:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
-
-<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Funny Struggle Memes That Are Giving Us Life </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Hey, if it works it works. Dont knock it until you try it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Google Earth is awesome and if you think otherwise you suck. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This one hit a bit too close to close to home. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. At least hes eating his veggies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Dont even think about buying a house. You cant afford it loser. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Out of the way sir, Im coming down. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185719.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">25 Anti-Memes for Boring People</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">20 Tweets That Have No Business Being This Unhinged</a><br>
+## <a href="#linky14" id="linky13">20 Tweets That Have No Business Being This Unhinged</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010406/87185514/babies.jpg" style="width:100%"><br>
 
@@ -465,103 +721,7 @@ Last updated: 06/08/2022-14:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Old Things That Should Make A Comeback</a><br>
-
-<span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Cloaks. They look cool, often one size fits all, easier to take on or off than a jacket, and don’t have a dumb zipper.” -lordcaledonia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “$800 rent for 2/2 apartments.” -revamped4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “More real effects instead of CGI in movies. Obviously, CGI has made the impossible possible, but directors like Guillermo Tel Toro prove that there is a lot that can be created believably and beautifully on film.” --PyramidHead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Stuff being made to last a lifetime rather than a few months to a few years.” -Nobody91765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “The expectation of lack of availability. The amount of technology we have is truly amazing and I love that I get to experience it. That being said, the idea that I am available 100% of the time from morning to night is easily the biggest source of stress I have in my life. I miss the time before smartphones.” -candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Drive-in movies. I used to love those.” -wwwangels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Appliances that dont constantly break.” -HildegardofBingo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Biodegradable packaging and things without plastic.” -Savitribaii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Dinosaurs. What could possibly go wrong.” -OA-Imoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “A sense of community.” -Jaxxs90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Canteens. Disposable plastic bottles are wasteful, so you should carry around your own canteen and refill it at drink dispensers, vending machines etc.” -Vtfyfudtd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My Dad.” -JohnOliverismysexgod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “A relaxed life style and more family gatherings.” -adallal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Bipartisanship, statesmanship, and a true sense of national unity.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Video games that don’t require a Day 1, 70gb patch.” -IWantToPlayGame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Good manners and discretion.” -W-S_Wannabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Old design of McDonalds buildings.” -Left-Pop-9420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Gas prices.” -iwastouchedbyanangle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Guillotines for corrupt politicians.” -thomriddle45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Capital C real Cocaine in Coca-cola. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Canes, capes, and top-hats for formal wear. Mens fashion peaked in that era and has never reached such highs again.” -darkknight109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Expunging juvenile records for stupid and petty crimes. I get having to prosecute minors as adults for serious crimes, but for stupid and petty things they dont automatically expunge them anymore like they used to and a juvenile record can haunt them for years. As long as the crime was petty and non-violent I want to get back to letting that child once they turn adult having a fresh start.” -llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Mixtapes.” -Vv3eb1024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Physical media. Miss the days of VHS and browsing video stores.” -lunchboxbeard82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185127.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">18 Beings That Are Extra Special</a><br>
-
-<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">26 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky15" id="linky14">26 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184898.jpg" style="width:100%"><br>
 
@@ -614,110 +774,6 @@ Last updated: 06/08/2022-14:11:31
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184922.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184923.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">24 Dangerous Spots to Avoid Entirely</a><br>
-
-<span style="font-size:4em">1. “When the park service tells you not to go somewhere, listen to them, especially regarding hot springs in Yellowstone.” -Fantastic_Rock_3836 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The blind spots next to and behind big trucks.” -HawaiianShirtsOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Monastery Beach in Monterey, CA. Going into the water can kill you and the waves have pulled people from the shore to their death.” -_zydrate_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Caves. I know spelunking is a cool hobby for some people, just like scuba diving and rock climbing. But things can go so wrong so fast when youre in a subterranean cave, and it can be really difficult for anyone to come rescue you. You can die by falling, by getting stuck, by a cave-in, by getting lost, by getting caught in a flash flood and drowning... Just so many awful ways to die in a cave. (See: John Jones dying in Nutty Putty cave)” -Clara_Coulson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Old battlefields. You should never cross an an old battlefield even if it’s from decades ago, and seems “safe”. There could be landmines hidden and you could end up with a limb blown off, or dead. It can be very difficult for someone to rescue you because there are landmines and it’s difficult to know where to step, and most battlefields are abandoned or far away from civilization. You can die by being exploded of course, wound infection or bleeding out (if limb was blown off), starvation and thirst. Either way, just don’t do it.” -NimbleVaseline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Kayaking or any water rafting type sport with amateurs. Many people die due to carelessness or not knowing safety precautions.” -MaximumRabbit5276</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “East Saint Louis on any evening when the weather is nice. Even more dangerous on a holiday such as the 4th of July.” -tdfitz89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Sulfur vents. You get nose-blind to the smell almost immediately. If the concentration gets high enough, you will asphyxiate. If you fall in, you may die from the steam burns, before you asphyxiate, though. Either way, you aint coming out.” -Sttocs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Please stay away from rails, people always underestimate how fast trains are.” -RedandAlive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Low head dams on rivers. They are drowning machines. You fall off the dam, or swim too close the the downstream side where the water spills over- there is a circular current. It draws a person into the water fall; waterfall pushes the down to near bottom and shoots you down stream, but not enough to get out of the cycle. If you lived through it and surface, you are pulled back to the waterfall again.” -Popcorn53</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The parts of Bondi beach that arent the red and yellow flags if you want to go swimming. Paddling or wading for outside the flags? Sure. Full-on swimming though? Youre in dangerous territory for a rip. Be careful when at Bondi.” -Arc_the_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Anywhere with a floating liveleak logo.” -Aromatic-Car-824</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “If your intuition is freaking out, get out. Full stop. Dont worry about what anyone else thinks. Trust thy gut.” -No-Comfortable9850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “If youre in a parking garage, no matter gender, please be careful.” --skyrone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Somalia. It seems like a no brainer but I have never seen anywhere else on the travel wiki that says that traveling alone is very likely to result in your death.” -TPrice1616</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “That one island with the indigenous tribe that will straight up kill you if you set foot on it.” -ItsDanIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Port-a-potties that have been somewhere for A LONG TIME. (I have heard the word lethal is appropriate.)” -fanofpolkadotts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “American malls at a black friday sale.” -Sorry_Deer_4162</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Wittenoom. Idiot tourists go there for instagram likes or whatever. There are plenty of perfectly good gorges nearby that aren’t full of the worst kind of asbestos. Sure, I do personally have something against the place, but surely it’s not worth it to go there. The croc in Wittenoom will still be there long after the radiation in Chernobyl has completely faded.” -SilentHuman8</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Any underwater cave. Theres gotta be a ton of skeletons in diving gear, hundreds of feet underground, in pitch black. No thank you.” -radio-morioh-cho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “That one small town in the US where the coal mine caught on fire and now the ground is burning forever. They evacuated the place but apparently a few people refused to leave.” -Rainbow_Dash_RL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Open space, even thinking about it is scary. Astronauts are the most fearless people on the planet” -Tox-Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “The reactor room at Chernobyl.” -Bjarki56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Dont go swimming in lakes or oceans after dark. It takes surprisingly little for your brain to get confused, illogical and panic. Its also surprisingly easy to drown while in those states.” -NordicShimmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185160.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 Wedding Moments of Unholy WTF-Levels</a><br>
-
-<span style="font-size:4em">1. “The morning after the wedding at campfire coffee the new bride turned to the groom asked, Are you going to wear your ring everyday because it kinda makes you look like a fa**ot? Those of us there side glanced and took deep sips of coffee.. I think it lasted 4-6 months.” - billy_biceps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “One of my good friends got married and Id never met her before the wedding because shes just shy. On the wedding day, she was belligerently drunk before the ceremony even started and couldnt even get through the lines she was supposed to repeat (i.e. I promise to love you). She ended up slapping the groom, spilling champagne on her dress, and then crying under a table while he tried to comfort her. They lasted about 4 months.” - irrelevant_usernam3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Not the couple getting married but the Best Man and Maid of Honor who were married to each other. Best Mans speech was all about how hard it was to be married. Ive been married for a year and it feels like 100 years. Maid of Honor stands up to give a speech and just says Ditto. It was so awkward and really brought the whole room down. Brother of the bride stood up and gave a nice impromptu speech about teamwork and having a partner to go through life with. How happy the family was to have the groom join their family. Best Man and Maid of Honor were divorced within a year. Couple who got married are still married 30+ years later. I sometimes wonder if the speeches actually were helpful in how not to act as a couple. For me the complex backstory. Brides brother is gay and has been in a longterm relationship for 40+ years. At the time he gave his speech about marriage he couldnt marry the man he loved and I think his passioned defense of marriage was born from that. When people would say they were against gay marriage because it makes a mockery of marriage Id think of that night. The married couple who had no respect for marriage could easily marry (and did over and over again) and the man who stood up and defended marriage could not. Hes married now and lovingly takes care of his husband as he battles health issues.” - designgoddess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “A fun light-hearted dance with the groom followed by a close and slow dance with her male best friend.” - codyish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “He ended up at the emergency room between the ceremony and the reception. He went out out the night night before with his sister and friends and got plastered. They had to hold a cold pak to the back of his neck to keep him vertical during the wedding photos. Marriage lasted 30 days until they had a fight, she left the house and he filled the U-Haul truck with everything but her clothes.” - blackhart452</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “When the bride drank vodka out of a pint glass and spent a significant amount of time making out with another guy on the dance floor.” - csdirty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “When they were doing the vows and the priest got to the for richer or poorer part and she said for richer or richer and maybe for poorer. The officiant was not pleased. I think they made it a year.” - crm115</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “He got so f**ked up at the reception he had a fist fight with her cousin in the toilets over coke. He told all the other cousins to fuck off. He hit on my aunt. He told my cousins child to come back to him when she was 15/16. And he forgot to bring his child to the hotel.” - TheAdminAreEvil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Source: My Wedding. Well start three days before. The wedding was a ren-fair style wedding outside at a large gazebo and the Maid of honor had promised to purchase a stylized dress for my bride that they had agreed on. THREE DAYS before the wedding she calls to tell us she had no money and was embarrased to admit it....so we literally hand-sewed ont together in 24 hours. IMO it turned out pretty nice for what we had… Brides mother was supposed to pick up the cake in ATX and drive an hour south for the wedding. She left her house 30 minutes before the wedding to pick it up. When she finally showed up (hour late) the cake was DESTROYED....she put it in the back seat and drove like hell all the way down, just slamming it against box with every turn. During the one hour delay, there was almost a fist fight between two groomsmen because....well the MoH showed up, IN THE DRESS THAT SHE WAS UNABLE TO AFFORD. Obvious attempt to upstage the bride. The same MoH during her speech after the ceremony started it of by saying When we all met, I did not like Drakkarim411 at all, however I found that he grows on you...like a fungus. Needless to say my entire side of the family was super cold to all of this. Since all of these issues were on her side of friendships or families, I was told to suck it up and well discuss later. I sort of assumed that a lot of these friends had just shown themselves the door. Quite the opposite. In fact, two years later when I accepted my first well paying job out of college, it became an issue that it was an hour and a half out of Austin...so she decided to just stay in ATX to be with her friends. ...I mailed her the divorce papers and since she couldnt be bothered to even show up to the hearing....Ive never seen her again.” - Drakkarim411</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “She told me two days before that she found her fiancé annoying and that she didn’t like him and that he was AWFUL in bed. She was visibly, endlessly uncomfortable at the rehearsal wedding/dinner combo. Then she sobbed the ENTIRE morning, day-of. She ended up not getting any makeup done cause she wouldn’t stop scream-sobbing and refused to get dressed, stalling the wedding ~35 minutes. She then said 45 minutes of “vows” that she had prepared (9 pages of things like inappropriate vows to friends and family, his parents and sisters, none of them her husband), and then ALMOST didn’t say “I do”. Managed to get a, “uh, yeah, okay, yeah I do” out of her almost a full 60 seconds after she was supposed to say anything. I could go on for HOURS, but it was the most painful and awkward wedding I’ve ever been to. I’ve got my money on 10 months. We’re 1 month in.” - brbdead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Another one was my wifes friend. Shes a very conservative, religious white girl who married a black man. Most of her racist family didnt approve of the marriage and didnt show up. But she planned the whole marriage around race. Like a vanilla cake for her and a chocolate cake for him, the wedding colors were black and white, and even the meals were white meat for her side and dark meat for his. It was extremely uncomfortable as a guest. They lasted 2 years (but broke up because he was abusive and almost killed her, rather than the weird racial tension).” - irrelevant_usernam3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Not at the wedding itself, but I used to work at a Davids Bridal. Bride came in with tons of friends, we did the Say Yes To The Dress Thing, and an hour later shed standing there in $3,000 worth of stuff and doesnt have any money with her or in her account. She decides she wants to apply for the store credit card, I run it through the system, and she gets denied. She then calls the groom for his info (which, to be fair, people did all the time), and he tells her no. She threw a HUGE fit on the phone with him, standing on the bridal stage, literally demanding WHY NOT? WHY?! WHY!! like an actual child over and over again. Ive never seen a 30 year old age backwards so quickly. She was just a brat. Literally stomping her feet in front of me, all her friends, and the other bride in the store. *I* was embarassed. At the end of all of that, she hangs up on him and her friend is like Im so sorry you cant get your dress and the bride stops crying instantly and just goes Oh Ill get the dress. I just have to do this at home and when he gets mad enough hell come get it for me so Ill stop. Speechless. Sure enough. Girl came back two days later with her man and he applied for the credit card and bought the dress. He was livid and silent, and she was smug as hell. Cant imagine theyre having a happy marriage if they are still together.” - alsothebagel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I’M WITNESSING ONE FROM THE SIDELINES NOW!!! My wife’s brother just got married this past May. Bride’s mother is a big DIY person and went a little nuts with extra flowers, table pieces, decorations, etc… Note I said extra, it was already decorated by the venue, she just took it upon herself to buy and add way more stuff. Anyway, a few weeks ago she sends my MIL (grooms mom) and email with receipts of all the extra stuff she bought ($7,000 worth!!! ) and asked that she pay half since it was technically set up in time for the rehearsal dinner for guests to enjoy. It’s causing a huge rift between the newlyweds since the bride is taking her moms side.” - WanderingRaindog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My wife got invited to a clients daughters wedding. The couple were both drama students. Many of the bridal party were drama students. The maid-of-honours toast consisted of tearful declarations of unrequited love to the groom, along the lines of if it couldnt be me, Im glad its my best friend thats marrying you. The best-mans speech was a lusty declaration of if it doesnt work out, call me, babe... like the previous time you called me. Other toasts were similarly weird. A guy at the table I was seated at was a friend of the bride and said to me that he was this close to standing up during the speak now or forever hold your peace thing. Im still not sure if the whole thing was a bunch of emotionally fucked-up 20-year-olds, or one big piece of performance art.” - sharplescorner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “When my sister married her first husband she mouthed to my father walking her down the aisle I can make this work, right?... They were divorced 6 months later.... my whole family knew it wasnt a good idea since the original engagement a year prior…” - IMgonnaDIE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I was maid of honour. Me, best man and the couple went into a separate little room to do the signing stuff. Bride excused herself to go the bathroom and the groom started making pretty mean remarks about her cooking (sth shes passionate about) to the officiary. She came back, heard they were talking about cooking family meals together and gave him the warmest smile, thinking he had praised her. He scoffed awkwardly and changed the topic. That always stuck with me. He wasnt laughing WITH her but AT her, behind her back. They lasted 7 months.” - Kraken_of_BeverlyRd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Well here it goes…. My cousin got married probably a decade ago and during the wedding it came out that groom was not the best to my cousin while dating. The brides brother did not take this well and during the after party a shouting match became a brawl between the two families. Next thing you know the police show up and literally pepper spray everyone. Including my grandma, kids and anyone near the area. I don’t remember if anyone got arrested but the story got on CBS the early show for the international news. Lol they did not last long to say the least.” - mendoza327</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Groom had surprise gifts scheduled to show up once an hour for the 8 hours prior to the wedding, with special meaning behind each one relating to relevant moments of their relationship. Bride was bitchy because some of them werent up to her standards. Theyre currently in the maybe if we have a baby, the immense increased stress will save our marriage stage.” - CoderDispose</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “When the bride tried to playfully feed the groom some cake, pulling it back once it got close to his mouth. The third time she did this, he slapped it out of her hand and stormed off. In the ensuing awkward silence and wide-eyed staring, we all knew it wouldnt last. Surprisingly, they were together for nearly two years before the bride eloped away with her step-brother. No one saw that coming.” - grubychild</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Prior to my wedding I’d asked my husband to practice dancing with me because I’m uncoordinated, due to a disability. He blew me off and said we’d be fine. As we were dancing, he spoke in my ear, not even quietly. “What are you doing? What’s wrong with you? You’re embarrassing me!!” We lasted 2 years. Leaving was the best decision I ever made.” - Edavis050694</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “My uncle when he broke his neck trying to breakdance on his stag do, He went down the aisle in a wheelchair. She divorced shortly after. He can walk again now but because of his surgery he cannot turn his neck. One of my go to stories because its insane.” - Byrdie55555</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “The groom showed up drunk after golfing with buddies all day. The bride in her vows said For Richer... left out the poorer - kellygrrrl328</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Wedding videographer here, I think my favorite moment was when I was sitting at the miscellaneous table with all the randoms and the girl next to me, the grooms ex, drunkenly admitted to sleeping with the groom a few months prior” - qwertyNopesir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “I worked at a museum that also doubled as a wedding venue in the summers. As part of the wedding package, the museum would stay open after hours for the guests only so I’d just sit there and greet people basically. One wedding got particularly rowdy. Almost everyone was drunk, people were jumping into the fountain, someone vomited in said fountain. At one point, the bride is crying. Turns out the groom and one of his groomsmen were screwing upstairs in one of the bathrooms. A fight ensued between the groom and the father of the bride and cops were called because it really got ugly. Entertaining for me but I felt so bad for the bride.” - lacrimal_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185344.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
