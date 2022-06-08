@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/08/2022-05:11:31
+Last updated: 06/08/2022-06:11:31
 <br>
 ## <a href="#linky2" id="linky1">56 Dank And Dirty Memes To Get You Going</a><br>
 
@@ -117,113 +117,59 @@ Last updated: 06/08/2022-05:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 Questions You Should Never Ask Another Person</a><br>
+## <a href="#linky3" id="linky2">24 Women Reveal Embarrassing Questions They Want To Ask Men</a><br>
 
-<span style="font-size:4em">1. Why cant you be like insert persons name? Well... Because I am not that persons name. -u/f_rice </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184739.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Do you use that opening in your boxers/briefs to pee, or do you just pull down the top of your boxers/briefs? That little opening just doesn’t seem that useful. Thank you in advance.” -sparkmatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Why are you so quiet? -u/MrMagpie91</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184740.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Someone probably already asked this, but is it hard/difficult to shave your balls?” -CatLikesPulms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Have you noticed youre going bald? -u/Relative-Ad-87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184741.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Honestly, how thoroughly do you wipe your butt? What about cleaning it in the shower? And uhh unrelated, how open are you to the idea of prostate massages/any kind of sexual attention being paid to your asshole? If youre straight, do you ever include any of that in masturbation? would it feel weird/uncomfortable if a partner wanted to?” -addangel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Why are you single? -u/GrouchyPuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184742.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Is being able to helicopter an innate skill or do you have to practice?” -EbenHSHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. When in a relationship: Do you think [friend] is prettier than me? Or any related question of which you actually dont want to hear the answer to. -u/leonmarino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184743.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “You like cuddling after sex just as much as we do, don’t you? Don’t lie.” -swfbh234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The same question over again, and really pressing the matter until the person gives you the answer that shocks ya. -u/djdjsksldbahehe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184745.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Do you ever worry about what your friends think of the attractiveness of your girlfriend/wife? Like are you ever worried that people you know don’t find her good looking or judge you for being with her?” -MommaJ94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. When is the baby due? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184751.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “When you use the toilet, does your weenie just hang into the toilet? Do you rest it on the seat? Do you ever get poop splash on your ween?” -misternuggies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Is your daughter seeing anyone? -u/MorningLineDirt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184744.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Does a woman’s height matter? What about weight? Is using urinals when they’re all full but there’s one left, is it awkward? Do you mind a little hair down there (even if it’s nicely trimmed and short)?” -oh_the_struggle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Are you depressed or just want attention? -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184746.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Do guys really appreciate a woman that makes the move? Whether you are newly dating or married for years? I want him to feel wanted by me and I want to convey that. Or do guys feel it could threaten them a little bit? I know it sounds weird and maybe old school but I have always wondered what the answer is.” -catsmom63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. When did you put on all that extra weight? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184747.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “What are some of your thoughts on girls making the first move?” -Ranagios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When are yall gonna break up? -u/PafflaxTP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184748.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Can you feel our boobs when we hug?” -onajourney314</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “What’s the worst thing you’ve ever seen?” to any EMT/Paramedic/Firefighter….etc. I promise you it’s horrible and not something you’d want to think about. We don’t want to relive those memories, especially so unexpectedly. Ask about something funny instead. You’ll get a better answer. -u/shitscrubber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184749.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Do yall enjoy late night chats as much as girls do or it annoys yall if its very often?” -spillbeanss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Are you in yet? -u/jabularich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184750.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Is it true you really get random boners?” -kanyesbitch7889</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Do you have a prettier sister? -u/paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184752.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “What the f**k do you do with someone’s balls during sex?” -Apprehensive_Crew_93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. What, are you on your period or something? -u/Thibideaux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184753.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “How often do you really cry? What makes you cry?” -nerdcorner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Are you going to try again? Asked after my miscarriage. But at least people stopped asking, When are you two going to have a baby? after I miscarried. -u/LadyJedi1286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184754.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Serious question men: does it/would it bother you if a girl had self harm scars? How far along in the relationship would you want to know about/see them?” -imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Why are you so skinny? -u/Aadityajoshi151</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184755.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Are all boobies good boobies?” -odiumvibe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Don’t ask a veteran if they killed someone during their time in service. Surprisingly it’s common, please don’t. It’s really insensitive. -u/dover_boi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184756.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “I’m with someone who buys me flowers to make me smile - what would be something I could do similarly for him that is nonsexual that would brighten his day?” -justfineand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Why does your Argentinian grandfather speak fluent German? -u/Arabeskas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184757.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Do men like it when females (friend/girlfriend) tell you they feel safe around you?” -2muddy2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When are you (insert societal “milestone” here)? Either when the time’s right or never. Society created that milestone, it’s not something that actually needs to be done so shut the hell up. -u/SimShade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184758.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Do pussies generally taste/smell appealing?” -Infinite-Furiosa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Apparently, a lot of asexuals get asked if they were molested as kids and I dont know on what planet is it okay to ask anyone that. -u/puella_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184759.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Does what our vaginas look like truly matter to you? Like girls having longer lips and such. I’ve always felt incredibly self conscious about guys going down on me even if guys have never mentioned it before.” -MamaMingyu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185366.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Why arent you drinking? -u/ShrubberyDragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184760.png" style="width:100%"><br>
+<span style="font-size:4em">22. “Is it true that guys generally hesitate or avoid going up to and talking women that are super attractive? I mean like a 9 or a 10/10? Is attractiveness/appearance something that makes you stall when “shooting your shot”?” -hoodfairyy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “How did he/she die?”particularly if the death was recent. The answer could be something that the family doesn’t want to share…drugs, suicide, etc. If they haven’t brought it up, you shouldn’t, either. -u/sarcastinymph</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184761.png" style="width:100%"><br>
+<span style="font-size:4em">23. “What does it feel like to run with no underwear on. Does it just flop around? Does it hurt? Does the bouncing get you hard?” -Jurazel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. When are you two having kids? My wife cant have a baby, its honestly like having someone rip my heart out of my chest whenever were asked. -u/MFLevel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. So am I better than your ex? -u/33Stickers33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184763.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “What does an erection feel like?” -fatherimustfeed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185369.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">24 Dangerous Spots to Avoid Entirely</a><br>
-
-<span style="font-size:4em">1. “When the park service tells you not to go somewhere, listen to them, especially regarding hot springs in Yellowstone.” -Fantastic_Rock_3836 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The blind spots next to and behind big trucks.” -HawaiianShirtsOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Monastery Beach in Monterey, CA. Going into the water can kill you and the waves have pulled people from the shore to their death.” -_zydrate_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Caves. I know spelunking is a cool hobby for some people, just like scuba diving and rock climbing. But things can go so wrong so fast when youre in a subterranean cave, and it can be really difficult for anyone to come rescue you. You can die by falling, by getting stuck, by a cave-in, by getting lost, by getting caught in a flash flood and drowning... Just so many awful ways to die in a cave. (See: John Jones dying in Nutty Putty cave)” -Clara_Coulson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Old battlefields. You should never cross an an old battlefield even if it’s from decades ago, and seems “safe”. There could be landmines hidden and you could end up with a limb blown off, or dead. It can be very difficult for someone to rescue you because there are landmines and it’s difficult to know where to step, and most battlefields are abandoned or far away from civilization. You can die by being exploded of course, wound infection or bleeding out (if limb was blown off), starvation and thirst. Either way, just don’t do it.” -NimbleVaseline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Kayaking or any water rafting type sport with amateurs. Many people die due to carelessness or not knowing safety precautions.” -MaximumRabbit5276</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “East Saint Louis on any evening when the weather is nice. Even more dangerous on a holiday such as the 4th of July.” -tdfitz89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Sulfur vents. You get nose-blind to the smell almost immediately. If the concentration gets high enough, you will asphyxiate. If you fall in, you may die from the steam burns, before you asphyxiate, though. Either way, you aint coming out.” -Sttocs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Please stay away from rails, people always underestimate how fast trains are.” -RedandAlive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Low head dams on rivers. They are drowning machines. You fall off the dam, or swim too close the the downstream side where the water spills over- there is a circular current. It draws a person into the water fall; waterfall pushes the down to near bottom and shoots you down stream, but not enough to get out of the cycle. If you lived through it and surface, you are pulled back to the waterfall again.” -Popcorn53</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The parts of Bondi beach that arent the red and yellow flags if you want to go swimming. Paddling or wading for outside the flags? Sure. Full-on swimming though? Youre in dangerous territory for a rip. Be careful when at Bondi.” -Arc_the_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Anywhere with a floating liveleak logo.” -Aromatic-Car-824</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “If your intuition is freaking out, get out. Full stop. Dont worry about what anyone else thinks. Trust thy gut.” -No-Comfortable9850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “If youre in a parking garage, no matter gender, please be careful.” --skyrone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Somalia. It seems like a no brainer but I have never seen anywhere else on the travel wiki that says that traveling alone is very likely to result in your death.” -TPrice1616</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “That one island with the indigenous tribe that will straight up kill you if you set foot on it.” -ItsDanIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Port-a-potties that have been somewhere for A LONG TIME. (I have heard the word lethal is appropriate.)” -fanofpolkadotts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “American malls at a black friday sale.” -Sorry_Deer_4162</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Wittenoom. Idiot tourists go there for instagram likes or whatever. There are plenty of perfectly good gorges nearby that aren’t full of the worst kind of asbestos. Sure, I do personally have something against the place, but surely it’s not worth it to go there. The croc in Wittenoom will still be there long after the radiation in Chernobyl has completely faded.” -SilentHuman8</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Any underwater cave. Theres gotta be a ton of skeletons in diving gear, hundreds of feet underground, in pitch black. No thank you.” -radio-morioh-cho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “That one small town in the US where the coal mine caught on fire and now the ground is burning forever. They evacuated the place but apparently a few people refused to leave.” -Rainbow_Dash_RL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Open space, even thinking about it is scary. Astronauts are the most fearless people on the planet” -Tox-Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “The reactor room at Chernobyl.” -Bjarki56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Dont go swimming in lakes or oceans after dark. It takes surprisingly little for your brain to get confused, illogical and panic. Its also surprisingly easy to drown while in those states.” -NordicShimmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185160.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">26 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky4" id="linky3">26 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184898.jpg" style="width:100%"><br>
 
@@ -279,51 +225,7 @@ Last updated: 06/08/2022-05:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">20 Tweets That Have No Business Being This Unhinged</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010406/87185514/babies.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010414/87185515/arbys.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010418/87185516/black.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010424/87185517/ceiling.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010429/87185518/dessert.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010435/87185519/gay.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010531/87185529/thrift.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010440/87185520/harry.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010446/87185521/heath.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010451/87185522/head.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010502/87185524/hole.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010509/87185525/homeless.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010512/87185526/jokes.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010458/87185523/hild.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010520/87185527/poop.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010525/87185528/straight.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010536/87185530/mom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010542/87185531/tiddy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010546/87185532/twin.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010554/87185533/twink.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">25 Wedding Moments of Unholy WTF-Levels</a><br>
+## <a href="#linky5" id="linky4">25 Wedding Moments of Unholy WTF-Levels</a><br>
 
 <span style="font-size:4em">1. “The morning after the wedding at campfire coffee the new bride turned to the groom asked, Are you going to wear your ring everyday because it kinda makes you look like a fa**ot? Those of us there side glanced and took deep sips of coffee.. I think it lasted 4-6 months.” - billy_biceps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185336.jpg" style="width:100%"><br>
 
@@ -375,7 +277,7 @@ Last updated: 06/08/2022-05:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Funny Memes to Start Your Week With</a><br>
+## <a href="#linky6" id="linky5">Funny Memes to Start Your Week With</a><br>
 
 <span style="font-size:4em">1. Growing up is learning that adults arent super heroes, but are imperfect beings just trying their best to raise children. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177949.png" style="width:100%"><br>
 
@@ -419,39 +321,59 @@ Last updated: 06/08/2022-05:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">14 No-Money Date Ideas for All the Frugal Folks</a><br>
+## <a href="#linky7" id="linky6">24 Dangerous Spots to Avoid Entirely</a><br>
 
-<span style="font-size:4em">1. Play boardgames and talk, or just watching a movie with a glass of wine/beer. Nothing wrong with a night in, as long as you make it memorable. -Jazz_vE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102764.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “When the park service tells you not to go somewhere, listen to them, especially regarding hot springs in Yellowstone.” -Fantastic_Rock_3836 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Didnt really do it because I was out of cash per se, but I went out with a girl I liked in 2020 during a phase of the pandemic where restaurants and cafes were closed. And since it was winter (and where Im from winter is particularly cold) and our plans were to go on a walk in a park, I surprised her by bringing homemade muffins, a thermos full of warm tea and two cups, so we ended up sitting on a bench warming ourselves up drinking tea. I think it applies well for a low-budget date idea, especially if you find a place with a good view like we did! -koorvus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102766.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “The blind spots next to and behind big trucks.” -HawaiianShirtsOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Going to a very specific store - like lighting or carpets - and just asking do you like this one? Why? Always nice and hilarious how I can be surprised up to now. Bring coffee in travel mugs. -rosemaryjar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102767.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Monastery Beach in Monterey, CA. Going into the water can kill you and the waves have pulled people from the shore to their death.” -_zydrate_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Well if your bucket is literally zero dollars, you can just simply go to take a walk to nice place like a park or a free exhibition. -HumanoNo25051998</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102768.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Caves. I know spelunking is a cool hobby for some people, just like scuba diving and rock climbing. But things can go so wrong so fast when youre in a subterranean cave, and it can be really difficult for anyone to come rescue you. You can die by falling, by getting stuck, by a cave-in, by getting lost, by getting caught in a flash flood and drowning... Just so many awful ways to die in a cave. (See: John Jones dying in Nutty Putty cave)” -Clara_Coulson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sit in separate tiny apartments and have anxiety attacks over webcams. Because we work at different medical practices and actually meeting up would be a terrible idea. -ThadisJones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102769.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Old battlefields. You should never cross an an old battlefield even if it’s from decades ago, and seems “safe”. There could be landmines hidden and you could end up with a limb blown off, or dead. It can be very difficult for someone to rescue you because there are landmines and it’s difficult to know where to step, and most battlefields are abandoned or far away from civilization. You can die by being exploded of course, wound infection or bleeding out (if limb was blown off), starvation and thirst. Either way, just don’t do it.” -NimbleVaseline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Well in this game called grand theft auto you can solicit a prostitute and then beat them up for money. I assume you could replicate this. -GhostOfPiss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102772.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Kayaking or any water rafting type sport with amateurs. Many people die due to carelessness or not knowing safety precautions.” -MaximumRabbit5276</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. We have three kids. Date night at our house is usually just a less kid-friendly dinner after the kids are in bed, and a movie on the couch. -ialbertson90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102765.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “East Saint Louis on any evening when the weather is nice. Even more dangerous on a holiday such as the 4th of July.” -tdfitz89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Have a movie date, cook together, and hold on to each other. -Extension_Speech_527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102770.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Sulfur vents. You get nose-blind to the smell almost immediately. If the concentration gets high enough, you will asphyxiate. If you fall in, you may die from the steam burns, before you asphyxiate, though. Either way, you aint coming out.” -Sttocs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Just being in bed together, watching a movie/documentary, or talking about anything we would like but if he wants to eat some snacks, he should eat them on the floor since I wont allow him to eat in bed hahaha and then we can have sex if we’re in the mood or just sleep. -i_am_noodang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102771.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Please stay away from rails, people always underestimate how fast trains are.” -RedandAlive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A decent home-made meal, drinks and a few games to play. Make sure your place doesn’t smell like a** and clean your upholstery. -Miss_Thang2077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102773.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Low head dams on rivers. They are drowning machines. You fall off the dam, or swim too close the the downstream side where the water spills over- there is a circular current. It draws a person into the water fall; waterfall pushes the down to near bottom and shoots you down stream, but not enough to get out of the cycle. If you lived through it and surface, you are pulled back to the waterfall again.” -Popcorn53</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Look up free events in my city on Facebook Events section and just go there. Types of events I found: LGBTQ get together, dance class, yoga, promotional concerts, drag show, cat petting event, free beer tasting, diy project events, dog toy stuffing, doomsday prepper session, etc. You can find weird free sh*t in your city. -Chocat_X_Stencchi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102774.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “The parts of Bondi beach that arent the red and yellow flags if you want to go swimming. Paddling or wading for outside the flags? Sure. Full-on swimming though? Youre in dangerous territory for a rip. Be careful when at Bondi.” -Arc_the_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Have an at-home spa night - take a bath together, wash each other’s hair, do a homemade face mask etc and give each other massages. Check out your local library. They have amazing resources that you might not expect. My local library system lets us check out aquarium passes, state park passes, telescopes, all sorts of cool stuff and all for free. Plan a dream vacation. Pick an international city and look up landmarks, restaurants, nature spots you’d want to visit. You could even cook a dish from that culture and watch a movie set there. -Alternative-East9418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102775.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Anywhere with a floating liveleak logo.” -Aromatic-Car-824</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. People watch. Get or bring some cheap eats to a park where there are a lot of people and make up stories about the people walking by. -rynnmango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102776.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “If your intuition is freaking out, get out. Full stop. Dont worry about what anyone else thinks. Trust thy gut.” -No-Comfortable9850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Make her favorite dinner, stargazing while getting high, and for the grand finale a massage. A real massage with lotion, heated towels, music, and some aroma therapy. I can literally make my S/O drool. -gimme3strokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102777.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “If youre in a parking garage, no matter gender, please be careful.” --skyrone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Somalia. It seems like a no brainer but I have never seen anywhere else on the travel wiki that says that traveling alone is very likely to result in your death.” -TPrice1616</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “That one island with the indigenous tribe that will straight up kill you if you set foot on it.” -ItsDanIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Port-a-potties that have been somewhere for A LONG TIME. (I have heard the word lethal is appropriate.)” -fanofpolkadotts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “American malls at a black friday sale.” -Sorry_Deer_4162</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Wittenoom. Idiot tourists go there for instagram likes or whatever. There are plenty of perfectly good gorges nearby that aren’t full of the worst kind of asbestos. Sure, I do personally have something against the place, but surely it’s not worth it to go there. The croc in Wittenoom will still be there long after the radiation in Chernobyl has completely faded.” -SilentHuman8</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Any underwater cave. Theres gotta be a ton of skeletons in diving gear, hundreds of feet underground, in pitch black. No thank you.” -radio-morioh-cho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “That one small town in the US where the coal mine caught on fire and now the ground is burning forever. They evacuated the place but apparently a few people refused to leave.” -Rainbow_Dash_RL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Open space, even thinking about it is scary. Astronauts are the most fearless people on the planet” -Tox-Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “The reactor room at Chernobyl.” -Bjarki56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Dont go swimming in lakes or oceans after dark. It takes surprisingly little for your brain to get confused, illogical and panic. Its also surprisingly easy to drown while in those states.” -NordicShimmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185160.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
+## <a href="#linky8" id="linky7">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
 
 <span style="font-size:4em">1. I wonder how many times these tent pole were pulled down before this sign went up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183851.jpg" style="width:100%"><br>
 
@@ -515,99 +437,83 @@ Last updated: 06/08/2022-05:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">18 Beings That Are Extra Special</a><br>
+## <a href="#linky9" id="linky8">14 No-Money Date Ideas for All the Frugal Folks</a><br>
 
-<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Play boardgames and talk, or just watching a movie with a glass of wine/beer. Nothing wrong with a night in, as long as you make it memorable. -Jazz_vE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Didnt really do it because I was out of cash per se, but I went out with a girl I liked in 2020 during a phase of the pandemic where restaurants and cafes were closed. And since it was winter (and where Im from winter is particularly cold) and our plans were to go on a walk in a park, I surprised her by bringing homemade muffins, a thermos full of warm tea and two cups, so we ended up sitting on a bench warming ourselves up drinking tea. I think it applies well for a low-budget date idea, especially if you find a place with a good view like we did! -koorvus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Going to a very specific store - like lighting or carpets - and just asking do you like this one? Why? Always nice and hilarious how I can be surprised up to now. Bring coffee in travel mugs. -rosemaryjar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Well if your bucket is literally zero dollars, you can just simply go to take a walk to nice place like a park or a free exhibition. -HumanoNo25051998</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sit in separate tiny apartments and have anxiety attacks over webcams. Because we work at different medical practices and actually meeting up would be a terrible idea. -ThadisJones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Well in this game called grand theft auto you can solicit a prostitute and then beat them up for money. I assume you could replicate this. -GhostOfPiss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. We have three kids. Date night at our house is usually just a less kid-friendly dinner after the kids are in bed, and a movie on the couch. -ialbertson90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Have a movie date, cook together, and hold on to each other. -Extension_Speech_527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Just being in bed together, watching a movie/documentary, or talking about anything we would like but if he wants to eat some snacks, he should eat them on the floor since I wont allow him to eat in bed hahaha and then we can have sex if we’re in the mood or just sleep. -i_am_noodang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. A decent home-made meal, drinks and a few games to play. Make sure your place doesn’t smell like a** and clean your upholstery. -Miss_Thang2077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Look up free events in my city on Facebook Events section and just go there. Types of events I found: LGBTQ get together, dance class, yoga, promotional concerts, drag show, cat petting event, free beer tasting, diy project events, dog toy stuffing, doomsday prepper session, etc. You can find weird free sh*t in your city. -Chocat_X_Stencchi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Have an at-home spa night - take a bath together, wash each other’s hair, do a homemade face mask etc and give each other massages. Check out your local library. They have amazing resources that you might not expect. My local library system lets us check out aquarium passes, state park passes, telescopes, all sorts of cool stuff and all for free. Plan a dream vacation. Pick an international city and look up landmarks, restaurants, nature spots you’d want to visit. You could even cook a dish from that culture and watch a movie set there. -Alternative-East9418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. People watch. Get or bring some cheap eats to a park where there are a lot of people and make up stories about the people walking by. -rynnmango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Make her favorite dinner, stargazing while getting high, and for the grand finale a massage. A real massage with lotion, heated towels, music, and some aroma therapy. I can literally make my S/O drool. -gimme3strokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102777.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">24 Women Reveal Embarrassing Questions They Want To Ask Men</a><br>
+## <a href="#linky10" id="linky9">20 Tweets That Have No Business Being This Unhinged</a><br>
 
-<span style="font-size:4em">1. “Do you use that opening in your boxers/briefs to pee, or do you just pull down the top of your boxers/briefs? That little opening just doesn’t seem that useful. Thank you in advance.” -sparkmatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185346.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010406/87185514/babies.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Someone probably already asked this, but is it hard/difficult to shave your balls?” -CatLikesPulms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185347.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010414/87185515/arbys.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Honestly, how thoroughly do you wipe your butt? What about cleaning it in the shower? And uhh unrelated, how open are you to the idea of prostate massages/any kind of sexual attention being paid to your asshole? If youre straight, do you ever include any of that in masturbation? would it feel weird/uncomfortable if a partner wanted to?” -addangel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185348.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010418/87185516/black.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Is being able to helicopter an innate skill or do you have to practice?” -EbenHSHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185349.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010424/87185517/ceiling.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “You like cuddling after sex just as much as we do, don’t you? Don’t lie.” -swfbh234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185352.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010429/87185518/dessert.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Do you ever worry about what your friends think of the attractiveness of your girlfriend/wife? Like are you ever worried that people you know don’t find her good looking or judge you for being with her?” -MommaJ94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185353.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010435/87185519/gay.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “When you use the toilet, does your weenie just hang into the toilet? Do you rest it on the seat? Do you ever get poop splash on your ween?” -misternuggies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185351.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010531/87185529/thrift.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Does a woman’s height matter? What about weight? Is using urinals when they’re all full but there’s one left, is it awkward? Do you mind a little hair down there (even if it’s nicely trimmed and short)?” -oh_the_struggle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185354.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010440/87185520/harry.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Do guys really appreciate a woman that makes the move? Whether you are newly dating or married for years? I want him to feel wanted by me and I want to convey that. Or do guys feel it could threaten them a little bit? I know it sounds weird and maybe old school but I have always wondered what the answer is.” -catsmom63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185355.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010446/87185521/heath.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “What are some of your thoughts on girls making the first move?” -Ranagios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185356.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010451/87185522/head.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Can you feel our boobs when we hug?” -onajourney314</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185357.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010502/87185524/hole.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Do yall enjoy late night chats as much as girls do or it annoys yall if its very often?” -spillbeanss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185358.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010509/87185525/homeless.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Is it true you really get random boners?” -kanyesbitch7889</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185359.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010512/87185526/jokes.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “What the f**k do you do with someone’s balls during sex?” -Apprehensive_Crew_93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185360.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010458/87185523/hild.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “How often do you really cry? What makes you cry?” -nerdcorner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185350.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010520/87185527/poop.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Serious question men: does it/would it bother you if a girl had self harm scars? How far along in the relationship would you want to know about/see them?” -imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185361.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010525/87185528/straight.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Are all boobies good boobies?” -odiumvibe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185362.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010536/87185530/mom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “I’m with someone who buys me flowers to make me smile - what would be something I could do similarly for him that is nonsexual that would brighten his day?” -justfineand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185363.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010542/87185531/tiddy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Do men like it when females (friend/girlfriend) tell you they feel safe around you?” -2muddy2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185364.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010546/87185532/twin.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Do pussies generally taste/smell appealing?” -Infinite-Furiosa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Does what our vaginas look like truly matter to you? Like girls having longer lips and such. I’ve always felt incredibly self conscious about guys going down on me even if guys have never mentioned it before.” -MamaMingyu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Is it true that guys generally hesitate or avoid going up to and talking women that are super attractive? I mean like a 9 or a 10/10? Is attractiveness/appearance something that makes you stall when “shooting your shot”?” -hoodfairyy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “What does it feel like to run with no underwear on. Does it just flop around? Does it hurt? Does the bouncing get you hard?” -Jurazel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “What does an erection feel like?” -fatherimustfeed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185369.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010554/87185533/twink.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Funny Pics and Memes That Are Perfect Time Wasters </a><br>
+## <a href="#linky11" id="linky10">Funny Pics and Memes That Are Perfect Time Wasters </a><br>
 
 <span style="font-size:4em">1. We laugh at this but it is based in reality. If I cant think straight, then all my motor functions go right out the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185034.jpeg" style="width:100%"><br>
 
@@ -673,7 +579,47 @@ Last updated: 06/08/2022-05:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
+## <a href="#linky12" id="linky11">18 Beings That Are Extra Special</a><br>
+
+<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
 
 <span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
 
