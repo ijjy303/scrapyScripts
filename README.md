@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/07/2022-23:11:31
+Last updated: 06/08/2022-00:11:31
 <br>
 ## <a href="#linky2" id="linky1">56 Dank And Dirty Memes To Get You Going</a><br>
 
@@ -117,67 +117,57 @@ Last updated: 06/07/2022-23:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
+## <a href="#linky3" id="linky2">25 Questions You Should Never Ask Another Person</a><br>
 
-<span style="font-size:4em">1. I wonder how many times these tent pole were pulled down before this sign went up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183851.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Why cant you be like insert persons name? Well... Because I am not that persons name. -u/f_rice </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183862.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Why are you so quiet? -u/MrMagpie91</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183860.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Have you noticed youre going bald? -u/Relative-Ad-87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Beware, the birds will poop in your mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183869.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Why are you single? -u/GrouchyPuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Gotta love Google Maps. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183841.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. When in a relationship: Do you think [friend] is prettier than me? Or any related question of which you actually dont want to hear the answer to. -u/leonmarino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183842.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The same question over again, and really pressing the matter until the person gives you the answer that shocks ya. -u/djdjsksldbahehe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183844.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. When is the baby due? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. We dont know what happened here, but we do have some guesses. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183843.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Is your daughter seeing anyone? -u/MorningLineDirt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183845.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Are you depressed or just want attention? -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This one is a classic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183846.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. When did you put on all that extra weight? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183847.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. When are yall gonna break up? -u/PafflaxTP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183848.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “What’s the worst thing you’ve ever seen?” to any EMT/Paramedic/Firefighter….etc. I promise you it’s horrible and not something you’d want to think about. We don’t want to relive those memories, especially so unexpectedly. Ask about something funny instead. You’ll get a better answer. -u/shitscrubber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183849.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Are you in yet? -u/jabularich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183850.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Do you have a prettier sister? -u/paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183852.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. What, are you on your period or something? -u/Thibideaux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. John getting called out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183853.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Are you going to try again? Asked after my miscarriage. But at least people stopped asking, When are you two going to have a baby? after I miscarried. -u/LadyJedi1286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183854.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Why are you so skinny? -u/Aadityajoshi151</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183855.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Don’t ask a veteran if they killed someone during their time in service. Surprisingly it’s common, please don’t. It’s really insensitive. -u/dover_boi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. you know the story behind this sign didnt end well. Ouch. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183856.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Why does your Argentinian grandfather speak fluent German? -u/Arabeskas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Hey, whats your problem with the Danish? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183857.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. When are you (insert societal “milestone” here)? Either when the time’s right or never. Society created that milestone, it’s not something that actually needs to be done so shut the hell up. -u/SimShade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183858.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Apparently, a lot of asexuals get asked if they were molested as kids and I dont know on what planet is it okay to ask anyone that. -u/puella_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183859.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Why arent you drinking? -u/ShrubberyDragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184760.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183861.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “How did he/she die?”particularly if the death was recent. The answer could be something that the family doesn’t want to share…drugs, suicide, etc. If they haven’t brought it up, you shouldn’t, either. -u/sarcastinymph</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184761.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183863.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. When are you two having kids? My wife cant have a baby, its honestly like having someone rip my heart out of my chest whenever were asked. -u/MFLevel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Google Maps for the win. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Well, exhibit B will be a document from my doctor stating that Im both stupid and legally blind, so whats your next move? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183870.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. So am I better than your ex? -u/33Stickers33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184763.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -285,69 +275,59 @@ Last updated: 06/07/2022-23:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Funny Pics and Memes That Are Perfect Time Wasters </a><br>
+## <a href="#linky6" id="linky5">26 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. We laugh at this but it is based in reality. If I cant think straight, then all my motor functions go right out the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185034.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184898.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This picture is going to haunt us all daylong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185035.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184899.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. WTF guys I love a good airpot battle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185036.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184900.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. I am the one who knocks, not you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185037.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. He does pull it off, you have to give him that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185038.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Sorry kid, I dont make the rules here. Oh wait, yes I do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185039.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Whats wrong babe, lost your appetite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185040.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184904.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This is why you need people to help proof read your work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185041.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185042.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185043.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185044.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184908.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Too soon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185045.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Explain this then? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185046.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. We cant let him get away with this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185047.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184911.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Because thats how you explode. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185048.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Wow shes so random. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185049.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184913.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Bro had been training his entire life and he didnt even get a single swing in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185050.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184914.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185051.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184915.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Im probably going to jail, but damn my lawyer is cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185052.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Hes dead. Thats funny to you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185053.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184917.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. If it makes him happy, why shouldnt it make you happy as well? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185054.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184918.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185055.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184919.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185056.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184920.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185057.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184921.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185058.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184922.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185059.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185060.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185061.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185062.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185063.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185064.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184923.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -435,151 +415,105 @@ Last updated: 06/07/2022-23:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
+## <a href="#linky9" id="linky8">Funny Pics and Memes That Are Perfect Time Wasters </a><br>
 
-<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. We laugh at this but it is based in reality. If I cant think straight, then all my motor functions go right out the window. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185034.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This picture is going to haunt us all daylong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185035.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. WTF guys I love a good airpot battle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185036.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I am the one who knocks, not you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185037.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. He does pull it off, you have to give him that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185038.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Sorry kid, I dont make the rules here. Oh wait, yes I do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185039.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Whats wrong babe, lost your appetite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185040.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This is why you need people to help proof read your work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185041.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185042.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185043.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185044.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Too soon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185045.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Explain this then? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185046.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. We cant let him get away with this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185047.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Because thats how you explode. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185048.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Wow shes so random. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Bro had been training his entire life and he didnt even get a single swing in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185050.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185051.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Im probably going to jail, but damn my lawyer is cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185052.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Hes dead. Thats funny to you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185053.jpeg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">21. If it makes him happy, why shouldnt it make you happy as well? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185054.jpeg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">26 Fresh Memes of the Dankest Kind</a><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185055.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184898.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185056.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184899.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185057.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184900.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185058.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184901.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185059.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184902.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185060.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184903.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185061.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184904.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185062.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184905.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185063.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184908.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184911.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184913.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184914.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87184923.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87185064.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Surreal Photographs of Rundown and Abandoned Places</a><br>
+## <a href="#linky10" id="linky9">14 No-Money Date Ideas for All the Frugal Folks</a><br>
 
-<span style="font-size:4em">1. Ksar Nalut is an 11th century fortified granary located in Nalut District, Libya.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184588.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Play boardgames and talk, or just watching a movie with a glass of wine/beer. Nothing wrong with a night in, as long as you make it memorable. -Jazz_vE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Former mansion of a cult leader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184589.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Didnt really do it because I was out of cash per se, but I went out with a girl I liked in 2020 during a phase of the pandemic where restaurants and cafes were closed. And since it was winter (and where Im from winter is particularly cold) and our plans were to go on a walk in a park, I surprised her by bringing homemade muffins, a thermos full of warm tea and two cups, so we ended up sitting on a bench warming ourselves up drinking tea. I think it applies well for a low-budget date idea, especially if you find a place with a good view like we did! -koorvus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A cinema in northern Thailand that I shot in 2016 – abandoned since the mid 80’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184591.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Going to a very specific store - like lighting or carpets - and just asking do you like this one? Why? Always nice and hilarious how I can be surprised up to now. Bring coffee in travel mugs. -rosemaryjar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. It happened just two days ago! I walked for 80 km through the desert just to see this beauty – an abandoned 60m heights space rocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184592.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Well if your bucket is literally zero dollars, you can just simply go to take a walk to nice place like a park or a free exhibition. -HumanoNo25051998</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The abandoned pyramid in Memphis, TN, before it was renovated into a Bass Pro Shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184593.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sit in separate tiny apartments and have anxiety attacks over webcams. Because we work at different medical practices and actually meeting up would be a terrible idea. -ThadisJones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Abandoned Dunalastair Castle – SCOTLAND</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184594.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Well in this game called grand theft auto you can solicit a prostitute and then beat them up for money. I assume you could replicate this. -GhostOfPiss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Abandoned car but make it cute (Oakland, CA)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184595.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. We have three kids. Date night at our house is usually just a less kid-friendly dinner after the kids are in bed, and a movie on the couch. -ialbertson90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Brand new Fiat 147 abandoned for 35 years in an old shed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184596.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Have a movie date, cook together, and hold on to each other. -Extension_Speech_527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Forgotten Treehouse in Redmond, Washington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184590.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Just being in bed together, watching a movie/documentary, or talking about anything we would like but if he wants to eat some snacks, he should eat them on the floor since I wont allow him to eat in bed hahaha and then we can have sex if we’re in the mood or just sleep. -i_am_noodang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Bannerman Castle, Beacon, NY</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184597.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. A decent home-made meal, drinks and a few games to play. Make sure your place doesn’t smell like a** and clean your upholstery. -Miss_Thang2077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184598.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Look up free events in my city on Facebook Events section and just go there. Types of events I found: LGBTQ get together, dance class, yoga, promotional concerts, drag show, cat petting event, free beer tasting, diy project events, dog toy stuffing, doomsday prepper session, etc. You can find weird free sh*t in your city. -Chocat_X_Stencchi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. My favorite thing in the world to do is to search on google maps for hours for abandoned places, then see the evolution from before it was abandoned to slowly deteriorating into a forgotten place. Not sure if it’s OC since I found the pics but didn’t take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184599.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Have an at-home spa night - take a bath together, wash each other’s hair, do a homemade face mask etc and give each other massages. Check out your local library. They have amazing resources that you might not expect. My local library system lets us check out aquarium passes, state park passes, telescopes, all sorts of cool stuff and all for free. Plan a dream vacation. Pick an international city and look up landmarks, restaurants, nature spots you’d want to visit. You could even cook a dish from that culture and watch a movie set there. -Alternative-East9418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Abandoned train in the mountains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184600.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. People watch. Get or bring some cheap eats to a park where there are a lot of people and make up stories about the people walking by. -rynnmango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Crypt, Scotland, UK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hashima Island in Nagasaki, Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A few days ago I posted about Energia in Baikonur cosmodrome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. You could probably survive a nuclear blast in this fridge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. On New Year’s Eve 1993, this ocean liner left Greece for Thailand, towed by a tugboat. The tow lines broke during a storm, the ship was left adrift and, on 18 January 1994, it ran aground near Fuerteventura, Canary Islands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184607.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Make her favorite dinner, stargazing while getting high, and for the grand finale a massage. A real massage with lotion, heated towels, music, and some aroma therapy. I can literally make my S/O drool. -gimme3strokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102777.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Funny Memes to Start Your Week With</a><br>
+## <a href="#linky11" id="linky10">Funny Memes to Start Your Week With</a><br>
 
 <span style="font-size:4em">1. Growing up is learning that adults arent super heroes, but are imperfect beings just trying their best to raise children. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177949.png" style="width:100%"><br>
 
@@ -620,6 +554,50 @@ Last updated: 06/07/2022-23:11:31
 <span style="font-size:4em">19. Hes the piano man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177968.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. Lets see how that pans out for them Cotton. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87177969.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Surreal Photographs of Rundown and Abandoned Places</a><br>
+
+<span style="font-size:4em">1. Ksar Nalut is an 11th century fortified granary located in Nalut District, Libya.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Former mansion of a cult leader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A cinema in northern Thailand that I shot in 2016 – abandoned since the mid 80’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. It happened just two days ago! I walked for 80 km through the desert just to see this beauty – an abandoned 60m heights space rocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The abandoned pyramid in Memphis, TN, before it was renovated into a Bass Pro Shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Abandoned Dunalastair Castle – SCOTLAND</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Abandoned car but make it cute (Oakland, CA)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Brand new Fiat 147 abandoned for 35 years in an old shed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Forgotten Treehouse in Redmond, Washington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Bannerman Castle, Beacon, NY</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My favorite thing in the world to do is to search on google maps for hours for abandoned places, then see the evolution from before it was abandoned to slowly deteriorating into a forgotten place. Not sure if it’s OC since I found the pics but didn’t take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Abandoned train in the mountains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Crypt, Scotland, UK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hashima Island in Nagasaki, Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A few days ago I posted about Energia in Baikonur cosmodrome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You could probably survive a nuclear blast in this fridge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. On New Year’s Eve 1993, this ocean liner left Greece for Thailand, towed by a tugboat. The tow lines broke during a storm, the ship was left adrift and, on 18 January 1994, it ran aground near Fuerteventura, Canary Islands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184607.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -675,89 +653,111 @@ Last updated: 06/07/2022-23:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">25 Questions You Should Never Ask Another Person</a><br>
+## <a href="#linky14" id="linky13">30 Hilarious Signs Written For Incredibly Stupid People</a><br>
 
-<span style="font-size:4em">1. Why cant you be like insert persons name? Well... Because I am not that persons name. -u/f_rice </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184739.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I wonder how many times these tent pole were pulled down before this sign went up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Why are you so quiet? -u/MrMagpie91</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184740.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Have you noticed youre going bald? -u/Relative-Ad-87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184741.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Why are you single? -u/GrouchyPuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184742.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Beware, the birds will poop in your mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. When in a relationship: Do you think [friend] is prettier than me? Or any related question of which you actually dont want to hear the answer to. -u/leonmarino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184743.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Gotta love Google Maps. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The same question over again, and really pressing the matter until the person gives you the answer that shocks ya. -u/djdjsksldbahehe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184745.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. When is the baby due? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184751.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Is your daughter seeing anyone? -u/MorningLineDirt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184744.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. We dont know what happened here, but we do have some guesses. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Are you depressed or just want attention? -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184746.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. When did you put on all that extra weight? -u/waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184747.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This one is a classic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When are yall gonna break up? -u/PafflaxTP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184748.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “What’s the worst thing you’ve ever seen?” to any EMT/Paramedic/Firefighter….etc. I promise you it’s horrible and not something you’d want to think about. We don’t want to relive those memories, especially so unexpectedly. Ask about something funny instead. You’ll get a better answer. -u/shitscrubber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184749.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Are you in yet? -u/jabularich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184750.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Do you have a prettier sister? -u/paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184752.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. What, are you on your period or something? -u/Thibideaux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184753.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Are you going to try again? Asked after my miscarriage. But at least people stopped asking, When are you two going to have a baby? after I miscarried. -u/LadyJedi1286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184754.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. John getting called out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Why are you so skinny? -u/Aadityajoshi151</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184755.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Don’t ask a veteran if they killed someone during their time in service. Surprisingly it’s common, please don’t. It’s really insensitive. -u/dover_boi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184756.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Why does your Argentinian grandfather speak fluent German? -u/Arabeskas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184757.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. you know the story behind this sign didnt end well. Ouch. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When are you (insert societal “milestone” here)? Either when the time’s right or never. Society created that milestone, it’s not something that actually needs to be done so shut the hell up. -u/SimShade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184758.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Hey, whats your problem with the Danish? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Apparently, a lot of asexuals get asked if they were molested as kids and I dont know on what planet is it okay to ask anyone that. -u/puella_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184759.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Why arent you drinking? -u/ShrubberyDragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184760.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “How did he/she die?”particularly if the death was recent. The answer could be something that the family doesn’t want to share…drugs, suicide, etc. If they haven’t brought it up, you shouldn’t, either. -u/sarcastinymph</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184761.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. When are you two having kids? My wife cant have a baby, its honestly like having someone rip my heart out of my chest whenever were asked. -u/MFLevel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184762.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. So am I better than your ex? -u/33Stickers33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184763.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Google Maps for the win. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Well, exhibit B will be a document from my doctor stating that Im both stupid and legally blind, so whats your next move? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87183870.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">14 No-Money Date Ideas for All the Frugal Folks</a><br>
+## <a href="#linky15" id="linky14">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
 
-<span style="font-size:4em">1. Play boardgames and talk, or just watching a movie with a glass of wine/beer. Nothing wrong with a night in, as long as you make it memorable. -Jazz_vE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102764.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Didnt really do it because I was out of cash per se, but I went out with a girl I liked in 2020 during a phase of the pandemic where restaurants and cafes were closed. And since it was winter (and where Im from winter is particularly cold) and our plans were to go on a walk in a park, I surprised her by bringing homemade muffins, a thermos full of warm tea and two cups, so we ended up sitting on a bench warming ourselves up drinking tea. I think it applies well for a low-budget date idea, especially if you find a place with a good view like we did! -koorvus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102766.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Going to a very specific store - like lighting or carpets - and just asking do you like this one? Why? Always nice and hilarious how I can be surprised up to now. Bring coffee in travel mugs. -rosemaryjar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102767.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Well if your bucket is literally zero dollars, you can just simply go to take a walk to nice place like a park or a free exhibition. -HumanoNo25051998</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102768.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sit in separate tiny apartments and have anxiety attacks over webcams. Because we work at different medical practices and actually meeting up would be a terrible idea. -ThadisJones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102769.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Well in this game called grand theft auto you can solicit a prostitute and then beat them up for money. I assume you could replicate this. -GhostOfPiss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102772.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. We have three kids. Date night at our house is usually just a less kid-friendly dinner after the kids are in bed, and a movie on the couch. -ialbertson90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102765.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Have a movie date, cook together, and hold on to each other. -Extension_Speech_527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102770.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Just being in bed together, watching a movie/documentary, or talking about anything we would like but if he wants to eat some snacks, he should eat them on the floor since I wont allow him to eat in bed hahaha and then we can have sex if we’re in the mood or just sleep. -i_am_noodang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102771.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A decent home-made meal, drinks and a few games to play. Make sure your place doesn’t smell like a** and clean your upholstery. -Miss_Thang2077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102773.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Look up free events in my city on Facebook Events section and just go there. Types of events I found: LGBTQ get together, dance class, yoga, promotional concerts, drag show, cat petting event, free beer tasting, diy project events, dog toy stuffing, doomsday prepper session, etc. You can find weird free sh*t in your city. -Chocat_X_Stencchi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102774.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Have an at-home spa night - take a bath together, wash each other’s hair, do a homemade face mask etc and give each other massages. Check out your local library. They have amazing resources that you might not expect. My local library system lets us check out aquarium passes, state park passes, telescopes, all sorts of cool stuff and all for free. Plan a dream vacation. Pick an international city and look up landmarks, restaurants, nature spots you’d want to visit. You could even cook a dish from that culture and watch a movie set there. -Alternative-East9418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102775.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. People watch. Get or bring some cheap eats to a park where there are a lot of people and make up stories about the people walking by. -rynnmango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102776.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Make her favorite dinner, stargazing while getting high, and for the grand finale a massage. A real massage with lotion, heated towels, music, and some aroma therapy. I can literally make my S/O drool. -gimme3strokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87102777.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
