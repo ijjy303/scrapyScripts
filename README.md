@@ -1,49 +1,100 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/08/2022-16:11:31
+Last updated: 06/08/2022-17:11:31
 <br>
-## <a href="#linky2" id="linky1">21 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky2" id="linky1">31 Animal Facts Too Wild to Tame</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186054.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The spines on a Tigers tongue are sharp enough to lick skin clean off of muscle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186055.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Female dragonflies will fake being dead in order to stop unwanted male advances.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186056.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When caterpillars enter the chrysalis phase, they don’t just sprout wings, their entire body first turns into a liquid, soupy substance which then reforms into the butterfly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186057.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Crows recognize individual people even if they are wearing disguises and after many years. (The people are wearing disguises, not the crows.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186058.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186059.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Tarantulas have pet frogs. The frogs eat bugs and parasites that would damage the spider’s eggs, and in turn the spider protects the frog. Even after the eggs hatch they continue to protect the frog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186060.gif" style="width:100%"><br>
+<span style="font-size:4em">7. All the deep sea anglerfish you see pictures of with the lil lights hanging over their heads? Theyre all female.
+
+The males are tiny and born with a terribly weak jaw and a massive hunger. They seek out a female, and torn between hungry and horny they bite her.
+
+She then releases an enzyme that fuses the male to her body. She slowly absorbs them into her body with only their lil testicles remaining so she can instantly fertilize her eggs when she wants to.
+
+Some females have rows and rows of lil testicles on their bodies from where they have absorbed multiple males.
+
+And you thought your sex life was weird, eh?
+
+But no kink shaming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186061.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186062.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186063.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Snakes dont have eyelids. If you see a snake blink, thats a legless lizard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186366.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186064.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186065.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186066.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186369.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186067.png" style="width:100%"><br>
+<span style="font-size:4em">14. A beavers a*s smells like icecream.
+
+Castoreum, the product of those anal glands, was once used as a flavor substitute for vanilla. It’s now only used in perfume and a style of Swedish schnapps called Bäverhojt, or “beaver shout.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186370.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186068.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Turtles can breathe through their butts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186069.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The binturong, also known as the bearcat, is an arboreal mammal closely related to the red panda. It smells like popcorn!
+
+My obscure fact about it is that captive binturong are capable of holding grudges, and will climb above people they dislike in order to s**t on their heads.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186372.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186070.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186071.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Many bird species will eat the fecal sacks of their young, thus keeping the nest clean for their young.
+
+I no longer wish I knew what it would be like to be a bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186375.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186072.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. We all know an octopus has 8 legs.
+
+It also has 3 hearts and 9 brains, and it can fit itself through a hole the size of a quarter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186376.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186073.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. All halibut are male until they reach 45 inches in length. They then all become female.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186377.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186074.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Chickens will come say goodbye to each other when one is dying and they do soft clicks and will then leave and that chicken will normally die alone. Some chickens also will kill another chicken because they sense something’s wrong with the chicken, a disease for example. Hope u enjoyed these facts I found them in a book called How To Speak Chicken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Pacu fish have teeth that look exactly like people’s. They evolved to chew nuts that fell into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Rabbits dont have pads on their paws. Only fur.
+
+So if you see a cartoon rabbit with pads on its paw, completely wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A kangaroo will mate again one to three days after giving birth. the newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. if the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. so they can have an adolescent Joey, a nursing one, and one in stasis all at the same time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Hippos sweat is red.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Platypus glow teal under a UV light, so Perry the Platypus is actually the correct color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Sea cucumbers spit out their insides to scare away predators.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The Inland Taipan (snake) has the strongest/potent venom on the planet, capable of killing around 290 humans with a single bite. Scaled to mice, a single bite could kill 250,000 mice.
+
+
+That said, bites from the Inland Taipan to humans have been ***pretty rare*** as they usually stay underground and are not overly aggressive unless you jump all over their burrow. They also have a good number of predators who prey on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Baby Koalas nuzzles their mothers butt to releases a runnier, protein-rich substance, called pap which they then drink to get moms gut bacteria, helpful in digesting eucalyptus leaves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The bearded vulture or bone-eating vulture, is a rare eur-asian vulture that only eats marrow, that looks rusty in color but is in fact white. This rusty color is because they actually paint themselves with red clay deposits to look attractive to their mates. They are really cool looking.
+
+They have a little tuft of feathers below their beaks that looks like the beard of a dragon, so that is why they are called that.
+
+Other cool fact: They can dissolve bone in the acid of their stomach in 24 hours. The PH of their stomachs is 1 which is VERY acidic. They are the only vulture species in the world that 90% of its diet is just bone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them.
+
+It is thought that this might actually be helpful because a) their eyesight was s**t anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey.
+
+Imagine something eating your eyeballs and it being an *upgrade*.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186388.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -103,51 +154,7 @@ Last updated: 06/08/2022-16:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
-
-<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">25 Old Things That Should Make A Comeback</a><br>
+## <a href="#linky4" id="linky3">25 Old Things That Should Make A Comeback</a><br>
 
 <span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
 
@@ -203,7 +210,7 @@ Last updated: 06/08/2022-16:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">20 Tweets That Have No Business Being This Unhinged</a><br>
+## <a href="#linky5" id="linky4">20 Tweets That Have No Business Being This Unhinged</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/010406/87185514/babies.jpg" style="width:100%"><br>
 
@@ -247,7 +254,143 @@ Last updated: 06/08/2022-16:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">56 Dank And Dirty Memes To Get You Going</a><br>
+## <a href="#linky6" id="linky5">18 Beings That Are Extra Special</a><br>
+
+<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">24 Dangerous Spots to Avoid Entirely</a><br>
+
+<span style="font-size:4em">1. “When the park service tells you not to go somewhere, listen to them, especially regarding hot springs in Yellowstone.” -Fantastic_Rock_3836 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The blind spots next to and behind big trucks.” -HawaiianShirtsOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Monastery Beach in Monterey, CA. Going into the water can kill you and the waves have pulled people from the shore to their death.” -_zydrate_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Caves. I know spelunking is a cool hobby for some people, just like scuba diving and rock climbing. But things can go so wrong so fast when youre in a subterranean cave, and it can be really difficult for anyone to come rescue you. You can die by falling, by getting stuck, by a cave-in, by getting lost, by getting caught in a flash flood and drowning... Just so many awful ways to die in a cave. (See: John Jones dying in Nutty Putty cave)” -Clara_Coulson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Old battlefields. You should never cross an an old battlefield even if it’s from decades ago, and seems “safe”. There could be landmines hidden and you could end up with a limb blown off, or dead. It can be very difficult for someone to rescue you because there are landmines and it’s difficult to know where to step, and most battlefields are abandoned or far away from civilization. You can die by being exploded of course, wound infection or bleeding out (if limb was blown off), starvation and thirst. Either way, just don’t do it.” -NimbleVaseline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Kayaking or any water rafting type sport with amateurs. Many people die due to carelessness or not knowing safety precautions.” -MaximumRabbit5276</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “East Saint Louis on any evening when the weather is nice. Even more dangerous on a holiday such as the 4th of July.” -tdfitz89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Sulfur vents. You get nose-blind to the smell almost immediately. If the concentration gets high enough, you will asphyxiate. If you fall in, you may die from the steam burns, before you asphyxiate, though. Either way, you aint coming out.” -Sttocs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Please stay away from rails, people always underestimate how fast trains are.” -RedandAlive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Low head dams on rivers. They are drowning machines. You fall off the dam, or swim too close the the downstream side where the water spills over- there is a circular current. It draws a person into the water fall; waterfall pushes the down to near bottom and shoots you down stream, but not enough to get out of the cycle. If you lived through it and surface, you are pulled back to the waterfall again.” -Popcorn53</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The parts of Bondi beach that arent the red and yellow flags if you want to go swimming. Paddling or wading for outside the flags? Sure. Full-on swimming though? Youre in dangerous territory for a rip. Be careful when at Bondi.” -Arc_the_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Anywhere with a floating liveleak logo.” -Aromatic-Car-824</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “If your intuition is freaking out, get out. Full stop. Dont worry about what anyone else thinks. Trust thy gut.” -No-Comfortable9850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “If youre in a parking garage, no matter gender, please be careful.” --skyrone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Somalia. It seems like a no brainer but I have never seen anywhere else on the travel wiki that says that traveling alone is very likely to result in your death.” -TPrice1616</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “That one island with the indigenous tribe that will straight up kill you if you set foot on it.” -ItsDanIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Port-a-potties that have been somewhere for A LONG TIME. (I have heard the word lethal is appropriate.)” -fanofpolkadotts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “American malls at a black friday sale.” -Sorry_Deer_4162</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Wittenoom. Idiot tourists go there for instagram likes or whatever. There are plenty of perfectly good gorges nearby that aren’t full of the worst kind of asbestos. Sure, I do personally have something against the place, but surely it’s not worth it to go there. The croc in Wittenoom will still be there long after the radiation in Chernobyl has completely faded.” -SilentHuman8</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Any underwater cave. Theres gotta be a ton of skeletons in diving gear, hundreds of feet underground, in pitch black. No thank you.” -radio-morioh-cho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “That one small town in the US where the coal mine caught on fire and now the ground is burning forever. They evacuated the place but apparently a few people refused to leave.” -Rainbow_Dash_RL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Open space, even thinking about it is scary. Astronauts are the most fearless people on the planet” -Tox-Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “The reactor room at Chernobyl.” -Bjarki56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Dont go swimming in lakes or oceans after dark. It takes surprisingly little for your brain to get confused, illogical and panic. Its also surprisingly easy to drown while in those states.” -NordicShimmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185160.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
+
+<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">56 Dank And Dirty Memes To Get You Going</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184714.jpg" style="width:100%"><br>
 
@@ -363,7 +506,7 @@ Last updated: 06/08/2022-16:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Funny Struggle Memes That Are Giving Us Life </a><br>
+## <a href="#linky10" id="linky9">Funny Struggle Memes That Are Giving Us Life </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185713.jpg" style="width:100%"><br>
 
@@ -423,7 +566,21 @@ Last updated: 06/08/2022-16:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">30 Incredible Discoveries From Around the World</a><br>
+## <a href="#linky11" id="linky10">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">30 Incredible Discoveries From Around the World</a><br>
 
 <span style="font-size:4em">1. Redhead Festival, Dublin Ireland A Lot Of People Gather In This Place, united Only By The Fact That They Have Orange Hair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186316.jpg" style="width:100%"><br>
 
@@ -487,183 +644,53 @@ Last updated: 06/08/2022-16:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">24 Dangerous Spots to Avoid Entirely</a><br>
+## <a href="#linky13" id="linky12">21 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. “When the park service tells you not to go somewhere, listen to them, especially regarding hot springs in Yellowstone.” -Fantastic_Rock_3836 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185137.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “The blind spots next to and behind big trucks.” -HawaiianShirtsOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185138.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Monastery Beach in Monterey, CA. Going into the water can kill you and the waves have pulled people from the shore to their death.” -_zydrate_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185139.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Caves. I know spelunking is a cool hobby for some people, just like scuba diving and rock climbing. But things can go so wrong so fast when youre in a subterranean cave, and it can be really difficult for anyone to come rescue you. You can die by falling, by getting stuck, by a cave-in, by getting lost, by getting caught in a flash flood and drowning... Just so many awful ways to die in a cave. (See: John Jones dying in Nutty Putty cave)” -Clara_Coulson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185140.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Old battlefields. You should never cross an an old battlefield even if it’s from decades ago, and seems “safe”. There could be landmines hidden and you could end up with a limb blown off, or dead. It can be very difficult for someone to rescue you because there are landmines and it’s difficult to know where to step, and most battlefields are abandoned or far away from civilization. You can die by being exploded of course, wound infection or bleeding out (if limb was blown off), starvation and thirst. Either way, just don’t do it.” -NimbleVaseline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185141.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Kayaking or any water rafting type sport with amateurs. Many people die due to carelessness or not knowing safety precautions.” -MaximumRabbit5276</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185142.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “East Saint Louis on any evening when the weather is nice. Even more dangerous on a holiday such as the 4th of July.” -tdfitz89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185143.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186060.gif" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Sulfur vents. You get nose-blind to the smell almost immediately. If the concentration gets high enough, you will asphyxiate. If you fall in, you may die from the steam burns, before you asphyxiate, though. Either way, you aint coming out.” -Sttocs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185144.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Please stay away from rails, people always underestimate how fast trains are.” -RedandAlive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185145.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Low head dams on rivers. They are drowning machines. You fall off the dam, or swim too close the the downstream side where the water spills over- there is a circular current. It draws a person into the water fall; waterfall pushes the down to near bottom and shoots you down stream, but not enough to get out of the cycle. If you lived through it and surface, you are pulled back to the waterfall again.” -Popcorn53</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185146.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “The parts of Bondi beach that arent the red and yellow flags if you want to go swimming. Paddling or wading for outside the flags? Sure. Full-on swimming though? Youre in dangerous territory for a rip. Be careful when at Bondi.” -Arc_the_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185147.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Anywhere with a floating liveleak logo.” -Aromatic-Car-824</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185148.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “If your intuition is freaking out, get out. Full stop. Dont worry about what anyone else thinks. Trust thy gut.” -No-Comfortable9850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185149.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “If youre in a parking garage, no matter gender, please be careful.” --skyrone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185150.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186067.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Somalia. It seems like a no brainer but I have never seen anywhere else on the travel wiki that says that traveling alone is very likely to result in your death.” -TPrice1616</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185151.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “That one island with the indigenous tribe that will straight up kill you if you set foot on it.” -ItsDanIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185152.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Port-a-potties that have been somewhere for A LONG TIME. (I have heard the word lethal is appropriate.)” -fanofpolkadotts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185153.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “American malls at a black friday sale.” -Sorry_Deer_4162</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185155.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Wittenoom. Idiot tourists go there for instagram likes or whatever. There are plenty of perfectly good gorges nearby that aren’t full of the worst kind of asbestos. Sure, I do personally have something against the place, but surely it’s not worth it to go there. The croc in Wittenoom will still be there long after the radiation in Chernobyl has completely faded.” -SilentHuman8</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185156.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Any underwater cave. Theres gotta be a ton of skeletons in diving gear, hundreds of feet underground, in pitch black. No thank you.” -radio-morioh-cho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185159.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “That one small town in the US where the coal mine caught on fire and now the ground is burning forever. They evacuated the place but apparently a few people refused to leave.” -Rainbow_Dash_RL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Open space, even thinking about it is scary. Astronauts are the most fearless people on the planet” -Tox-Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “The reactor room at Chernobyl.” -Bjarki56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Dont go swimming in lakes or oceans after dark. It takes surprisingly little for your brain to get confused, illogical and panic. Its also surprisingly easy to drown while in those states.” -NordicShimmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185160.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186074.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">18 Beings That Are Extra Special</a><br>
-
-<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">Plane Passenger Sharts Themself Mid-Flight </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041026/87186656/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041043/87186661/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041039/87186660/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041030/87186657/four.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">27 Fascinating Photos that are A Visual Delight</a><br>
-
-<span style="font-size:4em">1. The aftermath of a laser burning through this piece of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Just rainbow cat activating his super powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The galactic core of the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The tropical rock lobster (Panulirus Ornatus) takes 18 months to grow to 1kg and is farmed in parts of the Indo-Pacific oceans.bster </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. THis potato crisp looks like some kind of fossile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The sunset under the clouds make them appear like they are on fire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Chunky horned lizard is chunky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Time for a smoke break.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An adolescent Blue Jay that is only halfway through puberty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This absolute unit of a military man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Guy walking his dog in the city almost looks like a post apocalyptic scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This ducking is intense!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The Eye of the Earth, Cetina River source in Mount Dinara Nature Park, Croatia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Smooth fencing move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A fully grown Australian saltwater Crocodile next to a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Absolutely stunning amethyst geode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Black Sapphire grapes from Syria.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Hasbullah in a very important meeting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Cool mask and a walk by a castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. 30,000 individual 2-megapixel images of the moon to create 1 80-megapixel image with insane detail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The “Arab” room in Cardiff Castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ethiopian Welo Opal New gem found looks like the ocean in rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Cool cosplay with black and white and color parts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This is what Jupiter’s North Pole in infrared looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Chomp chomp chomp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. This Devils Fingers fungus looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. How every kid feels during serious or ceremonious events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186646.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
+## <a href="#linky14" id="linky13">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186203.jpeg" style="width:100%"><br>
 
