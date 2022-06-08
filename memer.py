@@ -23,7 +23,7 @@ class baumerSpider(scrapy.Spider):
 	start_urls = ['https://www.ebaumsworld.com'] #['https://www.ebaumsworld.com/pictures/?page=1']
 	outputHtml = 'README.md'#'output.html'
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
-	hdr = f'# All ur Baums R belog to Uz<br>\nLast updated: {nowwie}\n<br>\n'
+	hdr = f'# All ur Memes R belog to Uz<br>\nLast updated: {nowwie}\n<br>\n'
 	
 	try:
 		os.remove(outputHtml)
