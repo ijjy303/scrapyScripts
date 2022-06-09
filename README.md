@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/09/2022-00:11:31
+Last updated: 06/09/2022-01:11:31
 <br>
 ## <a href="#linky2" id="linky1">44 Random Pics to Rescue You From Boredom</a><br>
 
@@ -157,7 +157,123 @@ Last updated: 06/09/2022-00:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">21 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky4" id="linky3">56 Dank And Dirty Memes To Get You Going</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021716/87185722/87185232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021722/87185723/87185229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021727/87185724/87185230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021736/87185725/87185236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021740/87185726/87185242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021747/87185727/87185244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021752/87185728/87185245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021759/87185729/87185246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021803/87185730/87185248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021810/87185731/87185250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021814/87185732/87185258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021821/87185733/87185259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021825/87185734/87185262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021832/87185735/87185263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022738/87185762/87178822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022750/87185763/87178840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022802/87185764/87178830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022814/87185765/87184151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022825/87185766/87184161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031410/87185867/87125957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031422/87185868/87125946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031433/87185869/87125949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031444/87185870/87135162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031455/87185871/87135163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031506/87185872/87135187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031515/87185873/87135178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031517/87185874/87135190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031526/87185875/87144576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031528/87185876/87144591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031537/87185877/87144824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031539/87185878/87144834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031548/87185879/87144838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031550/87185880/87144842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031559/87185881/87144844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031601/87185882/87144845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031610/87185883/87144855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031612/87185884/87144856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031621/87185885/87144858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031625/87185886/87144859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031632/87185887/87144862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031636/87185888/87153821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031644/87185889/87153830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031647/87185890/87153833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031656/87185891/87153837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031657/87185892/87166165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031707/87185893/87180064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031708/87185894/87180078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031718/87185895/87180084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031720/87185896/87180095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031729/87185897/87180098.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">21 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186054.jpg" style="width:100%"><br>
 
@@ -203,7 +319,7 @@ Last updated: 06/09/2022-00:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">31 Animal Facts Too Wild to Tame</a><br>
+## <a href="#linky6" id="linky5">31 Animal Facts Too Wild to Tame</a><br>
 
 <span style="font-size:4em">1. The spines on a Tigers tongue are sharp enough to lick skin clean off of muscle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186374.jpg" style="width:100%"><br>
 
@@ -297,20 +413,6 @@ Other cool fact: They can dissolve bone in the acid of their stomach in 24 hours
 It is thought that this might actually be helpful because a) their eyesight was s**t anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey.
 
 Imagine something eating your eyeballs and it being an *upgrade*.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186388.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -598,103 +700,7 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">18 Beings That Are Extra Special</a><br>
-
-<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">25 Old Things That Should Make A Comeback</a><br>
-
-<span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Cloaks. They look cool, often one size fits all, easier to take on or off than a jacket, and don’t have a dumb zipper.” -lordcaledonia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “$800 rent for 2/2 apartments.” -revamped4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “More real effects instead of CGI in movies. Obviously, CGI has made the impossible possible, but directors like Guillermo Tel Toro prove that there is a lot that can be created believably and beautifully on film.” --PyramidHead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Stuff being made to last a lifetime rather than a few months to a few years.” -Nobody91765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “The expectation of lack of availability. The amount of technology we have is truly amazing and I love that I get to experience it. That being said, the idea that I am available 100% of the time from morning to night is easily the biggest source of stress I have in my life. I miss the time before smartphones.” -candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Drive-in movies. I used to love those.” -wwwangels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Appliances that dont constantly break.” -HildegardofBingo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Biodegradable packaging and things without plastic.” -Savitribaii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Dinosaurs. What could possibly go wrong.” -OA-Imoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “A sense of community.” -Jaxxs90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Canteens. Disposable plastic bottles are wasteful, so you should carry around your own canteen and refill it at drink dispensers, vending machines etc.” -Vtfyfudtd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My Dad.” -JohnOliverismysexgod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “A relaxed life style and more family gatherings.” -adallal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Bipartisanship, statesmanship, and a true sense of national unity.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Video games that don’t require a Day 1, 70gb patch.” -IWantToPlayGame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Good manners and discretion.” -W-S_Wannabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Old design of McDonalds buildings.” -Left-Pop-9420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Gas prices.” -iwastouchedbyanangle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Guillotines for corrupt politicians.” -thomriddle45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Capital C real Cocaine in Coca-cola. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Canes, capes, and top-hats for formal wear. Mens fashion peaked in that era and has never reached such highs again.” -darkknight109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Expunging juvenile records for stupid and petty crimes. I get having to prosecute minors as adults for serious crimes, but for stupid and petty things they dont automatically expunge them anymore like they used to and a juvenile record can haunt them for years. As long as the crime was petty and non-violent I want to get back to letting that child once they turn adult having a fresh start.” -llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Mixtapes.” -Vv3eb1024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Physical media. Miss the days of VHS and browsing video stores.” -lunchboxbeard82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185127.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Funny Struggle Memes That Are Giving Us Life </a><br>
+## <a href="#linky11" id="linky10">Funny Struggle Memes That Are Giving Us Life </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185713.jpg" style="width:100%"><br>
 
@@ -754,7 +760,7 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
+## <a href="#linky12" id="linky11">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186203.jpeg" style="width:100%"><br>
 
@@ -820,6 +826,102 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky13" id="linky12">25 Old Things That Should Make A Comeback</a><br>
+
+<span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Cloaks. They look cool, often one size fits all, easier to take on or off than a jacket, and don’t have a dumb zipper.” -lordcaledonia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “$800 rent for 2/2 apartments.” -revamped4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “More real effects instead of CGI in movies. Obviously, CGI has made the impossible possible, but directors like Guillermo Tel Toro prove that there is a lot that can be created believably and beautifully on film.” --PyramidHead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Stuff being made to last a lifetime rather than a few months to a few years.” -Nobody91765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “The expectation of lack of availability. The amount of technology we have is truly amazing and I love that I get to experience it. That being said, the idea that I am available 100% of the time from morning to night is easily the biggest source of stress I have in my life. I miss the time before smartphones.” -candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Drive-in movies. I used to love those.” -wwwangels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Appliances that dont constantly break.” -HildegardofBingo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Biodegradable packaging and things without plastic.” -Savitribaii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Dinosaurs. What could possibly go wrong.” -OA-Imoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A sense of community.” -Jaxxs90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Canteens. Disposable plastic bottles are wasteful, so you should carry around your own canteen and refill it at drink dispensers, vending machines etc.” -Vtfyfudtd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My Dad.” -JohnOliverismysexgod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “A relaxed life style and more family gatherings.” -adallal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Bipartisanship, statesmanship, and a true sense of national unity.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Video games that don’t require a Day 1, 70gb patch.” -IWantToPlayGame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Good manners and discretion.” -W-S_Wannabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Old design of McDonalds buildings.” -Left-Pop-9420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Gas prices.” -iwastouchedbyanangle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Guillotines for corrupt politicians.” -thomriddle45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Capital C real Cocaine in Coca-cola. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Canes, capes, and top-hats for formal wear. Mens fashion peaked in that era and has never reached such highs again.” -darkknight109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Expunging juvenile records for stupid and petty crimes. I get having to prosecute minors as adults for serious crimes, but for stupid and petty things they dont automatically expunge them anymore like they used to and a juvenile record can haunt them for years. As long as the crime was petty and non-violent I want to get back to letting that child once they turn adult having a fresh start.” -llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Mixtapes.” -Vv3eb1024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Physical media. Miss the days of VHS and browsing video stores.” -lunchboxbeard82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185127.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">18 Beings That Are Extra Special</a><br>
+
+<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky15" id="linky14">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
 
 <span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
@@ -864,119 +966,17 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">56 Dank And Dirty Memes To Get You Going</a><br>
+## <a href="#linky16" id="linky15">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184714.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184709.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184692.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184693.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021716/87185722/87185232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021722/87185723/87185229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021727/87185724/87185230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021736/87185725/87185236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021740/87185726/87185242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021747/87185727/87185244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021752/87185728/87185245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021759/87185729/87185246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021803/87185730/87185248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021810/87185731/87185250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021814/87185732/87185258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021821/87185733/87185259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021825/87185734/87185262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/021832/87185735/87185263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022738/87185762/87178822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022750/87185763/87178840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022802/87185764/87178830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022814/87185765/87184151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/022825/87185766/87184161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031410/87185867/87125957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031422/87185868/87125946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031433/87185869/87125949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031444/87185870/87135162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031455/87185871/87135163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031506/87185872/87135187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031515/87185873/87135178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031517/87185874/87135190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031526/87185875/87144576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031528/87185876/87144591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031537/87185877/87144824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031539/87185878/87144834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031548/87185879/87144838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031550/87185880/87144842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031559/87185881/87144844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031601/87185882/87144845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031610/87185883/87144855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031612/87185884/87144856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031621/87185885/87144858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031625/87185886/87144859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031632/87185887/87144862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031636/87185888/87153821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031644/87185889/87153830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031647/87185890/87153833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031656/87185891/87153837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031657/87185892/87166165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031707/87185893/87180064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031708/87185894/87180078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031718/87185895/87180084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031720/87185896/87180095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/031729/87185897/87180098.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
