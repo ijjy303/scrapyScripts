@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/09/2022-03:11:33
+Last updated: 06/09/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">44 Random Pics to Rescue You From Boredom</a><br>
 
@@ -93,47 +93,7 @@ Last updated: 06/09/2022-03:11:33
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">18 Beings That Are Extra Special</a><br>
-
-<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">30 Incredible Discoveries From Around the World</a><br>
+## <a href="#linky3" id="linky2">30 Incredible Discoveries From Around the World</a><br>
 
 <span style="font-size:4em">1. Redhead Festival, Dublin Ireland A Lot Of People Gather In This Place, united Only By The Fact That They Have Orange Hair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186316.jpg" style="width:100%"><br>
 
@@ -197,7 +157,7 @@ Last updated: 06/09/2022-03:11:33
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">21 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky4" id="linky3">21 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186054.jpg" style="width:100%"><br>
 
@@ -243,7 +203,7 @@ Last updated: 06/09/2022-03:11:33
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">31 Animal Facts Too Wild to Tame</a><br>
+## <a href="#linky5" id="linky4">31 Animal Facts Too Wild to Tame</a><br>
 
 <span style="font-size:4em">1. The spines on a Tigers tongue are sharp enough to lick skin clean off of muscle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186374.jpg" style="width:100%"><br>
 
@@ -337,6 +297,72 @@ Other cool fact: They can dissolve bone in the acid of their stomach in 24 hours
 It is thought that this might actually be helpful because a) their eyesight was s**t anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey.
 
 Imagine something eating your eyeballs and it being an *upgrade*.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186388.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186203.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186204.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186206.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186207.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186209.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186212.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186214.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186215.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186218.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186219.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186221.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186222.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186223.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186224.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186225.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186226.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186227.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186229.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186230.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186233.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -624,47 +650,17 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
+## <a href="#linky11" id="linky10">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
 
-<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -724,87 +720,51 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
+## <a href="#linky13" id="linky12">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186203.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186204.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186205.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186206.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186207.png" style="width:100%"><br>
+<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186208.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186209.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186210.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186211.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186212.png" style="width:100%"><br>
+<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186213.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186214.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186215.png" style="width:100%"><br>
+<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186216.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186217.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186218.png" style="width:100%"><br>
+<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186219.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186220.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186221.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186222.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186223.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186224.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186225.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186226.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186227.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186229.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186230.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186233.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">56 Dank And Dirty Memes To Get You Going</a><br>
+## <a href="#linky14" id="linky13">56 Dank And Dirty Memes To Get You Going</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184714.jpg" style="width:100%"><br>
 
@@ -920,7 +880,7 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Funny Struggle Memes That Are Giving Us Life </a><br>
+## <a href="#linky15" id="linky14">Funny Struggle Memes That Are Giving Us Life </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185713.jpg" style="width:100%"><br>
 
@@ -977,6 +937,46 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185718.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185719.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">18 Beings That Are Extra Special</a><br>
+
+<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
