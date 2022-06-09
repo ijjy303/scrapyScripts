@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/09/2022-02:11:31
+Last updated: 06/09/2022-03:11:33
 <br>
 ## <a href="#linky2" id="linky1">44 Random Pics to Rescue You From Boredom</a><br>
 
@@ -93,47 +93,43 @@ Last updated: 06/09/2022-02:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
+## <a href="#linky3" id="linky2">18 Beings That Are Extra Special</a><br>
 
-<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -247,43 +243,100 @@ Last updated: 06/09/2022-02:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">18 Beings That Are Extra Special</a><br>
+## <a href="#linky6" id="linky5">31 Animal Facts Too Wild to Tame</a><br>
 
-<span style="font-size:4em">1. “Dog born with nose trying to become two noses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185444.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The spines on a Tigers tongue are sharp enough to lick skin clean off of muscle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “My extra finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185459.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Female dragonflies will fake being dead in order to stop unwanted male advances.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I have a witch eye.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185445.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When caterpillars enter the chrysalis phase, they don’t just sprout wings, their entire body first turns into a liquid, soupy substance which then reforms into the butterfly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I have two uvulas.” (This condition is called “bifid uvula”)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185447.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Crows recognize individual people even if they are wearing disguises and after many years. (The people are wearing disguises, not the crows.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “We know Maya looks a little different but we love her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185461.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Interesting iris pattern. It doesn’t affect vision.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185458.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Tarantulas have pet frogs. The frogs eat bugs and parasites that would damage the spider’s eggs, and in turn the spider protects the frog. Even after the eggs hatch they continue to protect the frog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My son’s ’jewel’ birthmark on his ring finger.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185446.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. All the deep sea anglerfish you see pictures of with the lil lights hanging over their heads? Theyre all female.
+
+The males are tiny and born with a terribly weak jaw and a massive hunger. They seek out a female, and torn between hungry and horny they bite her.
+
+She then releases an enzyme that fuses the male to her body. She slowly absorbs them into her body with only their lil testicles remaining so she can instantly fertilize her eggs when she wants to.
+
+Some females have rows and rows of lil testicles on their bodies from where they have absorbed multiple males.
+
+And you thought your sex life was weird, eh?
+
+But no kink shaming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Three months in of growing my white streak, embracing team vitiligo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185449.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “This calf with a perfect 7 on its head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185452.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Where’s my white lash enjoyers/rockers at?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185450.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Snakes dont have eyelids. If you see a snake blink, thats a legless lizard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186366.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “My friend’s dog has a smiley face in her ear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185451.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “My kitten with double canines.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185453.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My kid has one streak of very dark hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185454.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186369.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I have two different ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185455.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. A beavers a*s smells like icecream.
+
+Castoreum, the product of those anal glands, was once used as a flavor substitute for vanilla. It’s now only used in perfume and a style of Swedish schnapps called Bäverhojt, or “beaver shout.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186370.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Two cowlicks in different directions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185456.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Turtles can breathe through their butts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “My friend’s cat has extra toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185457.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The binturong, also known as the bearcat, is an arboreal mammal closely related to the red panda. It smells like popcorn!
+
+My obscure fact about it is that captive binturong are capable of holding grudges, and will climb above people they dislike in order to s**t on their heads.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186372.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “My dog has a zigzag pattern down the middle of his back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185448.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Was born with some extra skin on my ear, so I figured it had to be done.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185460.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Many bird species will eat the fecal sacks of their young, thus keeping the nest clean for their young.
+
+I no longer wish I knew what it would be like to be a bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. We all know an octopus has 8 legs.
+
+It also has 3 hearts and 9 brains, and it can fit itself through a hole the size of a quarter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. All halibut are male until they reach 45 inches in length. They then all become female.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Chickens will come say goodbye to each other when one is dying and they do soft clicks and will then leave and that chicken will normally die alone. Some chickens also will kill another chicken because they sense something’s wrong with the chicken, a disease for example. Hope u enjoyed these facts I found them in a book called How To Speak Chicken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Pacu fish have teeth that look exactly like people’s. They evolved to chew nuts that fell into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Rabbits dont have pads on their paws. Only fur.
+
+So if you see a cartoon rabbit with pads on its paw, completely wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A kangaroo will mate again one to three days after giving birth. the newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. if the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. so they can have an adolescent Joey, a nursing one, and one in stasis all at the same time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Hippos sweat is red.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Platypus glow teal under a UV light, so Perry the Platypus is actually the correct color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Sea cucumbers spit out their insides to scare away predators.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The Inland Taipan (snake) has the strongest/potent venom on the planet, capable of killing around 290 humans with a single bite. Scaled to mice, a single bite could kill 250,000 mice.
+
+
+That said, bites from the Inland Taipan to humans have been ***pretty rare*** as they usually stay underground and are not overly aggressive unless you jump all over their burrow. They also have a good number of predators who prey on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Baby Koalas nuzzles their mothers butt to releases a runnier, protein-rich substance, called pap which they then drink to get moms gut bacteria, helpful in digesting eucalyptus leaves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The bearded vulture or bone-eating vulture, is a rare eur-asian vulture that only eats marrow, that looks rusty in color but is in fact white. This rusty color is because they actually paint themselves with red clay deposits to look attractive to their mates. They are really cool looking.
+
+They have a little tuft of feathers below their beaks that looks like the beard of a dragon, so that is why they are called that.
+
+Other cool fact: They can dissolve bone in the acid of their stomach in 24 hours. The PH of their stomachs is 1 which is VERY acidic. They are the only vulture species in the world that 90% of its diet is just bone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them.
+
+It is thought that this might actually be helpful because a) their eyesight was s**t anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey.
+
+Imagine something eating your eyeballs and it being an *upgrade*.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186388.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -501,7 +554,257 @@ Last updated: 06/09/2022-02:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">56 Dank And Dirty Memes To Get You Going</a><br>
+## <a href="#linky10" id="linky9">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
+
+<span style="font-size:4em">1. “There was one night where a car stopped up the road, a girl got out, yelled for help, then got back in and they drove off. I have no idea of it was serious or not, considering she got right back in the car…” -abetherigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Holy shit, Ive got one for this! Grew up in Japan, not too small/not too big city. Worked a job that had me coming home daily at 2-4ish AM. I preferred to walk the backstreet that paralleled the main street home because it felt more cozy and peaceful. Nothing of note happened until one day…
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I turn the corner onto the side street and about halfway down there was a young woman. She wasnt doing anything, just staring at the sky. Staring straight up, STRAIGHT up, neck at a 90 degree angle, mouth slightly agape, long black hair hanging. I hesitated but decided that, since nothing weird has ever happened here before, itd be fine. So I went to walk by. I get up next to her, its a narrow road so not a lot of room to maneuver, and pause to look at her.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+She hasnt moved or reacted to me, shes just staring away. So I fight my instincts and ask her if shes okay. She doesnt react. I look up to see if shes looking at something but theres nothing there. So now Im thinking theres something medical going on, so I reach out and touch her on the shoulder. She jolts and and looks at me like shes just noticed me. I ask if shes okay and she just stammers and says sorry before hustling down the street the same way I was headed. I decided to smoke a cigarette to let some distance get between me and her, but towards the end of the street, she stops and stares at the sky again. Doesnt move for the whole five minutes it takes for me to finish my cig. I walked down the main street for the next couple nights.” -Post-Alone0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “During winter in a rural no cell service kind of area. Completely dark, no street lights nor anyone in sight. Temperatures were around 20 and it was snowing. I was walking my dog with a flashlight. Then I heard someone start screaming bloody murder. Flight or fight kicked in; it truly sounded like someone was being stabbed to death for what seemed like forever.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I chose to find out what the hell was going on. What I found instead was beyond anything I expected. He was a 5 year old boy wandering down the road all alone. All he was wearing were light flannel pants and a thin t-shirt. No shoes or hat. And screaming so loudly it echoed through the hills. I dropped my dogs leash and walked up to him slowly; gently and repeatedly telling him that I’m a mom and that he’s going to be ok. I wrapped him into my arms and carried him to a neighbors home to warm him by the fire and call for help.” -BlueRaining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “One time I turned around to see what was behind me just out of intuition, and I saw someone step behind a tree rather quickly and try to hide from me. I stood there for a second to confirm this, then I speed-walked home. F**king creepy. -THCRANGER</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I’m an overnight security guard. One night I was watching cameras and saw someone underneath a grass tarp where some landscaping was taking place on our property. I was guessing this person had probably tried to stash something before they went into detox which is next door to our property. I get over to the tarp and don’t see the guy anywhere. So I start walking over the tarp and lifting it to look for any stashed items. Well I ended up stepping on the poor homeless guy, scared the shit out of me. He was cool though and we fist bumped and he went on his way.” -Doch1112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “One time I was walking around my relatively safe neighborhood with two of my friends after midnight (we were probably 16 at the time). This loud red truck speeds by us, which is normal for the road we were on. Then a few minutes later the same red truck drives by the opposite way going much slower. Again just a couple of minutes later he drives by but this time stops a hundred or so feet away from us and just sits there. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Realizing that this is not normal we booked it through the yard to the next street over. For the next 20 or so minutes we see this truck creeping up and down the neighborhood while we hid behind some bushes and when we finally thought he was gone, we booked it to my house. He turned the corner onto my road just as we were about to open my front door.” -mattyb584</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Almost 100% sure I witnessed a kidnapping. I was going to get my mail late at night while living in an apartment complex and on the way back I noticed a woman in her pajamas surrounded by a few men right by a car. There was an argument and looked like they forced her in the car and drove off, I found her slipper nearby on the grass. I of course called the police and they came and I let them know what I saw but I never found out what actually happened.” -kinetochore21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I worked night shift for 7 years. One night a young, thin blonde woman was walking down the street at 2am with no pants or underwear on and a button up shirt open. I tried to ask if she needed help and she just stared forward, slowly walking staring forward. I called the police and they came and stood infront of her and she slowly walked into the cops hand and stopped. I didnt stay and went back to work. I still think about her and what the f**k was going on. I tell myself it was sleep walking on Ambien or something, and that she wasnt just assaulted and in complete shock. Ill never know. But she was very pretty, and seemed well groomed. Was very strange.” -IndIka123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Dead body on the side of the street with a sign around its neck saying Im a cellphone thief, dont be like me. This was maybe 20 years ago in Manila, Philippines.” -Godfreee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Not me, but my friend was near downtown at 3am on acid and was almost kidnapped. There’s a lot of young female kidnappings where we’re at and because he’s petite with long hair, he was mistaken as a female target. He managed to run away, but it was of course very traumatizing for him.” -flotsamjr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I worked night shift on Kadena AB on Okinawa, Japan. I started walking to work because I didnt have a car. I really enjoyed the walks. It was a good way to wind down after work as the nights were cool and quiet and I could listen to my music without worrying about anyone else around. One night while walking home I heard some rustling in the jungle of trees on the way home. Next thing I know all of the lights went black and all I heard/felt was a loud wooooosh coming right at my head. I screamed like a little girl, ran, and dropped my ipod (it broke). Once I made it past the trees I realized it was one of the giant bats that lived on Okinawa. It scared the ever living sh*t out of me.” -akroses161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I once saw tiny hands reaching out of a sewer grate. Took me a minute before I realized it was a raccoon.” -realbigexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “An old man who walked very aggressively. Like Jason from Friday the 13th but sped up. I was ready to run but I walked past him and nothing happened. Put me on my toes but holy sh*t change your walking form man.” -micho6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Found a guy who hanged himself in a park. Called 911 and answered some questions, was a long night. - FSD-Bishop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I’ve never been afraid of the dark. Grew up in the countryside, where the nearest streetlight was 10 miles away, so I’m comfortable in dark places, so much so that I often take my dog for a walk at around midnight just because I like the peace and quiet of the night. I live in a city now so something about the dark is just soothing to me. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+That being said, one of the scariest things I’ve ever experienced, I genuinely have no explanation for. Living in a city I used to drive out 20-30 miles into the country to do some astrophotography. As I’m driving out one night I see this guy walking at the side of the road with no lights, reflectors and a big backpack. Didn’t think much of it other than it being a little odd. 5 miles later, I see the same guy walking again. I haven’t changed directions, turned, and I’ve been doing 50mph. As I drove past he looked and waved at me. I was pretty spooked but I drove on. I must be imagining things. It can’t be the same guy. I get to my field in the middle of nowhere, park up and get the camera out, and turn off all the lights so my eyes adjust to the dark.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185793.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Tom Cruise Facts That Nearly Flew over Our Heads</a><br>
+
+<span style="font-size:4em">1. One of the strangest coincidences is that each of his wives were 33 years old when he divorced them. Nicole Kidman, Katie Holmes, and Mimi Rogers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023408/87185813/thirtythree.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Aladdin was originally supposed to resemble Michael J. Fox, however the animation looked too boyish, so Tom Cruise was then used as inspiration.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023242/87185798/aladdin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When he was about 7 years old, Tom was diagnosed with Dyslexia. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023249/87185799/dyslexia.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Every year for Christmas, he sends actress and Interview with the Vampire co-star Kirsten Dunst a cake. Typically a delicious coconut cake.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023231/87185796/cake.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. After the release of Top Gun (1986) Navy recruitment went up 500%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023304/87185802/gun86.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Tom Cruise was offered the role of Edward Scissorhands. However he wasnt pleased with the sadness of the ending, and eventually turned it down. This made way for Johnny Depp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023253/87185800/edward.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the 1980s Tom Cruise and Cher had a brief fling together.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023239/87185797/cher.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Stanley Kubrick was such a brutal perfectionist, that there are allegedly 95 takes of Tom Cruise walking through a door for Eyes Wide Shut.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023301/87185801/eyes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This is Tom Cruise literally hanging from the side of an airplane. Its well known that he does his own stunts, and the newest Mission Impossible movie was no exception.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023312/87185803/hang.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Tom Cruise once witnessed a hit and run. The victim didnt have insurance so he paid her $7,000 hospital bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023314/87185804/hitnrun.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In high school, Tom played linebacker on his varsity football team. He was then kicked off the team after getting caught drinking a beer before a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023227/87185795/ball.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Tom was one of the finalists in consideration to play Neo in The Matrix.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023337/87185808/neo.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In Japan, October 10th is now Tom Cruise Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023324/87185805/japan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When the movie Lock, Stock and Two Smoking Barrels was being released it was endorsed by Tom Cruise at a screening event. His endorsement jumpstarted the careers of both Jason Statham and Guy Richie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023325/87185806/jason.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Tom Cruise was not only thrilled with the Tropic Thunder script, but he himself wanted to create the character (including the dances) of Les Grossman. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023334/87185807/les.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ray-Bans business was tanking in the late 1970s. They would go on to sign Tom Cruise to a 60-film deal (Top Gun, Risky Business, Rain Man included) where he would wear their product. It singlehandedly saved the company.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023358/87185811/rayban.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Thomas Cruise Mapother IV was the actors full name. He legally dropped the Mapother, as his father was abusive during his childhood and he felt no need to keep his name.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023347/87185809/name.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Christian Bale used Tom Cruises mannerisms as inspiration for Patrick Bateman in American Psycho.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023349/87185810/psycho.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In order to properly prepare for The Last Samurai, Cruise spent two years learning sword-fighting as well as the Japanese language.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023401/87185812/samurai.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Woody Harrelson was very close to portraying Jerry Maguire in the film by the same title, until Tom Cruise came along.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/023412/87185814/woodyh.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">25 Old Things That Should Make A Comeback</a><br>
+
+<span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Cloaks. They look cool, often one size fits all, easier to take on or off than a jacket, and don’t have a dumb zipper.” -lordcaledonia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “$800 rent for 2/2 apartments.” -revamped4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “More real effects instead of CGI in movies. Obviously, CGI has made the impossible possible, but directors like Guillermo Tel Toro prove that there is a lot that can be created believably and beautifully on film.” --PyramidHead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Stuff being made to last a lifetime rather than a few months to a few years.” -Nobody91765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “The expectation of lack of availability. The amount of technology we have is truly amazing and I love that I get to experience it. That being said, the idea that I am available 100% of the time from morning to night is easily the biggest source of stress I have in my life. I miss the time before smartphones.” -candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Drive-in movies. I used to love those.” -wwwangels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Appliances that dont constantly break.” -HildegardofBingo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Biodegradable packaging and things without plastic.” -Savitribaii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Dinosaurs. What could possibly go wrong.” -OA-Imoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A sense of community.” -Jaxxs90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Canteens. Disposable plastic bottles are wasteful, so you should carry around your own canteen and refill it at drink dispensers, vending machines etc.” -Vtfyfudtd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My Dad.” -JohnOliverismysexgod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “A relaxed life style and more family gatherings.” -adallal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Bipartisanship, statesmanship, and a true sense of national unity.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Video games that don’t require a Day 1, 70gb patch.” -IWantToPlayGame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Good manners and discretion.” -W-S_Wannabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Old design of McDonalds buildings.” -Left-Pop-9420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Gas prices.” -iwastouchedbyanangle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Guillotines for corrupt politicians.” -thomriddle45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Capital C real Cocaine in Coca-cola. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Canes, capes, and top-hats for formal wear. Mens fashion peaked in that era and has never reached such highs again.” -darkknight109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Expunging juvenile records for stupid and petty crimes. I get having to prosecute minors as adults for serious crimes, but for stupid and petty things they dont automatically expunge them anymore like they used to and a juvenile record can haunt them for years. As long as the crime was petty and non-violent I want to get back to letting that child once they turn adult having a fresh start.” -llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Mixtapes.” -Vv3eb1024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Physical media. Miss the days of VHS and browsing video stores.” -lunchboxbeard82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185127.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186203.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186204.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186206.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186207.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186209.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186212.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186214.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186215.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186218.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186219.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186221.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186222.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186223.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186224.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186225.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186226.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186227.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186229.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186230.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186233.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">56 Dank And Dirty Memes To Get You Going</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87184714.jpg" style="width:100%"><br>
 
@@ -617,133 +920,7 @@ Last updated: 06/09/2022-02:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">25 Old Things That Should Make A Comeback</a><br>
-
-<span style="font-size:4em">1. “Every fashion from every era at the same time. Id love the mess it would make.” -AldaronWilwarin
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Cloaks. They look cool, often one size fits all, easier to take on or off than a jacket, and don’t have a dumb zipper.” -lordcaledonia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “$800 rent for 2/2 apartments.” -revamped4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “More real effects instead of CGI in movies. Obviously, CGI has made the impossible possible, but directors like Guillermo Tel Toro prove that there is a lot that can be created believably and beautifully on film.” --PyramidHead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Stuff being made to last a lifetime rather than a few months to a few years.” -Nobody91765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “The expectation of lack of availability. The amount of technology we have is truly amazing and I love that I get to experience it. That being said, the idea that I am available 100% of the time from morning to night is easily the biggest source of stress I have in my life. I miss the time before smartphones.” -candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Drive-in movies. I used to love those.” -wwwangels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Appliances that dont constantly break.” -HildegardofBingo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Biodegradable packaging and things without plastic.” -Savitribaii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Dinosaurs. What could possibly go wrong.” -OA-Imoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “A sense of community.” -Jaxxs90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Canteens. Disposable plastic bottles are wasteful, so you should carry around your own canteen and refill it at drink dispensers, vending machines etc.” -Vtfyfudtd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My Dad.” -JohnOliverismysexgod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “A relaxed life style and more family gatherings.” -adallal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Bipartisanship, statesmanship, and a true sense of national unity.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Video games that don’t require a Day 1, 70gb patch.” -IWantToPlayGame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Good manners and discretion.” -W-S_Wannabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Old design of McDonalds buildings.” -Left-Pop-9420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Gas prices.” -iwastouchedbyanangle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Guillotines for corrupt politicians.” -thomriddle45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Capital C real Cocaine in Coca-cola. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Canes, capes, and top-hats for formal wear. Mens fashion peaked in that era and has never reached such highs again.” -darkknight109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Expunging juvenile records for stupid and petty crimes. I get having to prosecute minors as adults for serious crimes, but for stupid and petty things they dont automatically expunge them anymore like they used to and a juvenile record can haunt them for years. As long as the crime was petty and non-violent I want to get back to letting that child once they turn adult having a fresh start.” -llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Mixtapes.” -Vv3eb1024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Physical media. Miss the days of VHS and browsing video stores.” -lunchboxbeard82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185127.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
-
-<span style="font-size:4em">1. “There was one night where a car stopped up the road, a girl got out, yelled for help, then got back in and they drove off. I have no idea of it was serious or not, considering she got right back in the car…” -abetherigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Holy shit, Ive got one for this! Grew up in Japan, not too small/not too big city. Worked a job that had me coming home daily at 2-4ish AM. I preferred to walk the backstreet that paralleled the main street home because it felt more cozy and peaceful. Nothing of note happened until one day…
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I turn the corner onto the side street and about halfway down there was a young woman. She wasnt doing anything, just staring at the sky. Staring straight up, STRAIGHT up, neck at a 90 degree angle, mouth slightly agape, long black hair hanging. I hesitated but decided that, since nothing weird has ever happened here before, itd be fine. So I went to walk by. I get up next to her, its a narrow road so not a lot of room to maneuver, and pause to look at her.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-She hasnt moved or reacted to me, shes just staring away. So I fight my instincts and ask her if shes okay. She doesnt react. I look up to see if shes looking at something but theres nothing there. So now Im thinking theres something medical going on, so I reach out and touch her on the shoulder. She jolts and and looks at me like shes just noticed me. I ask if shes okay and she just stammers and says sorry before hustling down the street the same way I was headed. I decided to smoke a cigarette to let some distance get between me and her, but towards the end of the street, she stops and stares at the sky again. Doesnt move for the whole five minutes it takes for me to finish my cig. I walked down the main street for the next couple nights.” -Post-Alone0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “During winter in a rural no cell service kind of area. Completely dark, no street lights nor anyone in sight. Temperatures were around 20 and it was snowing. I was walking my dog with a flashlight. Then I heard someone start screaming bloody murder. Flight or fight kicked in; it truly sounded like someone was being stabbed to death for what seemed like forever.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I chose to find out what the hell was going on. What I found instead was beyond anything I expected. He was a 5 year old boy wandering down the road all alone. All he was wearing were light flannel pants and a thin t-shirt. No shoes or hat. And screaming so loudly it echoed through the hills. I dropped my dogs leash and walked up to him slowly; gently and repeatedly telling him that I’m a mom and that he’s going to be ok. I wrapped him into my arms and carried him to a neighbors home to warm him by the fire and call for help.” -BlueRaining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “One time I turned around to see what was behind me just out of intuition, and I saw someone step behind a tree rather quickly and try to hide from me. I stood there for a second to confirm this, then I speed-walked home. F**king creepy. -THCRANGER</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I’m an overnight security guard. One night I was watching cameras and saw someone underneath a grass tarp where some landscaping was taking place on our property. I was guessing this person had probably tried to stash something before they went into detox which is next door to our property. I get over to the tarp and don’t see the guy anywhere. So I start walking over the tarp and lifting it to look for any stashed items. Well I ended up stepping on the poor homeless guy, scared the shit out of me. He was cool though and we fist bumped and he went on his way.” -Doch1112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “One time I was walking around my relatively safe neighborhood with two of my friends after midnight (we were probably 16 at the time). This loud red truck speeds by us, which is normal for the road we were on. Then a few minutes later the same red truck drives by the opposite way going much slower. Again just a couple of minutes later he drives by but this time stops a hundred or so feet away from us and just sits there. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Realizing that this is not normal we booked it through the yard to the next street over. For the next 20 or so minutes we see this truck creeping up and down the neighborhood while we hid behind some bushes and when we finally thought he was gone, we booked it to my house. He turned the corner onto my road just as we were about to open my front door.” -mattyb584</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Almost 100% sure I witnessed a kidnapping. I was going to get my mail late at night while living in an apartment complex and on the way back I noticed a woman in her pajamas surrounded by a few men right by a car. There was an argument and looked like they forced her in the car and drove off, I found her slipper nearby on the grass. I of course called the police and they came and I let them know what I saw but I never found out what actually happened.” -kinetochore21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I worked night shift for 7 years. One night a young, thin blonde woman was walking down the street at 2am with no pants or underwear on and a button up shirt open. I tried to ask if she needed help and she just stared forward, slowly walking staring forward. I called the police and they came and stood infront of her and she slowly walked into the cops hand and stopped. I didnt stay and went back to work. I still think about her and what the f**k was going on. I tell myself it was sleep walking on Ambien or something, and that she wasnt just assaulted and in complete shock. Ill never know. But she was very pretty, and seemed well groomed. Was very strange.” -IndIka123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Dead body on the side of the street with a sign around its neck saying Im a cellphone thief, dont be like me. This was maybe 20 years ago in Manila, Philippines.” -Godfreee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Not me, but my friend was near downtown at 3am on acid and was almost kidnapped. There’s a lot of young female kidnappings where we’re at and because he’s petite with long hair, he was mistaken as a female target. He managed to run away, but it was of course very traumatizing for him.” -flotsamjr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I worked night shift on Kadena AB on Okinawa, Japan. I started walking to work because I didnt have a car. I really enjoyed the walks. It was a good way to wind down after work as the nights were cool and quiet and I could listen to my music without worrying about anyone else around. One night while walking home I heard some rustling in the jungle of trees on the way home. Next thing I know all of the lights went black and all I heard/felt was a loud wooooosh coming right at my head. I screamed like a little girl, ran, and dropped my ipod (it broke). Once I made it past the trees I realized it was one of the giant bats that lived on Okinawa. It scared the ever living sh*t out of me.” -akroses161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I once saw tiny hands reaching out of a sewer grate. Took me a minute before I realized it was a raccoon.” -realbigexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “An old man who walked very aggressively. Like Jason from Friday the 13th but sped up. I was ready to run but I walked past him and nothing happened. Put me on my toes but holy sh*t change your walking form man.” -micho6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Found a guy who hanged himself in a park. Called 911 and answered some questions, was a long night. - FSD-Bishop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I’ve never been afraid of the dark. Grew up in the countryside, where the nearest streetlight was 10 miles away, so I’m comfortable in dark places, so much so that I often take my dog for a walk at around midnight just because I like the peace and quiet of the night. I live in a city now so something about the dark is just soothing to me. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-That being said, one of the scariest things I’ve ever experienced, I genuinely have no explanation for. Living in a city I used to drive out 20-30 miles into the country to do some astrophotography. As I’m driving out one night I see this guy walking at the side of the road with no lights, reflectors and a big backpack. Didn’t think much of it other than it being a little odd. 5 miles later, I see the same guy walking again. I haven’t changed directions, turned, and I’ve been doing 50mph. As I drove past he looked and waved at me. I was pretty spooked but I drove on. I must be imagining things. It can’t be the same guy. I get to my field in the middle of nowhere, park up and get the camera out, and turn off all the lights so my eyes adjust to the dark.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185793.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Funny Struggle Memes That Are Giving Us Life </a><br>
+## <a href="#linky16" id="linky15">Funny Struggle Memes That Are Giving Us Life </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185713.jpg" style="width:100%"><br>
 
@@ -800,183 +977,6 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185718.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185719.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Two Cousins Accidentally Slept Together and Their Story Hurts Our Eyes to Read</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040429/87185901/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040440/87185902/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040502/87185903/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/040525/87185904/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/07/041505/87185906/end.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">31 Animal Facts Too Wild to Tame</a><br>
-
-<span style="font-size:4em">1. The spines on a Tigers tongue are sharp enough to lick skin clean off of muscle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Female dragonflies will fake being dead in order to stop unwanted male advances.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When caterpillars enter the chrysalis phase, they don’t just sprout wings, their entire body first turns into a liquid, soupy substance which then reforms into the butterfly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Crows recognize individual people even if they are wearing disguises and after many years. (The people are wearing disguises, not the crows.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tarantulas have pet frogs. The frogs eat bugs and parasites that would damage the spider’s eggs, and in turn the spider protects the frog. Even after the eggs hatch they continue to protect the frog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. All the deep sea anglerfish you see pictures of with the lil lights hanging over their heads? Theyre all female.
-
-The males are tiny and born with a terribly weak jaw and a massive hunger. They seek out a female, and torn between hungry and horny they bite her.
-
-She then releases an enzyme that fuses the male to her body. She slowly absorbs them into her body with only their lil testicles remaining so she can instantly fertilize her eggs when she wants to.
-
-Some females have rows and rows of lil testicles on their bodies from where they have absorbed multiple males.
-
-And you thought your sex life was weird, eh?
-
-But no kink shaming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Snakes dont have eyelids. If you see a snake blink, thats a legless lizard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A beavers a*s smells like icecream.
-
-Castoreum, the product of those anal glands, was once used as a flavor substitute for vanilla. It’s now only used in perfume and a style of Swedish schnapps called Bäverhojt, or “beaver shout.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Turtles can breathe through their butts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The binturong, also known as the bearcat, is an arboreal mammal closely related to the red panda. It smells like popcorn!
-
-My obscure fact about it is that captive binturong are capable of holding grudges, and will climb above people they dislike in order to s**t on their heads.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Many bird species will eat the fecal sacks of their young, thus keeping the nest clean for their young.
-
-I no longer wish I knew what it would be like to be a bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. We all know an octopus has 8 legs.
-
-It also has 3 hearts and 9 brains, and it can fit itself through a hole the size of a quarter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. All halibut are male until they reach 45 inches in length. They then all become female.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Chickens will come say goodbye to each other when one is dying and they do soft clicks and will then leave and that chicken will normally die alone. Some chickens also will kill another chicken because they sense something’s wrong with the chicken, a disease for example. Hope u enjoyed these facts I found them in a book called How To Speak Chicken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Pacu fish have teeth that look exactly like people’s. They evolved to chew nuts that fell into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Rabbits dont have pads on their paws. Only fur.
-
-So if you see a cartoon rabbit with pads on its paw, completely wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A kangaroo will mate again one to three days after giving birth. the newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. if the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. so they can have an adolescent Joey, a nursing one, and one in stasis all at the same time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Hippos sweat is red.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Platypus glow teal under a UV light, so Perry the Platypus is actually the correct color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Sea cucumbers spit out their insides to scare away predators.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The Inland Taipan (snake) has the strongest/potent venom on the planet, capable of killing around 290 humans with a single bite. Scaled to mice, a single bite could kill 250,000 mice.
-
-
-That said, bites from the Inland Taipan to humans have been ***pretty rare*** as they usually stay underground and are not overly aggressive unless you jump all over their burrow. They also have a good number of predators who prey on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Baby Koalas nuzzles their mothers butt to releases a runnier, protein-rich substance, called pap which they then drink to get moms gut bacteria, helpful in digesting eucalyptus leaves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The bearded vulture or bone-eating vulture, is a rare eur-asian vulture that only eats marrow, that looks rusty in color but is in fact white. This rusty color is because they actually paint themselves with red clay deposits to look attractive to their mates. They are really cool looking.
-
-They have a little tuft of feathers below their beaks that looks like the beard of a dragon, so that is why they are called that.
-
-Other cool fact: They can dissolve bone in the acid of their stomach in 24 hours. The PH of their stomachs is 1 which is VERY acidic. They are the only vulture species in the world that 90% of its diet is just bone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them.
-
-It is thought that this might actually be helpful because a) their eyesight was s**t anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey.
-
-Imagine something eating your eyeballs and it being an *upgrade*.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186388.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">Savage Tweets Crafted With a Unique Sense of Humor </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186203.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186204.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186206.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186207.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186209.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186212.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186214.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186215.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186218.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186219.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186221.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186222.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186223.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186224.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186225.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186226.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186227.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186229.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186230.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87186233.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
