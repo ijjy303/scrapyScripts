@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/10/2022-05:11:31
+Last updated: 06/10/2022-06:11:31
 <br>
 ## <a href="#linky2" id="linky1">Dude Mistakenly Eats 1000mg Worth of ‘Stoney’ Patch Kids</a><br>
 
@@ -13,77 +13,7 @@ Last updated: 06/10/2022-05:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
-
-<span style="font-size:4em">1. “There was one night where a car stopped up the road, a girl got out, yelled for help, then got back in and they drove off. I have no idea of it was serious or not, considering she got right back in the car…” -abetherigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Holy shit, Ive got one for this! Grew up in Japan, not too small/not too big city. Worked a job that had me coming home daily at 2-4ish AM. I preferred to walk the backstreet that paralleled the main street home because it felt more cozy and peaceful. Nothing of note happened until one day…
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I turn the corner onto the side street and about halfway down there was a young woman. She wasnt doing anything, just staring at the sky. Staring straight up, STRAIGHT up, neck at a 90 degree angle, mouth slightly agape, long black hair hanging. I hesitated but decided that, since nothing weird has ever happened here before, itd be fine. So I went to walk by. I get up next to her, its a narrow road so not a lot of room to maneuver, and pause to look at her.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-She hasnt moved or reacted to me, shes just staring away. So I fight my instincts and ask her if shes okay. She doesnt react. I look up to see if shes looking at something but theres nothing there. So now Im thinking theres something medical going on, so I reach out and touch her on the shoulder. She jolts and and looks at me like shes just noticed me. I ask if shes okay and she just stammers and says sorry before hustling down the street the same way I was headed. I decided to smoke a cigarette to let some distance get between me and her, but towards the end of the street, she stops and stares at the sky again. Doesnt move for the whole five minutes it takes for me to finish my cig. I walked down the main street for the next couple nights.” -Post-Alone0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “During winter in a rural no cell service kind of area. Completely dark, no street lights nor anyone in sight. Temperatures were around 20 and it was snowing. I was walking my dog with a flashlight. Then I heard someone start screaming bloody murder. Flight or fight kicked in; it truly sounded like someone was being stabbed to death for what seemed like forever.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I chose to find out what the hell was going on. What I found instead was beyond anything I expected. He was a 5 year old boy wandering down the road all alone. All he was wearing were light flannel pants and a thin t-shirt. No shoes or hat. And screaming so loudly it echoed through the hills. I dropped my dogs leash and walked up to him slowly; gently and repeatedly telling him that I’m a mom and that he’s going to be ok. I wrapped him into my arms and carried him to a neighbors home to warm him by the fire and call for help.” -BlueRaining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “One time I turned around to see what was behind me just out of intuition, and I saw someone step behind a tree rather quickly and try to hide from me. I stood there for a second to confirm this, then I speed-walked home. F**king creepy. -THCRANGER</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I’m an overnight security guard. One night I was watching cameras and saw someone underneath a grass tarp where some landscaping was taking place on our property. I was guessing this person had probably tried to stash something before they went into detox which is next door to our property. I get over to the tarp and don’t see the guy anywhere. So I start walking over the tarp and lifting it to look for any stashed items. Well I ended up stepping on the poor homeless guy, scared the shit out of me. He was cool though and we fist bumped and he went on his way.” -Doch1112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “One time I was walking around my relatively safe neighborhood with two of my friends after midnight (we were probably 16 at the time). This loud red truck speeds by us, which is normal for the road we were on. Then a few minutes later the same red truck drives by the opposite way going much slower. Again just a couple of minutes later he drives by but this time stops a hundred or so feet away from us and just sits there. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Realizing that this is not normal we booked it through the yard to the next street over. For the next 20 or so minutes we see this truck creeping up and down the neighborhood while we hid behind some bushes and when we finally thought he was gone, we booked it to my house. He turned the corner onto my road just as we were about to open my front door.” -mattyb584</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Almost 100% sure I witnessed a kidnapping. I was going to get my mail late at night while living in an apartment complex and on the way back I noticed a woman in her pajamas surrounded by a few men right by a car. There was an argument and looked like they forced her in the car and drove off, I found her slipper nearby on the grass. I of course called the police and they came and I let them know what I saw but I never found out what actually happened.” -kinetochore21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I worked night shift for 7 years. One night a young, thin blonde woman was walking down the street at 2am with no pants or underwear on and a button up shirt open. I tried to ask if she needed help and she just stared forward, slowly walking staring forward. I called the police and they came and stood infront of her and she slowly walked into the cops hand and stopped. I didnt stay and went back to work. I still think about her and what the f**k was going on. I tell myself it was sleep walking on Ambien or something, and that she wasnt just assaulted and in complete shock. Ill never know. But she was very pretty, and seemed well groomed. Was very strange.” -IndIka123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Dead body on the side of the street with a sign around its neck saying Im a cellphone thief, dont be like me. This was maybe 20 years ago in Manila, Philippines.” -Godfreee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Not me, but my friend was near downtown at 3am on acid and was almost kidnapped. There’s a lot of young female kidnappings where we’re at and because he’s petite with long hair, he was mistaken as a female target. He managed to run away, but it was of course very traumatizing for him.” -flotsamjr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I worked night shift on Kadena AB on Okinawa, Japan. I started walking to work because I didnt have a car. I really enjoyed the walks. It was a good way to wind down after work as the nights were cool and quiet and I could listen to my music without worrying about anyone else around. One night while walking home I heard some rustling in the jungle of trees on the way home. Next thing I know all of the lights went black and all I heard/felt was a loud wooooosh coming right at my head. I screamed like a little girl, ran, and dropped my ipod (it broke). Once I made it past the trees I realized it was one of the giant bats that lived on Okinawa. It scared the ever living sh*t out of me.” -akroses161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I once saw tiny hands reaching out of a sewer grate. Took me a minute before I realized it was a raccoon.” -realbigexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “An old man who walked very aggressively. Like Jason from Friday the 13th but sped up. I was ready to run but I walked past him and nothing happened. Put me on my toes but holy sh*t change your walking form man.” -micho6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Found a guy who hanged himself in a park. Called 911 and answered some questions, was a long night. - FSD-Bishop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I’ve never been afraid of the dark. Grew up in the countryside, where the nearest streetlight was 10 miles away, so I’m comfortable in dark places, so much so that I often take my dog for a walk at around midnight just because I like the peace and quiet of the night. I live in a city now so something about the dark is just soothing to me. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-That being said, one of the scariest things I’ve ever experienced, I genuinely have no explanation for. Living in a city I used to drive out 20-30 miles into the country to do some astrophotography. As I’m driving out one night I see this guy walking at the side of the road with no lights, reflectors and a big backpack. Didn’t think much of it other than it being a little odd. 5 miles later, I see the same guy walking again. I haven’t changed directions, turned, and I’ve been doing 50mph. As I drove past he looked and waved at me. I was pretty spooked but I drove on. I must be imagining things. It can’t be the same guy. I get to my field in the middle of nowhere, park up and get the camera out, and turn off all the lights so my eyes adjust to the dark.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185793.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">39 Memes To Help You Remember Your Childhood</a><br>
+## <a href="#linky3" id="linky2">39 Memes To Help You Remember Your Childhood</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186440.jpg" style="width:100%"><br>
 
@@ -162,6 +92,58 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 <span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186439.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186444.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">25 Reminders That Kids Are Dumb</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041010/87186652/dumbkids3.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041022/87186654/dumbkids2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041014/87186653/dumbkids1.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041025/87186655/dumbkids4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041033/87186658/dumbkids5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041037/87186659/dumbkids6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041044/87186662/dumbkids7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. A text I got from my 8 year old little sister.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041048/87186663/dumbkids8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Regardless of how royal you are, youll always throw tantrums at mom.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041057/87186664/dumbkids9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041100/87186665/dumbkids10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041109/87186666/dumbkids11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Caught three boys carrying their mom’s tv across the parking lot of my place, “to play fortnight” at one of the other’s houses. I watched it get dropped, and tumble down a hill. The mom doesn’t know. They said they now have to buy her a new tv on Amazon for “$200.” Gave them $5 and wished them the best.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041111/87186667/dumbkids12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041125/87186668/dumbkids13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My parent’s neighbor’s kid needed a ride home. Wayne is a big town, with many trees.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041127/87186669/dumbkids14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041130/87186670/dumbkids15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041138/87186671/dumbkids16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041141/87186672/dumbkids17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041150/87186673/dumbkids19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041152/87186674/dumbkids20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041202/87186675/dumbkids21.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041204/87186676/dumbkids22.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Let my 7 yr old fill out his first grade memory book without supervision.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041213/87186677/dumbkids23.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041215/87186678/dumbkids24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. My 11 year old son left this in Walmart for someone to find. I’ve got a real comedian on my hands here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041225/87186679/dumbkids25.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -736,180 +718,7 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">25 Reminders That Kids Are Dumb</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041010/87186652/dumbkids3.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041022/87186654/dumbkids2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041014/87186653/dumbkids1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041025/87186655/dumbkids4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041033/87186658/dumbkids5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041037/87186659/dumbkids6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041044/87186662/dumbkids7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. A text I got from my 8 year old little sister.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041048/87186663/dumbkids8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Regardless of how royal you are, youll always throw tantrums at mom.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041057/87186664/dumbkids9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041100/87186665/dumbkids10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041109/87186666/dumbkids11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Caught three boys carrying their mom’s tv across the parking lot of my place, “to play fortnight” at one of the other’s houses. I watched it get dropped, and tumble down a hill. The mom doesn’t know. They said they now have to buy her a new tv on Amazon for “$200.” Gave them $5 and wished them the best.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041111/87186667/dumbkids12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041125/87186668/dumbkids13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My parent’s neighbor’s kid needed a ride home. Wayne is a big town, with many trees.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041127/87186669/dumbkids14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041130/87186670/dumbkids15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041138/87186671/dumbkids16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041141/87186672/dumbkids17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041150/87186673/dumbkids19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041152/87186674/dumbkids20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041202/87186675/dumbkids21.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041204/87186676/dumbkids22.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Let my 7 yr old fill out his first grade memory book without supervision.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041213/87186677/dumbkids23.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041215/87186678/dumbkids24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. My 11 year old son left this in Walmart for someone to find. I’ve got a real comedian on my hands here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041225/87186679/dumbkids25.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Memes With No Humor In Them</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 Men Reveal Secrets They’ve Kept from Women</a><br>
-
-<span style="font-size:4em">1. Having someone run their hands through your hair with your head on their lap is the best f*cking thing. -u/Malevolent_Mangoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. That your words hurt. -u/cookiesarelife22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186682.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Its hot when you can open up with a girl and she stays in your life. -u/FreezeGoDR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. We don’t mind being left home alone. -u/ThatsThatCue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A compliment would literally make our whole month. -u/Danker_Dankersson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. You know when you hear us peeing and it sounds like we are turning it off and on?
-We are just moving the stream back and forth between full volume (center of water) and mute (porcelain just above water line). -u/bxmas13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Some of you really are bad at blowjobs and well still tell you youre the best. -u/Intelligent-Lie-7407</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Our balls can tactically retract into our bodies. -u/anima220</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. We generally put on a brave face and act content even when we are sad and miserable inside. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186688.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. When you tell us you want us to be more open and vulnerable with you, mean it. Nothing hurts worse than being begged to open up, but the moment we do, you panic and shut down and tell us to man up. Men need to have partners who allow them to feel safe and not judged. It makes the world of difference to know we can be vulnerable and don’t always have to be strong. -u/TheLegendofRebirth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I hate it when I get a random boner for no reason and then try to hide it. Most anxiety that I could ever experience. -u/Narachan9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. When they ask what we are thinking...it really is nothing . -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. We enjoy being the little spoon. -u/GoGoGanjaArm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Men cant flex their penises without clenching their buttholes and vice versa. -u/Gold-Tailor-2303</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. We actually admire other guys but don’t want to say it out loud because people might think we are gay. -u/riggengan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. We really don’t care about every tiny interaction you had had work but we’ll do our best to fake interest to keep you happy. -u/FrozenMrPotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. That boobs have blackhole-like attraction and it takes every bit of our strength to not stare at them. And after a quick glance, we are looking at your face, but seeing your boobs. -u/captain_arroganto</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That half of the guys at clubs/pubs/restaurants dont bother to wash their hands after going to the toilet/urinal. -u/basickarl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Ladies, were not as clueless as commercials and sitcoms would have you believe. And the more clever among us are well aware when youre being sarcastic and/or condescending. -u/Quijanoth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I cant speak for all men, but I do a better job at cleaning than my wife and secretly clean spots she missed. -u/Square_Strength6666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. When we use the bathroom for an extended period of time, we aren’t pleasuring ourselves. We are watching youtube and finding comfort in being alone. -u/Alert_Bicycle2212</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. We All have a different “Quadrant” of the toilet bowl we aim for. -u/VillianiousOperation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. We dont talk to each other about sex with our partners, like women talk to each other about sex with their partners. -u/hakz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A round of golf doesn’t usually take 8 hours. -u/Stseminole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. When men ask: Do you want my jacket? They secretly hope you wont take it because they know its cold. -u/Arktayt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186705.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Passenger Sharts Their Pants Halfway through Flight</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041026/87186656/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041043/87186661/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041039/87186660/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041030/87186657/four.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">44 Random Pics to Rescue You From Boredom</a><br>
+## <a href="#linky12" id="linky11">44 Random Pics to Rescue You From Boredom</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87184985.jpg" style="width:100%"><br>
 
@@ -1001,7 +810,7 @@ We are just moving the stream back and forth between full volume (center of wate
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">27 Interesting Images from Our Amazing World</a><br>
+## <a href="#linky13" id="linky12">27 Interesting Images from Our Amazing World</a><br>
 
 <span style="font-size:4em">1. The aftermath of a laser burning through this piece of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186642.jpg" style="width:100%"><br>
 
@@ -1056,6 +865,197 @@ We are just moving the stream back and forth between full volume (center of wate
 <span style="font-size:4em">26. This Devils Fingers fungus looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186621.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">27. How every kid feels during serious or ceremonious events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186646.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Passenger Sharts Their Pants Halfway through Flight</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041026/87186656/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041043/87186661/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041039/87186660/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041030/87186657/four.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
+
+<span style="font-size:4em">1. “There was one night where a car stopped up the road, a girl got out, yelled for help, then got back in and they drove off. I have no idea of it was serious or not, considering she got right back in the car…” -abetherigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Holy shit, Ive got one for this! Grew up in Japan, not too small/not too big city. Worked a job that had me coming home daily at 2-4ish AM. I preferred to walk the backstreet that paralleled the main street home because it felt more cozy and peaceful. Nothing of note happened until one day…
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I turn the corner onto the side street and about halfway down there was a young woman. She wasnt doing anything, just staring at the sky. Staring straight up, STRAIGHT up, neck at a 90 degree angle, mouth slightly agape, long black hair hanging. I hesitated but decided that, since nothing weird has ever happened here before, itd be fine. So I went to walk by. I get up next to her, its a narrow road so not a lot of room to maneuver, and pause to look at her.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+She hasnt moved or reacted to me, shes just staring away. So I fight my instincts and ask her if shes okay. She doesnt react. I look up to see if shes looking at something but theres nothing there. So now Im thinking theres something medical going on, so I reach out and touch her on the shoulder. She jolts and and looks at me like shes just noticed me. I ask if shes okay and she just stammers and says sorry before hustling down the street the same way I was headed. I decided to smoke a cigarette to let some distance get between me and her, but towards the end of the street, she stops and stares at the sky again. Doesnt move for the whole five minutes it takes for me to finish my cig. I walked down the main street for the next couple nights.” -Post-Alone0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “During winter in a rural no cell service kind of area. Completely dark, no street lights nor anyone in sight. Temperatures were around 20 and it was snowing. I was walking my dog with a flashlight. Then I heard someone start screaming bloody murder. Flight or fight kicked in; it truly sounded like someone was being stabbed to death for what seemed like forever.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I chose to find out what the hell was going on. What I found instead was beyond anything I expected. He was a 5 year old boy wandering down the road all alone. All he was wearing were light flannel pants and a thin t-shirt. No shoes or hat. And screaming so loudly it echoed through the hills. I dropped my dogs leash and walked up to him slowly; gently and repeatedly telling him that I’m a mom and that he’s going to be ok. I wrapped him into my arms and carried him to a neighbors home to warm him by the fire and call for help.” -BlueRaining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “One time I turned around to see what was behind me just out of intuition, and I saw someone step behind a tree rather quickly and try to hide from me. I stood there for a second to confirm this, then I speed-walked home. F**king creepy. -THCRANGER</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I’m an overnight security guard. One night I was watching cameras and saw someone underneath a grass tarp where some landscaping was taking place on our property. I was guessing this person had probably tried to stash something before they went into detox which is next door to our property. I get over to the tarp and don’t see the guy anywhere. So I start walking over the tarp and lifting it to look for any stashed items. Well I ended up stepping on the poor homeless guy, scared the shit out of me. He was cool though and we fist bumped and he went on his way.” -Doch1112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “One time I was walking around my relatively safe neighborhood with two of my friends after midnight (we were probably 16 at the time). This loud red truck speeds by us, which is normal for the road we were on. Then a few minutes later the same red truck drives by the opposite way going much slower. Again just a couple of minutes later he drives by but this time stops a hundred or so feet away from us and just sits there. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Realizing that this is not normal we booked it through the yard to the next street over. For the next 20 or so minutes we see this truck creeping up and down the neighborhood while we hid behind some bushes and when we finally thought he was gone, we booked it to my house. He turned the corner onto my road just as we were about to open my front door.” -mattyb584</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Almost 100% sure I witnessed a kidnapping. I was going to get my mail late at night while living in an apartment complex and on the way back I noticed a woman in her pajamas surrounded by a few men right by a car. There was an argument and looked like they forced her in the car and drove off, I found her slipper nearby on the grass. I of course called the police and they came and I let them know what I saw but I never found out what actually happened.” -kinetochore21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I worked night shift for 7 years. One night a young, thin blonde woman was walking down the street at 2am with no pants or underwear on and a button up shirt open. I tried to ask if she needed help and she just stared forward, slowly walking staring forward. I called the police and they came and stood infront of her and she slowly walked into the cops hand and stopped. I didnt stay and went back to work. I still think about her and what the f**k was going on. I tell myself it was sleep walking on Ambien or something, and that she wasnt just assaulted and in complete shock. Ill never know. But she was very pretty, and seemed well groomed. Was very strange.” -IndIka123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Dead body on the side of the street with a sign around its neck saying Im a cellphone thief, dont be like me. This was maybe 20 years ago in Manila, Philippines.” -Godfreee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Not me, but my friend was near downtown at 3am on acid and was almost kidnapped. There’s a lot of young female kidnappings where we’re at and because he’s petite with long hair, he was mistaken as a female target. He managed to run away, but it was of course very traumatizing for him.” -flotsamjr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I worked night shift on Kadena AB on Okinawa, Japan. I started walking to work because I didnt have a car. I really enjoyed the walks. It was a good way to wind down after work as the nights were cool and quiet and I could listen to my music without worrying about anyone else around. One night while walking home I heard some rustling in the jungle of trees on the way home. Next thing I know all of the lights went black and all I heard/felt was a loud wooooosh coming right at my head. I screamed like a little girl, ran, and dropped my ipod (it broke). Once I made it past the trees I realized it was one of the giant bats that lived on Okinawa. It scared the ever living sh*t out of me.” -akroses161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I once saw tiny hands reaching out of a sewer grate. Took me a minute before I realized it was a raccoon.” -realbigexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “An old man who walked very aggressively. Like Jason from Friday the 13th but sped up. I was ready to run but I walked past him and nothing happened. Put me on my toes but holy sh*t change your walking form man.” -micho6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Found a guy who hanged himself in a park. Called 911 and answered some questions, was a long night. - FSD-Bishop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I’ve never been afraid of the dark. Grew up in the countryside, where the nearest streetlight was 10 miles away, so I’m comfortable in dark places, so much so that I often take my dog for a walk at around midnight just because I like the peace and quiet of the night. I live in a city now so something about the dark is just soothing to me. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+That being said, one of the scariest things I’ve ever experienced, I genuinely have no explanation for. Living in a city I used to drive out 20-30 miles into the country to do some astrophotography. As I’m driving out one night I see this guy walking at the side of the road with no lights, reflectors and a big backpack. Didn’t think much of it other than it being a little odd. 5 miles later, I see the same guy walking again. I haven’t changed directions, turned, and I’ve been doing 50mph. As I drove past he looked and waved at me. I was pretty spooked but I drove on. I must be imagining things. It can’t be the same guy. I get to my field in the middle of nowhere, park up and get the camera out, and turn off all the lights so my eyes adjust to the dark.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185793.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">25 Men Reveal Secrets They’ve Kept from Women</a><br>
+
+<span style="font-size:4em">1. Having someone run their hands through your hair with your head on their lap is the best f*cking thing. -u/Malevolent_Mangoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. That your words hurt. -u/cookiesarelife22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186682.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Its hot when you can open up with a girl and she stays in your life. -u/FreezeGoDR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. We don’t mind being left home alone. -u/ThatsThatCue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. A compliment would literally make our whole month. -u/Danker_Dankersson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. You know when you hear us peeing and it sounds like we are turning it off and on?
+We are just moving the stream back and forth between full volume (center of water) and mute (porcelain just above water line). -u/bxmas13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Some of you really are bad at blowjobs and well still tell you youre the best. -u/Intelligent-Lie-7407</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Our balls can tactically retract into our bodies. -u/anima220</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. We generally put on a brave face and act content even when we are sad and miserable inside. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186688.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. When you tell us you want us to be more open and vulnerable with you, mean it. Nothing hurts worse than being begged to open up, but the moment we do, you panic and shut down and tell us to man up. Men need to have partners who allow them to feel safe and not judged. It makes the world of difference to know we can be vulnerable and don’t always have to be strong. -u/TheLegendofRebirth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I hate it when I get a random boner for no reason and then try to hide it. Most anxiety that I could ever experience. -u/Narachan9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When they ask what we are thinking...it really is nothing . -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. We enjoy being the little spoon. -u/GoGoGanjaArm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Men cant flex their penises without clenching their buttholes and vice versa. -u/Gold-Tailor-2303</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. We actually admire other guys but don’t want to say it out loud because people might think we are gay. -u/riggengan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. We really don’t care about every tiny interaction you had had work but we’ll do our best to fake interest to keep you happy. -u/FrozenMrPotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. That boobs have blackhole-like attraction and it takes every bit of our strength to not stare at them. And after a quick glance, we are looking at your face, but seeing your boobs. -u/captain_arroganto</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That half of the guys at clubs/pubs/restaurants dont bother to wash their hands after going to the toilet/urinal. -u/basickarl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Ladies, were not as clueless as commercials and sitcoms would have you believe. And the more clever among us are well aware when youre being sarcastic and/or condescending. -u/Quijanoth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I cant speak for all men, but I do a better job at cleaning than my wife and secretly clean spots she missed. -u/Square_Strength6666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. When we use the bathroom for an extended period of time, we aren’t pleasuring ourselves. We are watching youtube and finding comfort in being alone. -u/Alert_Bicycle2212</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. We All have a different “Quadrant” of the toilet bowl we aim for. -u/VillianiousOperation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. We dont talk to each other about sex with our partners, like women talk to each other about sex with their partners. -u/hakz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A round of golf doesn’t usually take 8 hours. -u/Stseminole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. When men ask: Do you want my jacket? They secretly hope you wont take it because they know its cold. -u/Arktayt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186705.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">25 Memes With No Humor In Them</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
