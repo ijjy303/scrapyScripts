@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/10/2022-03:11:33
+Last updated: 06/10/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">74 Pieces of Street Art That Belong in a Museum</a><br>
 
@@ -153,65 +153,7 @@ Last updated: 06/10/2022-03:11:33
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">27 Interesting Images from Our Amazing World</a><br>
-
-<span style="font-size:4em">1. The aftermath of a laser burning through this piece of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Just rainbow cat activating his super powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The galactic core of the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The tropical rock lobster (Panulirus Ornatus) takes 18 months to grow to 1kg and is farmed in parts of the Indo-Pacific oceans.bster </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. THis potato crisp looks like some kind of fossile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The sunset under the clouds make them appear like they are on fire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Chunky horned lizard is chunky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Time for a smoke break.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An adolescent Blue Jay that is only halfway through puberty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This absolute unit of a military man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Guy walking his dog in the city almost looks like a post apocalyptic scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This duckling is intense!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The Eye of the Earth, Cetina River source in Mount Dinara Nature Park, Croatia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Smooth fencing move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A fully grown Australian saltwater Crocodile next to a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Absolutely stunning amethyst geode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Black Sapphire grapes from Syria.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Hasbullah in a very important meeting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Cool mask and a walk by a castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. 30,000 individual 2-megapixel images of the moon to create 1 80-megapixel image with insane detail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The “Arab” room in Cardiff Castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ethiopian Welo Opal New gem found looks like the ocean in rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Cool Wandavision cosplay with black and white and color parts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This is what Jupiter’s North Pole in infrared looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Chomp chomp chomp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. This Devils Fingers fungus looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. How every kid feels during serious or ceremonious events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186646.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">25 Men Reveal Secrets They’ve Kept from Women</a><br>
+## <a href="#linky3" id="linky2">25 Men Reveal Secrets They’ve Kept from Women</a><br>
 
 <span style="font-size:4em">1. Having someone run their hands through your hair with your head on their lap is the best f*cking thing. -u/Malevolent_Mangoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186684.jpg" style="width:100%"><br>
 
@@ -263,6 +205,86 @@ We are just moving the stream back and forth between full volume (center of wate
 <span style="font-size:4em">24. A round of golf doesn’t usually take 8 hours. -u/Stseminole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186704.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. When men ask: Do you want my jacket? They secretly hope you wont take it because they know its cold. -u/Arktayt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87186705.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">40 Dank Memes Spitting Truth Like Fire</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186295.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -819,61 +841,7 @@ We are just moving the stream back and forth between full volume (center of wate
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">25 Memes With No Humor In Them</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
+## <a href="#linky13" id="linky12">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
 
 <span style="font-size:4em">1. “There was one night where a car stopped up the road, a girl got out, yelled for help, then got back in and they drove off. I have no idea of it was serious or not, considering she got right back in the car…” -abetherigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185770.jpg" style="width:100%"><br>
 
@@ -943,83 +911,115 @@ That being said, one of the scariest things I’ve ever experienced, I genuinely
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">40 Dank Memes Spitting Truth Like Fire</a><br>
+## <a href="#linky14" id="linky13">25 Memes With No Humor In Them</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186272.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186258.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186257.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186259.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186263.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186260.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186261.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186262.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186264.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186265.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186266.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186268.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186269.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186270.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186271.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186273.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186274.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186275.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186256.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186276.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186277.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186278.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186279.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186280.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186281.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186282.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186283.jpg" style="width:100%"><br>
+## <a href="#linky15" id="linky14">27 Interesting Images from Our Amazing World</a><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186284.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The aftermath of a laser burning through this piece of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186285.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Just rainbow cat activating his super powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186286.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The galactic core of the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186287.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The tropical rock lobster (Panulirus Ornatus) takes 18 months to grow to 1kg and is farmed in parts of the Indo-Pacific oceans.bster </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186288.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. THis potato crisp looks like some kind of fossile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186289.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The sunset under the clouds make them appear like they are on fire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186290.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Chunky horned lizard is chunky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186291.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Time for a smoke break.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186292.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. An adolescent Blue Jay that is only halfway through puberty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186636.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186293.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This absolute unit of a military man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186295.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Guy walking his dog in the city almost looks like a post apocalyptic scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This duckling is intense!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The Eye of the Earth, Cetina River source in Mount Dinara Nature Park, Croatia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Smooth fencing move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A fully grown Australian saltwater Crocodile next to a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Absolutely stunning amethyst geode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Black Sapphire grapes from Syria.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hasbullah in a very important meeting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Cool mask and a walk by a castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. 30,000 individual 2-megapixel images of the moon to create 1 80-megapixel image with insane detail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The “Arab” room in Cardiff Castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Ethiopian Welo Opal New gem found looks like the ocean in rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Cool Wandavision cosplay with black and white and color parts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This is what Jupiter’s North Pole in infrared looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Chomp chomp chomp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. This Devils Fingers fungus looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. How every kid feels during serious or ceremonious events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186646.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
