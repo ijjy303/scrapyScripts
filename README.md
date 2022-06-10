@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/10/2022-01:11:31
+Last updated: 06/10/2022-02:11:31
 <br>
 ## <a href="#linky2" id="linky1">74 Pieces of Street Art That Belong in a Museum</a><br>
 
@@ -153,73 +153,83 @@ Last updated: 06/10/2022-01:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
+## <a href="#linky3" id="linky2">40 Dank Memes Spitting Truth Like Fire</a><br>
 
-<span style="font-size:4em">1. “There was one night where a car stopped up the road, a girl got out, yelled for help, then got back in and they drove off. I have no idea of it was serious or not, considering she got right back in the car…” -abetherigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185770.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Holy shit, Ive got one for this! Grew up in Japan, not too small/not too big city. Worked a job that had me coming home daily at 2-4ish AM. I preferred to walk the backstreet that paralleled the main street home because it felt more cozy and peaceful. Nothing of note happened until one day…
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185771.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185772.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186257.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-I turn the corner onto the side street and about halfway down there was a young woman. She wasnt doing anything, just staring at the sky. Staring straight up, STRAIGHT up, neck at a 90 degree angle, mouth slightly agape, long black hair hanging. I hesitated but decided that, since nothing weird has ever happened here before, itd be fine. So I went to walk by. I get up next to her, its a narrow road so not a lot of room to maneuver, and pause to look at her.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185773.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186259.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185774.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-She hasnt moved or reacted to me, shes just staring away. So I fight my instincts and ask her if shes okay. She doesnt react. I look up to see if shes looking at something but theres nothing there. So now Im thinking theres something medical going on, so I reach out and touch her on the shoulder. She jolts and and looks at me like shes just noticed me. I ask if shes okay and she just stammers and says sorry before hustling down the street the same way I was headed. I decided to smoke a cigarette to let some distance get between me and her, but towards the end of the street, she stops and stares at the sky again. Doesnt move for the whole five minutes it takes for me to finish my cig. I walked down the main street for the next couple nights.” -Post-Alone0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185775.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186260.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “During winter in a rural no cell service kind of area. Completely dark, no street lights nor anyone in sight. Temperatures were around 20 and it was snowing. I was walking my dog with a flashlight. Then I heard someone start screaming bloody murder. Flight or fight kicked in; it truly sounded like someone was being stabbed to death for what seemed like forever.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185783.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186261.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185776.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-I chose to find out what the hell was going on. What I found instead was beyond anything I expected. He was a 5 year old boy wandering down the road all alone. All he was wearing were light flannel pants and a thin t-shirt. No shoes or hat. And screaming so loudly it echoed through the hills. I dropped my dogs leash and walked up to him slowly; gently and repeatedly telling him that I’m a mom and that he’s going to be ok. I wrapped him into my arms and carried him to a neighbors home to warm him by the fire and call for help.” -BlueRaining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185777.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “One time I turned around to see what was behind me just out of intuition, and I saw someone step behind a tree rather quickly and try to hide from me. I stood there for a second to confirm this, then I speed-walked home. F**king creepy. -THCRANGER</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185778.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186265.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I’m an overnight security guard. One night I was watching cameras and saw someone underneath a grass tarp where some landscaping was taking place on our property. I was guessing this person had probably tried to stash something before they went into detox which is next door to our property. I get over to the tarp and don’t see the guy anywhere. So I start walking over the tarp and lifting it to look for any stashed items. Well I ended up stepping on the poor homeless guy, scared the shit out of me. He was cool though and we fist bumped and he went on his way.” -Doch1112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185779.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186266.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “One time I was walking around my relatively safe neighborhood with two of my friends after midnight (we were probably 16 at the time). This loud red truck speeds by us, which is normal for the road we were on. Then a few minutes later the same red truck drives by the opposite way going much slower. Again just a couple of minutes later he drives by but this time stops a hundred or so feet away from us and just sits there. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185780.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185781.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Realizing that this is not normal we booked it through the yard to the next street over. For the next 20 or so minutes we see this truck creeping up and down the neighborhood while we hid behind some bushes and when we finally thought he was gone, we booked it to my house. He turned the corner onto my road just as we were about to open my front door.” -mattyb584</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185782.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Almost 100% sure I witnessed a kidnapping. I was going to get my mail late at night while living in an apartment complex and on the way back I noticed a woman in her pajamas surrounded by a few men right by a car. There was an argument and looked like they forced her in the car and drove off, I found her slipper nearby on the grass. I of course called the police and they came and I let them know what I saw but I never found out what actually happened.” -kinetochore21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185784.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “I worked night shift for 7 years. One night a young, thin blonde woman was walking down the street at 2am with no pants or underwear on and a button up shirt open. I tried to ask if she needed help and she just stared forward, slowly walking staring forward. I called the police and they came and stood infront of her and she slowly walked into the cops hand and stopped. I didnt stay and went back to work. I still think about her and what the f**k was going on. I tell myself it was sleep walking on Ambien or something, and that she wasnt just assaulted and in complete shock. Ill never know. But she was very pretty, and seemed well groomed. Was very strange.” -IndIka123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185785.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Dead body on the side of the street with a sign around its neck saying Im a cellphone thief, dont be like me. This was maybe 20 years ago in Manila, Philippines.” -Godfreee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185786.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Not me, but my friend was near downtown at 3am on acid and was almost kidnapped. There’s a lot of young female kidnappings where we’re at and because he’s petite with long hair, he was mistaken as a female target. He managed to run away, but it was of course very traumatizing for him.” -flotsamjr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185787.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186275.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I worked night shift on Kadena AB on Okinawa, Japan. I started walking to work because I didnt have a car. I really enjoyed the walks. It was a good way to wind down after work as the nights were cool and quiet and I could listen to my music without worrying about anyone else around. One night while walking home I heard some rustling in the jungle of trees on the way home. Next thing I know all of the lights went black and all I heard/felt was a loud wooooosh coming right at my head. I screamed like a little girl, ran, and dropped my ipod (it broke). Once I made it past the trees I realized it was one of the giant bats that lived on Okinawa. It scared the ever living sh*t out of me.” -akroses161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185788.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I once saw tiny hands reaching out of a sewer grate. Took me a minute before I realized it was a raccoon.” -realbigexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185789.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “An old man who walked very aggressively. Like Jason from Friday the 13th but sped up. I was ready to run but I walked past him and nothing happened. Put me on my toes but holy sh*t change your walking form man.” -micho6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185794.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Found a guy who hanged himself in a park. Called 911 and answered some questions, was a long night. - FSD-Bishop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185790.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I’ve never been afraid of the dark. Grew up in the countryside, where the nearest streetlight was 10 miles away, so I’m comfortable in dark places, so much so that I often take my dog for a walk at around midnight just because I like the peace and quiet of the night. I live in a city now so something about the dark is just soothing to me. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185791.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185792.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-That being said, one of the scariest things I’ve ever experienced, I genuinely have no explanation for. Living in a city I used to drive out 20-30 miles into the country to do some astrophotography. As I’m driving out one night I see this guy walking at the side of the road with no lights, reflectors and a big backpack. Didn’t think much of it other than it being a little odd. 5 miles later, I see the same guy walking again. I haven’t changed directions, turned, and I’ve been doing 50mph. As I drove past he looked and waved at me. I was pretty spooked but I drove on. I must be imagining things. It can’t be the same guy. I get to my field in the middle of nowhere, park up and get the camera out, and turn off all the lights so my eyes adjust to the dark.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185793.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186295.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -599,57 +609,61 @@ We are just moving the stream back and forth between full volume (center of wate
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">28 Roast Victims Who Got Sent to the Burn Ward</a><br>
+## <a href="#linky10" id="linky9">27 Interesting Images from Our Amazing World</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186758.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The aftermath of a laser burning through this piece of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186754.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Just rainbow cat activating his super powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186745.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The galactic core of the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186751.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The tropical rock lobster (Panulirus Ornatus) takes 18 months to grow to 1kg and is farmed in parts of the Indo-Pacific oceans.bster </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This is just a straight fatality right here. No pun intended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186763.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. THis potato crisp looks like some kind of fossile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186742.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The sunset under the clouds make them appear like they are on fire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186750.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Chunky horned lizard is chunky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This dude has definitely played Wonderwall next to a sh*tty lake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186741.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Time for a smoke break.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186737.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. An adolescent Blue Jay that is only halfway through puberty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186636.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Get some sleep, bro. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186736.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This absolute unit of a military man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186738.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Guy walking his dog in the city almost looks like a post apocalyptic scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Jeez at least wait for the roast to start, lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186740.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. This duckling is intense!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186755.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The Eye of the Earth, Cetina River source in Mount Dinara Nature Park, Croatia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. That was certainly kind of her. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186744.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Smooth fencing move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186632.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186746.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. A fully grown Australian saltwater Crocodile next to a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186747.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Absolutely stunning amethyst geode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186633.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The absolute brutality of this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186748.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Black Sapphire grapes from Syria.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. The worst part for her is theyre almost definitely right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186739.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Hasbullah in a very important meeting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186635.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Hit the deadbeat nail right on the head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186749.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Cool mask and a walk by a castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186637.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186752.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. 30,000 individual 2-megapixel images of the moon to create 1 80-megapixel image with insane detail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186638.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. This is just a statement of facts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186756.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. The “Arab” room in Cardiff Castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186639.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186757.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Ethiopian Welo Opal New gem found looks like the ocean in rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Theres real pain in this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186760.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Cool Wandavision cosplay with black and white and color parts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186761.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. This is what Jupiter’s North Pole in infrared looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Thats just straight mean (but hes got a point...).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186762.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Chomp chomp chomp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. This Devils Fingers fungus looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. How every kid feels during serious or ceremonious events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186646.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -749,155 +763,7 @@ We are just moving the stream back and forth between full volume (center of wate
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">39 Memes To Help You Remember Your Childhood</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186444.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Passenger Sharts Their Pants Halfway through Flight</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041026/87186656/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041043/87186661/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041039/87186660/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041030/87186657/four.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 Memes With No Humor In Them</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">44 Random Pics to Rescue You From Boredom</a><br>
+## <a href="#linky12" id="linky11">44 Random Pics to Rescue You From Boredom</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87184985.jpg" style="width:100%"><br>
 
@@ -989,141 +855,275 @@ We are just moving the stream back and forth between full volume (center of wate
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">40 Dank Memes Spitting Truth Like Fire</a><br>
+## <a href="#linky13" id="linky12">Passenger Sharts Their Pants Halfway through Flight</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186272.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041026/87186656/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186258.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041043/87186661/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186257.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041039/87186660/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186295.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/041030/87186657/four.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">27 Interesting Images from Our Amazing World</a><br>
+## <a href="#linky14" id="linky13">39 Memes To Help You Remember Your Childhood</a><br>
 
-<span style="font-size:4em">1. The aftermath of a laser burning through this piece of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186642.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Just rainbow cat activating his super powers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186623.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The galactic core of the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186645.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The tropical rock lobster (Panulirus Ornatus) takes 18 months to grow to 1kg and is farmed in parts of the Indo-Pacific oceans.bster </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186641.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. THis potato crisp looks like some kind of fossile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186625.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The sunset under the clouds make them appear like they are on fire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186626.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Chunky horned lizard is chunky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186622.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Time for a smoke break.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186624.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. An adolescent Blue Jay that is only halfway through puberty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186636.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This absolute unit of a military man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186631.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Guy walking his dog in the city almost looks like a post apocalyptic scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186628.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This duckling is intense!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186629.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186428.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The Eye of the Earth, Cetina River source in Mount Dinara Nature Park, Croatia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186630.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Smooth fencing move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186632.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A fully grown Australian saltwater Crocodile next to a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186620.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Absolutely stunning amethyst geode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186633.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Black Sapphire grapes from Syria.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186634.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Hasbullah in a very important meeting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186635.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Cool mask and a walk by a castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186637.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. 30,000 individual 2-megapixel images of the moon to create 1 80-megapixel image with insane detail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186638.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. The “Arab” room in Cardiff Castle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186639.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Ethiopian Welo Opal New gem found looks like the ocean in rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186640.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Cool Wandavision cosplay with black and white and color parts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186643.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. This is what Jupiter’s North Pole in infrared looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186644.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Chomp chomp chomp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186627.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. This Devils Fingers fungus looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186621.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. How every kid feels during serious or ceremonious events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87186646.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87186444.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">25 Memes With No Humor In Them</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021431/87186593/antimemes2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021442/87186594/antimemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021453/87186595/antimemes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021502/87186596/antimemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021504/87186597/antimemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021515/87186598/antimemes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021526/87186599/antimemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021537/87186600/antimemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021546/87186601/antimemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021548/87186602/antimemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021557/87186603/antimemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021559/87186604/antimemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021609/87186605/antimemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021610/87186606/antimemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021621/87186607/antimemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021622/87186608/antimemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021631/87186609/antimemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021633/87186610/antimemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021642/87186611/antimemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021645/87186612/antimemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021654/87186613/antimemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021655/87186614/antimemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021705/87186615/antimemes24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021706/87186616/antimemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/08/021717/87186617/antimemes25.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">28 Roast Victims Who Got Sent to the Burn Ward</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This is just a straight fatality right here. No pun intended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This dude has definitely played Wonderwall next to a sh*tty lake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Get some sleep, bro. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Jeez at least wait for the roast to start, lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. That was certainly kind of her. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The absolute brutality of this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The worst part for her is theyre almost definitely right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Hit the deadbeat nail right on the head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This is just a statement of facts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Theres real pain in this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Thats just straight mean (but hes got a point...).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186762.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">25 Nightcrawlers Reveal the Scariest Things They Ever Saw</a><br>
+
+<span style="font-size:4em">1. “There was one night where a car stopped up the road, a girl got out, yelled for help, then got back in and they drove off. I have no idea of it was serious or not, considering she got right back in the car…” -abetherigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Holy shit, Ive got one for this! Grew up in Japan, not too small/not too big city. Worked a job that had me coming home daily at 2-4ish AM. I preferred to walk the backstreet that paralleled the main street home because it felt more cozy and peaceful. Nothing of note happened until one day…
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I turn the corner onto the side street and about halfway down there was a young woman. She wasnt doing anything, just staring at the sky. Staring straight up, STRAIGHT up, neck at a 90 degree angle, mouth slightly agape, long black hair hanging. I hesitated but decided that, since nothing weird has ever happened here before, itd be fine. So I went to walk by. I get up next to her, its a narrow road so not a lot of room to maneuver, and pause to look at her.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+She hasnt moved or reacted to me, shes just staring away. So I fight my instincts and ask her if shes okay. She doesnt react. I look up to see if shes looking at something but theres nothing there. So now Im thinking theres something medical going on, so I reach out and touch her on the shoulder. She jolts and and looks at me like shes just noticed me. I ask if shes okay and she just stammers and says sorry before hustling down the street the same way I was headed. I decided to smoke a cigarette to let some distance get between me and her, but towards the end of the street, she stops and stares at the sky again. Doesnt move for the whole five minutes it takes for me to finish my cig. I walked down the main street for the next couple nights.” -Post-Alone0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “During winter in a rural no cell service kind of area. Completely dark, no street lights nor anyone in sight. Temperatures were around 20 and it was snowing. I was walking my dog with a flashlight. Then I heard someone start screaming bloody murder. Flight or fight kicked in; it truly sounded like someone was being stabbed to death for what seemed like forever.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I chose to find out what the hell was going on. What I found instead was beyond anything I expected. He was a 5 year old boy wandering down the road all alone. All he was wearing were light flannel pants and a thin t-shirt. No shoes or hat. And screaming so loudly it echoed through the hills. I dropped my dogs leash and walked up to him slowly; gently and repeatedly telling him that I’m a mom and that he’s going to be ok. I wrapped him into my arms and carried him to a neighbors home to warm him by the fire and call for help.” -BlueRaining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “One time I turned around to see what was behind me just out of intuition, and I saw someone step behind a tree rather quickly and try to hide from me. I stood there for a second to confirm this, then I speed-walked home. F**king creepy. -THCRANGER</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I’m an overnight security guard. One night I was watching cameras and saw someone underneath a grass tarp where some landscaping was taking place on our property. I was guessing this person had probably tried to stash something before they went into detox which is next door to our property. I get over to the tarp and don’t see the guy anywhere. So I start walking over the tarp and lifting it to look for any stashed items. Well I ended up stepping on the poor homeless guy, scared the shit out of me. He was cool though and we fist bumped and he went on his way.” -Doch1112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “One time I was walking around my relatively safe neighborhood with two of my friends after midnight (we were probably 16 at the time). This loud red truck speeds by us, which is normal for the road we were on. Then a few minutes later the same red truck drives by the opposite way going much slower. Again just a couple of minutes later he drives by but this time stops a hundred or so feet away from us and just sits there. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Realizing that this is not normal we booked it through the yard to the next street over. For the next 20 or so minutes we see this truck creeping up and down the neighborhood while we hid behind some bushes and when we finally thought he was gone, we booked it to my house. He turned the corner onto my road just as we were about to open my front door.” -mattyb584</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Almost 100% sure I witnessed a kidnapping. I was going to get my mail late at night while living in an apartment complex and on the way back I noticed a woman in her pajamas surrounded by a few men right by a car. There was an argument and looked like they forced her in the car and drove off, I found her slipper nearby on the grass. I of course called the police and they came and I let them know what I saw but I never found out what actually happened.” -kinetochore21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I worked night shift for 7 years. One night a young, thin blonde woman was walking down the street at 2am with no pants or underwear on and a button up shirt open. I tried to ask if she needed help and she just stared forward, slowly walking staring forward. I called the police and they came and stood infront of her and she slowly walked into the cops hand and stopped. I didnt stay and went back to work. I still think about her and what the f**k was going on. I tell myself it was sleep walking on Ambien or something, and that she wasnt just assaulted and in complete shock. Ill never know. But she was very pretty, and seemed well groomed. Was very strange.” -IndIka123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Dead body on the side of the street with a sign around its neck saying Im a cellphone thief, dont be like me. This was maybe 20 years ago in Manila, Philippines.” -Godfreee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Not me, but my friend was near downtown at 3am on acid and was almost kidnapped. There’s a lot of young female kidnappings where we’re at and because he’s petite with long hair, he was mistaken as a female target. He managed to run away, but it was of course very traumatizing for him.” -flotsamjr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I worked night shift on Kadena AB on Okinawa, Japan. I started walking to work because I didnt have a car. I really enjoyed the walks. It was a good way to wind down after work as the nights were cool and quiet and I could listen to my music without worrying about anyone else around. One night while walking home I heard some rustling in the jungle of trees on the way home. Next thing I know all of the lights went black and all I heard/felt was a loud wooooosh coming right at my head. I screamed like a little girl, ran, and dropped my ipod (it broke). Once I made it past the trees I realized it was one of the giant bats that lived on Okinawa. It scared the ever living sh*t out of me.” -akroses161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I once saw tiny hands reaching out of a sewer grate. Took me a minute before I realized it was a raccoon.” -realbigexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “An old man who walked very aggressively. Like Jason from Friday the 13th but sped up. I was ready to run but I walked past him and nothing happened. Put me on my toes but holy sh*t change your walking form man.” -micho6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Found a guy who hanged himself in a park. Called 911 and answered some questions, was a long night. - FSD-Bishop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I’ve never been afraid of the dark. Grew up in the countryside, where the nearest streetlight was 10 miles away, so I’m comfortable in dark places, so much so that I often take my dog for a walk at around midnight just because I like the peace and quiet of the night. I live in a city now so something about the dark is just soothing to me. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+That being said, one of the scariest things I’ve ever experienced, I genuinely have no explanation for. Living in a city I used to drive out 20-30 miles into the country to do some astrophotography. As I’m driving out one night I see this guy walking at the side of the road with no lights, reflectors and a big backpack. Didn’t think much of it other than it being a little odd. 5 miles later, I see the same guy walking again. I haven’t changed directions, turned, and I’ve been doing 50mph. As I drove past he looked and waved at me. I was pretty spooked but I drove on. I must be imagining things. It can’t be the same guy. I get to my field in the middle of nowhere, park up and get the camera out, and turn off all the lights so my eyes adjust to the dark.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185793.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
