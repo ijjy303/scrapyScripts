@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/10/2022-20:11:31
+Last updated: 06/10/2022-21:11:31
 <br>
 ## <a href="#linky2" id="linky1">Dudes Winning on the Internet Will Never Get Old</a><br>
 
@@ -45,201 +45,255 @@ Last updated: 06/10/2022-20:11:31
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">24 Things Guys Never Knew About Women Until Getting In a Relationship</a><br>
+## <a href="#linky3" id="linky2">21 Dank Memes We Found Stashed in the False Ceiling</a><br>
 
-<span style="font-size:4em">1. That birth control messes with their hormones a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184769.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A good hug when “nothing” is wrong works wonders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184768.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. COMMUNICATION IS THE KEY TO EVERYTHING. Seriously, if theres an unanswered question, f*cking mention it and get the answer. Neither men nor women are mind readers. So many things can be avoided by just talking with the other one in the relationship.Always assume ignorance over malice. Chances are whatever happened its because of assumptions made and not because one was trying to actively hurt/annoy the other. The only dumb question is the one you dont ask.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184770.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Makeup is expensive as f*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184771.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186879.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Bobbypins are magical items that will materialize out of thin air.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184772.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Actually, the most valuable thing I’ve learned is to be honest. If I’m going to the pub and know I’ll be back late, just be straight up and tell it like it is. Most girls like honesty (seems fairly obvious doesn’t it). The relationship I’m in now has been by far the best because I don’t try to play games which has got me into trouble in the past. Honesty and transparency. It’s the key.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184773.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186881.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Until I actually lived with my partner it was hard to comprehend just how often a period comes, how long it lasts, and how much it can affect your day-to-day.What a pain in the ass. I do not envy the ladies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184774.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. You don’t have enough hangers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184775.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186883.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. My french fries are her french fries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184776.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. An issue/argument is not a win/lose situation every time. Take time to compromise and learn from each other instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184777.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186885.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Im female, but my male partner had no idea that women cant hold in our periods like we hold in pee.I found this out when he was telling me about a girl in 6th grade who got her period in class, and he couldnt believe how she just let it all out all over (as if she peed in her pants but it was period blood).I had to explain to him how it works. But I guess, how would he have known? I never thought about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184778.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186886.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Her hair somehow always ends up in between my butt crack. HOW?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184779.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186887.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Daily sunscreen, lotion your whole body in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184780.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186888.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. That penetration without clitoral stimulation doesnt do the trick for a lot of women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184781.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186889.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The amount of hair they shed is unreal... Not sure how they still have a full body of hair on their head after a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184782.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186890.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Sometimes you need to leave, like go outside and far away, so they can poop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184783.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186891.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The statement “just do what you want,“ no matter the tone, means you f*cked up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184784.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186892.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. That morning routine aint no joke.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184785.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186893.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. What might be a really small thing for me to give her (a gesture, compliment, smile, etc.) can mean a whole lot to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184786.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186894.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. They shower with lava. At least thats what the water temperature felt like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184787.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186895.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. You have to teach someone how to be a good lover to you. People don’t magically know how to meet your needs. And they certainly can’t read your mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. They tell you to put the seat down on the toilet because they legit fall in if they don’t notice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. You really gotta let her pee after sex man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. That my hoodies are actually her hoodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184791.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186896.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">23 That Might Make You Do a Double-Take</a><br>
+## <a href="#linky4" id="linky3">74 Pieces of Street Art That Belong in a Museum</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185930.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185908.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. There’s a sandwich in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185909.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Bert?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185910.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. There’s no water in this pic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185911.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185912.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Hallway makes her look tiny.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185913.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Giant lady.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185914.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185915.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. It’s just chairs in the reflection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185916.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185917.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185918.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. No leaves in this tree. Those are birds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185919.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185920.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Which building is closer?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185921.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185922.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. One pic, 4 blues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185923.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185924.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Little bell?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185925.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185926.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Register 1 or 0?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185927.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185928.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185929.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187199.png" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187200.png" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187201.png" style="width:100%"><br>
+
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">71. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">72. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">73. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">74. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187215.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">46 Times Life Decided To Suck</a><br>
+## <a href="#linky5" id="linky4">28 Roast Victims Who Got Sent to the Burn Ward</a><br>
 
-<span style="font-size:4em">1. A wasp flew into my car window while I was driving and stung me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105358/87187275/87184558.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When common sense isnt so common.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105250/87187266/87183431.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When a windy day exposes your secret.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105312/87187268/87183906.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. If you have ever accidentally done this.. you know the pain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105324/87187269/87184543.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Not just how the hell... but what the hell?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105333/87187270/87183923.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This is just a straight fatality right here. No pun intended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Well, guess im taking an uber or the bus.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105335/87187271/87184550.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Grabbed the wrong one and now all of my chocolate chip cookies taste weird.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105337/87187272/87184551.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Pulled this out of my mouth while eating my sandwich…felt like a popcorn hull until it started wiggling.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105346/87187273/87184553.png" style="width:100%"><br>
+<span style="font-size:4em">8. This dude has definitely played Wonderwall next to a sh*tty lake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Somebody sank their water Ferrari and just left it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105347/87187274/87184556.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Well s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186504.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Get some sleep, bro. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186472.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105301/87187267/87183448.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Jeez at least wait for the roast to start, lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My husband made the perfect nachos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186473.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186475.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. That was certainly kind of her. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. How my new license plate was delivered by FedEx. 1 day late.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186476.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. I forgot to add something important to my morning coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186477.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. 1st attempt at smoking a brisket - Happy Mothers Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186478.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The absolute brutality of this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186479.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The worst part for her is theyre almost definitely right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Finally have time to go to the beach and...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186474.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Hit the deadbeat nail right on the head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Passed by this squirrel eating someone’s pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186480.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186482.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. This is just a statement of facts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. I was looking forward to moving to the empty window seat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186497.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. My mom forgot to roll up her passenger window in the car wash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186483.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Theres real pain in this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. I’ve dropped a lot of plates in my 43 years on earth. But I’ve never seen one get obliterated so absolutely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186484.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. My salt crusher broke over my food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My kid got a box of onions instead of nuggets in his happy meal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Where my sunglasses have been hiding for 2 weeks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I guess I will eat dirty sink pasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didnt do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. My wife was in shock when she received this $9 sandwich this afternoon…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. Eating while driving and spilled barbecue sauce in the worst place possible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Idiot!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. I just spilled a full cup of orange juice all over myself on the last day of vacation. I didn’t bring an extra pair of pants.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Checking my jar of Jif as I’m reading about the recall…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. Love biting into my mostly hollow doughnut.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. Well Im 2 hours into my shift and noticed I put on two different shoes this morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. Had a decent day drinking and fishing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. Ants.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. Robot pushed past me and gave me this sh#t eating grin as it closed the elevator door without me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. When you’re rough day includes breaking a toilet seat with your @$$</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. The chocolates stayed in the back of the car for an entire day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. Nothing like dropping all your sockets in the street</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. Went out for the night and forgot my drawer open, cats found the stash, entire room’s now glittered in catnip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. Say hello to Anthony, the ant behind my TV screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186507.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Thats just straight mean (but hes got a point...).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186762.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -622,255 +676,119 @@ He lost his chickens but found a loophole where he could actually own Llamas in 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">74 Pieces of Street Art That Belong in a Museum</a><br>
+## <a href="#linky13" id="linky12">23 That Might Make You Do a Double-Take</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187148.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185930.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187142.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185908.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187143.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. There’s a sandwich in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185909.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187144.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Bert?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185910.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187145.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. There’s no water in this pic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185911.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187146.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185912.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187164.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Hallway makes her look tiny.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185913.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187147.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Giant lady.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185914.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187149.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185915.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187150.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. It’s just chairs in the reflection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185916.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187151.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185917.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187152.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185918.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187153.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. No leaves in this tree. Those are birds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185919.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187154.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185920.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187155.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Which building is closer?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185921.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187156.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185922.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187171.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. One pic, 4 blues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185923.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187157.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185924.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187158.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Little bell?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185925.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187159.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185926.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187160.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Register 1 or 0?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185927.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187173.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185928.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187199.png" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187200.png" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187201.png" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">71. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">72. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">73. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">74. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87187215.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87185929.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">21 Dank Memes We Found Stashed in the False Ceiling</a><br>
+## <a href="#linky14" id="linky13">Dude Mistakenly Eats 1000mg Worth of ‘Stoney’ Patch Kids</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186876.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010732/87187336/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186877.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010724/87187335/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186878.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010713/87187334/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186879.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186886.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87186896.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010702/87187333/end.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">28 Roast Victims Who Got Sent to the Burn Ward</a><br>
+## <a href="#linky15" id="linky14">25 People Who Are Technically Not Wrong</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186758.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186754.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186745.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186751.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This is just a straight fatality right here. No pun intended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186763.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186511.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186742.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186750.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This dude has definitely played Wonderwall next to a sh*tty lake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186741.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186509.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186737.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Get some sleep, bro. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186736.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186738.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Jeez at least wait for the roast to start, lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186740.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186517.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186755.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. That was certainly kind of her. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186744.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186746.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186747.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The absolute brutality of this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186748.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. The worst part for her is theyre almost definitely right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186739.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Hit the deadbeat nail right on the head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186749.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186752.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. This is just a statement of facts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186756.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186757.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Theres real pain in this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186760.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186761.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Thats just straight mean (but hes got a point...).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186762.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186533.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -938,69 +856,151 @@ He lost his chickens but found a loophole where he could actually own Llamas in 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">25 People Who Are Technically Not Wrong</a><br>
+## <a href="#linky17" id="linky16">46 Times Life Decided To Suck</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186521.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A wasp flew into my car window while I was driving and stung me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105358/87187275/87184558.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186529.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. When common sense isnt so common.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105250/87187266/87183431.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186522.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When a windy day exposes your secret.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105312/87187268/87183906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186520.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. If you have ever accidentally done this.. you know the pain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105324/87187269/87184543.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186511.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Not just how the hell... but what the hell?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105333/87187270/87183923.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186512.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Well, guess im taking an uber or the bus.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105335/87187271/87184550.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186513.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Grabbed the wrong one and now all of my chocolate chip cookies taste weird.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105337/87187272/87184551.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186509.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Pulled this out of my mouth while eating my sandwich…felt like a popcorn hull until it started wiggling.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105346/87187273/87184553.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186514.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Somebody sank their water Ferrari and just left it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105347/87187274/87184556.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186515.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Well s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186504.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186516.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186517.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/105301/87187267/87183448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186518.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My husband made the perfect nachos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186519.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186510.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. How my new license plate was delivered by FedEx. 1 day late.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186523.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. I forgot to add something important to my morning coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186524.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. 1st attempt at smoking a brisket - Happy Mothers Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186525.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186526.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Finally have time to go to the beach and...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186527.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Passed by this squirrel eating someone’s pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186528.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186530.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. I was looking forward to moving to the empty window seat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186531.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. My mom forgot to roll up her passenger window in the car wash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186532.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. I’ve dropped a lot of plates in my 43 years on earth. But I’ve never seen one get obliterated so absolutely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186533.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. My salt crusher broke over my food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My kid got a box of onions instead of nuggets in his happy meal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Where my sunglasses have been hiding for 2 weeks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I guess I will eat dirty sink pasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didnt do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. My wife was in shock when she received this $9 sandwich this afternoon…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Eating while driving and spilled barbecue sauce in the worst place possible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Idiot!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. I just spilled a full cup of orange juice all over myself on the last day of vacation. I didn’t bring an extra pair of pants.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Checking my jar of Jif as I’m reading about the recall…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. Love biting into my mostly hollow doughnut.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. Well Im 2 hours into my shift and noticed I put on two different shoes this morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. Had a decent day drinking and fishing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. Ants.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. Robot pushed past me and gave me this sh#t eating grin as it closed the elevator door without me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. When you’re rough day includes breaking a toilet seat with your @$$</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. The chocolates stayed in the back of the car for an entire day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. Nothing like dropping all your sockets in the street</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. Went out for the night and forgot my drawer open, cats found the stash, entire room’s now glittered in catnip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. Say hello to Anthony, the ant behind my TV screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87186507.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">Dude Mistakenly Eats 1000mg Worth of ‘Stoney’ Patch Kids</a><br>
+## <a href="#linky18" id="linky17">24 Things Guys Never Knew About Women Until Getting In a Relationship</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010732/87187336/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. That birth control messes with their hormones a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010724/87187335/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A good hug when “nothing” is wrong works wonders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010713/87187334/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. COMMUNICATION IS THE KEY TO EVERYTHING. Seriously, if theres an unanswered question, f*cking mention it and get the answer. Neither men nor women are mind readers. So many things can be avoided by just talking with the other one in the relationship.Always assume ignorance over malice. Chances are whatever happened its because of assumptions made and not because one was trying to actively hurt/annoy the other. The only dumb question is the one you dont ask.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/010702/87187333/end.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Makeup is expensive as f*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Bobbypins are magical items that will materialize out of thin air.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Actually, the most valuable thing I’ve learned is to be honest. If I’m going to the pub and know I’ll be back late, just be straight up and tell it like it is. Most girls like honesty (seems fairly obvious doesn’t it). The relationship I’m in now has been by far the best because I don’t try to play games which has got me into trouble in the past. Honesty and transparency. It’s the key.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Until I actually lived with my partner it was hard to comprehend just how often a period comes, how long it lasts, and how much it can affect your day-to-day.What a pain in the ass. I do not envy the ladies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184774.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. You don’t have enough hangers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. My french fries are her french fries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. An issue/argument is not a win/lose situation every time. Take time to compromise and learn from each other instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Im female, but my male partner had no idea that women cant hold in our periods like we hold in pee.I found this out when he was telling me about a girl in 6th grade who got her period in class, and he couldnt believe how she just let it all out all over (as if she peed in her pants but it was period blood).I had to explain to him how it works. But I guess, how would he have known? I never thought about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Her hair somehow always ends up in between my butt crack. HOW?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Daily sunscreen, lotion your whole body in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. That penetration without clitoral stimulation doesnt do the trick for a lot of women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The amount of hair they shed is unreal... Not sure how they still have a full body of hair on their head after a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Sometimes you need to leave, like go outside and far away, so they can poop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The statement “just do what you want,“ no matter the tone, means you f*cked up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That morning routine aint no joke.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. What might be a really small thing for me to give her (a gesture, compliment, smile, etc.) can mean a whole lot to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. They shower with lava. At least thats what the water temperature felt like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. You have to teach someone how to be a good lover to you. People don’t magically know how to meet your needs. And they certainly can’t read your mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. They tell you to put the seat down on the toilet because they legit fall in if they don’t notice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. You really gotta let her pee after sex man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. That my hoodies are actually her hoodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87184791.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
