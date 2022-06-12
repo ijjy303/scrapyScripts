@@ -1,177 +1,97 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/12/2022-12:11:31
+Last updated: 06/12/2022-13:11:31
 <br>
-## <a href="#linky2" id="linky1">79 Funny Memes and Pics to Raise Your Glass To</a><br>
+## <a href="#linky2" id="linky1">23 Interesting Images for Fans of Science</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115334/87189445/87188470.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I’ve been growing mono ammonium phosphate crystals for the past 3 years. They are truly fascinating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189032.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “This is how swamped skies — the effect of satellites on the night sky — look.” “The end result is 343 photos (over 85 mins) worth of satellite images blended together.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188943.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189037.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Many people don’t know that rubies are fluorescent.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188944.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115013/87189409/87183235.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “I made some plant cell earrings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188945.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189025.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “PER ASPERA AD ASTRA (’through hardships to the stars’) encoded into peptide tattoo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188946.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189022.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I always wear some clear nail polish that strongly fluoresces. When I’m outside and I see some blue on my thumb, I know the UV index is high and it’s sunscreen time.” “In the photo, I shined a UV flashlight on the nail polish to exaggerate it. In reality, there is a slight blue tint.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188941.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189026.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Finished my most ambitious project to this day. I present to you my true to size 3D Atlas Moth.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188947.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115112/87189420/87184466.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “I’ve turned cellular respiration and photosynthesis into necklaces.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188948.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114909/87189398/87167549.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Maple Syrup Chemistry. All the molecules drawn are found in maple syrup.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188949.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189027.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This is how chemistry fans dye eggs:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189029.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “My son is obsessed with ants and poison dart frogs, so I made these for his Birthday!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189030.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I just turned 17 today. And I got kidney-themed slippers for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115027/87189412/87183484.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “My boyfriend built me molecule wall art last weekend.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188953.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114952/87189406/87183218.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I and my homie made a dinosaur model for our school’s science exhibition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189020.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I designed and 3D printed a periodic table with electronegativity shown by height!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188955.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189034.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “I’ve been working on my most recent stained-glass piece over the past 2 months. It’s one of a kind!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188956.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189039.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “I synthesized human insulin into a necklace.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188957.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189035.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Made this Dopamine light.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189041.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Quick little project celebrating the reawakening of the forest floor” The Forest Floor is a layer above the soil surface in the forest that consists of shed vegetative parts, such as leaves, branches, bark, and stems, existing in various stages of decomposition. (Bright Side note)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189043.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “I made a blue ring octopus out of clay.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114846/87189396/87167540.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Bees help to convert sucrose into glucose and fructose, honey. I drew this to represent that!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114857/87189397/87167548.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “I stitched a Junonia Orithya, also known as a Blue Pansy butterfly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114916/87189399/87167545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114920/87189400/87167558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114928/87189401/87167560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115024/87189411/87183245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115046/87189415/87183884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114931/87189402/87167571.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114939/87189403/87167577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115203/87189429/87185397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114942/87189404/87167578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114951/87189405/87180436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115002/87189407/87183221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115003/87189408/87183222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115016/87189410/87183238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115035/87189413/87183874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115039/87189414/87183876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115050/87189416/87184447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115057/87189417/87184449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115101/87189418/87184451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115108/87189419/87184452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115119/87189421/87184470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115124/87189422/87184471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115130/87189423/87184476.png" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115135/87189424/87184477.png" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115141/87189425/87185371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115147/87189426/87185381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115152/87189427/87185386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115158/87189428/87185387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115209/87189430/87185398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115214/87189431/87185403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115221/87189432/87188356.png" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115226/87189433/87188357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115233/87189434/87188358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115237/87189435/87188362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115244/87189436/87188364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115248/87189437/87188367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115255/87189438/87188371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115259/87189439/87188372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115307/87189440/87188373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115310/87189441/87188438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115318/87189442/87188381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115323/87189443/87188449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115329/87189444/87188444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115340/87189446/87188452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115346/87189447/87188473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115402/87189448/87188471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115405/87189449/87188482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115413/87189450/87189360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115416/87189451/87189361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">71. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115424/87189452/87189364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">72. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115427/87189453/87189365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">73. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115435/87189454/87189368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">74. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115438/87189455/87189369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">75. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115439/87189456/87189370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">76. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115447/87189457/87189371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">77. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115450/87189458/87189375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">78. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115459/87189459/87189379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">79. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115502/87189460/87189380.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “Took my students’ indicator papers from them just to make a little art.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188963.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Dude Nails Petty Revenge Plot after Roommate’s Sex-Capade</a><br>
+## <a href="#linky3" id="linky2">‘Son of Sam’ Facts You May Not Know about the Infamous Murders</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/035419/87187553/intro.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. In 1979, an inmate tried to murder Berkowitz by slashing his throat. The wound needed 50 stitches to heal.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014512/87188235/1979.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/035430/87187555/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. In 2002, Berkowitz wrote a letter to the D.C. Sniper asking him to stop the killing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014512/87188234/dcsniper.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/035438/87187556/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. David Berkowitz is now a reformed Christian.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014500/87188182/christian.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/035426/87187554/end.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. David Berkowitz is the author of his own book, and all proceeds were to go to his victims families.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014438/87188180/book.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. David Berkowitz claimed that Rich Girl by Hall and Oates was inspiration for the murders. However the song hadnt even been released by the time he started killing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/015114/87188251/richgirl.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Hall and Oates would later reference Berkowitzs Rich Girl claim in their song Diddy Doo Wop (I Hear the Voices).</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014548/87188238/diddy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Son of Sam was really only caught because of an unpaid parking ticket on his Ford Galaxie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014449/87188181/car.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Berkowitz claimed that he was a member of a satanic cult.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014524/87188236/cult.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Berkowitzs weapon of choice was a Charter Arms Bulldog, which is why he also became known as the .44 Caliber Killer.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014555/87188239/gun.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. As the Son of Sam killings were coming to an end, in October 1977 the Hillside Strangler was just getting started on the west coast.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014558/87188240/hillsideoct.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. He has turned down parole multiple times stating that he got what he deserved.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014606/87188241/letter.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. David Berkowitz said that his neighbors dog, Harvey (and the Devil) told him to kill his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014536/87188237/harvey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Son of Sam Laws prohibit serial killers/criminals from making money off of their crimes. There was speculation after David Berkowitz was arrested that he might try to sign a book or movie deal based on his story.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014610/87188242/inventinganna.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Berkowitz regularly would provide counsel and advice to troubled inmates in prison.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014617/87188243/mugshot.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. He was born Richard David Falco and eventually changed his name to David Richard Berkowitz.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014625/87188245/realname.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Police wanted to avoid bringing in a SWAT team to arrest Berkowitz, and instead waited for him to leave his home.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014628/87188246/swat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. There was a 1999 biopic based on the Son of Sam killings called Summer of Sam and it was directed by Spike Lee.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014637/87188247/summerofsam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In total he murdered six people and injured nine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014638/87188248/victim.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. He now runs his own website, which includes a full written apology.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014648/87188249/website.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Beauty stores in NYC couldnt keep wigs in stock after the police released victimology, as many women wanted to change their hair color.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014649/87188250/wigs.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -294,49 +214,7 @@ He lost his chickens but found a loophole where he could actually own Llamas in 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">19 Ex-Cons Share Habits They Still Have From Prison</a><br>
-
-<span style="font-size:4em">1. Standing up for myself, even if the other guy is bigger and stronger.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040814/87187565/prisonhabits7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. After you shower you use your hands like a squeegee blade and it removes 75% of the water off you. Now your towel isnt wet at the end, it’s damp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040731/87187559/prisonhabits1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I eat with my plate tucked between my arms, huddled over it like a trough, shoveling it in as fast as possible.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040837/87187569/prisonhabits11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I can play Spades a bit better now.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040742/87187560/prisonhabits4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Reading. Thats where I figured out how to read for leisure.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040750/87187561/prisonhabits3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Being Patient.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040816/87187566/prisonhabits9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Not reaching over somebodys food.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040753/87187562/prisonhabits5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ice cubes. Spoon. Soup. Eat it as fast as possible this way. Dont let someone have the chance to take your soup.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040802/87187563/prisonhabits6.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Save every extra sugar packet I come across in case I get hungry between meals.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040826/87187567/prisonhabits10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Answering the telephone. Once a call connects, you would hear them say hello and then a prompt would play letting them know the call is recorded and what not before you then say hello. For about a year people would answer when I called them, and I would wait for the recording to play before responding.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040828/87187568/prisonhabits12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Made a habit of addressing something that could potentially become a problem. Harshly and immediately. Currently trying to drop the harsh part.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040720/87187558/prisonhabits2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My friend would wake up early and do his business in the dark, door wide open, and smoking a cig. Without fail, every morning. Took me a night in county jail to put 2 and 2 together and have my aha moment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040839/87187570/prisonhabits13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Eating fast. Too fast honestly.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040902/87187574/prisonhabits17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My boyfriend washes his clothes in the shower or bathroom sink, sweeps every morning, jumps out of bed as soon as he wakes up, and lives pretty minimally. Hes super fit and works out everyday.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040849/87187571/prisonhabits14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. If a snickers magically appears on my bed one day, you best believe I’ll leave it alone.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040850/87187572/prisonhabits15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My brother had a hard time closing the door to poop. He said it felt weird to poop alone.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040900/87187573/prisonhabits16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My friend spends a few hours everyday in a tool shed in his backyard, the size of a jail cell, fully stocked with a fridge, tv, ac, music, three bongs and a little bed. He said it helps him feel sane and in control.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040912/87187575/prisonhabits18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Friend worked in a bad prison for 10+ years. Said he became immune to s**t talk. Nothing, literally nothing, could piss him off or make him emotional or unbalanced.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040913/87187576/prisonhabits19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My friend’s baby daddy was in jail, apparently learned how to give really good massages. Now owns his own massage therapy clinic and employs like 30 RMT’s.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040922/87187577/prisonhabits20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">32 Rage Inducing Pics that Raised my Blood Pressure</a><br>
+## <a href="#linky6" id="linky5">32 Rage Inducing Pics that Raised my Blood Pressure</a><br>
 
 <span style="font-size:4em">1. I feel like these are intentional and a personal attack when this happens...</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/111834/87187281/86128850.jpg" style="width:100%"><br>
 
@@ -404,243 +282,7 @@ He lost his chickens but found a loophole where he could actually own Llamas in 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">‘Son of Sam’ Facts You May Not Know about the Infamous Murders</a><br>
-
-<span style="font-size:4em">1. In 1979, an inmate tried to murder Berkowitz by slashing his throat. The wound needed 50 stitches to heal.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014512/87188235/1979.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. In 2002, Berkowitz wrote a letter to the D.C. Sniper asking him to stop the killing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014512/87188234/dcsniper.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. David Berkowitz is now a reformed Christian.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014500/87188182/christian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. David Berkowitz is the author of his own book, and all proceeds were to go to his victims families.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014438/87188180/book.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. David Berkowitz claimed that Rich Girl by Hall and Oates was inspiration for the murders. However the song hadnt even been released by the time he started killing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/015114/87188251/richgirl.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Hall and Oates would later reference Berkowitzs Rich Girl claim in their song Diddy Doo Wop (I Hear the Voices).</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014548/87188238/diddy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Son of Sam was really only caught because of an unpaid parking ticket on his Ford Galaxie.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014449/87188181/car.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Berkowitz claimed that he was a member of a satanic cult.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014524/87188236/cult.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Berkowitzs weapon of choice was a Charter Arms Bulldog, which is why he also became known as the .44 Caliber Killer.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014555/87188239/gun.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. As the Son of Sam killings were coming to an end, in October 1977 the Hillside Strangler was just getting started on the west coast.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014558/87188240/hillsideoct.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. He has turned down parole multiple times stating that he got what he deserved.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014606/87188241/letter.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. David Berkowitz said that his neighbors dog, Harvey (and the Devil) told him to kill his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014536/87188237/harvey.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Son of Sam Laws prohibit serial killers/criminals from making money off of their crimes. There was speculation after David Berkowitz was arrested that he might try to sign a book or movie deal based on his story.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014610/87188242/inventinganna.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Berkowitz regularly would provide counsel and advice to troubled inmates in prison.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014617/87188243/mugshot.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. He was born Richard David Falco and eventually changed his name to David Richard Berkowitz.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014625/87188245/realname.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Police wanted to avoid bringing in a SWAT team to arrest Berkowitz, and instead waited for him to leave his home.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014628/87188246/swat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. There was a 1999 biopic based on the Son of Sam killings called Summer of Sam and it was directed by Spike Lee.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014637/87188247/summerofsam.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In total he murdered six people and injured nine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014638/87188248/victim.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. He now runs his own website, which includes a full written apology.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014648/87188249/website.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Beauty stores in NYC couldnt keep wigs in stock after the police released victimology, as many women wanted to change their hair color.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/014649/87188250/wigs.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Wife Prematurely Celebrates Husband’s Vasectomy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188295.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">51 Choice Randoms For Your Weekend Enjoyment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187895.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">21 Things Most People Don't Know Can F**k You Up</a><br>
-
-<span style="font-size:4em">1. Hiking at altitude youre not used to.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123928/87188099/messuup4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Inhaling mold from within your house.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123917/87188098/messuup3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Concussions. A few years back I taught a student with phenomenal grades. Around midyear, she got concussed playing soccer. Almost failed the school year. Next year she hardly showed up. She literally became a different person.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123939/87188100/messuup5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Mixing cleaning products. Yay Chlorine Gas, right there in your mostly enclosed bathroom…  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123948/87188101/messuup1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dehydration. I recently had to be put into the hospital because I vomited so profusely and so strongly that I pulled most of the muscles in my core- diaphragm, abdominals, obliques, even my traps on my upper back. And I couldnt take a full breath in.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123948/87188102/messuup2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Sea snails. They are one of the deadliest animals on our planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123950/87188103/messuup6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Listening to loud music or being exposed to loud sounds daily. Can cause permanent tinnitus or hearing loss issues down the road.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123959/87188104/messuup7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Pigs. An adult pig is a dangerous animal. Where I live there is always a death by pigs every year. Same story; family had pigs, kids grew and left the house, elder mother or father falls while feeding the pigs, cant get up because they’re old, pigs eat them.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124001/87188105/messuup8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Deer. Especially bucks in mating season. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124010/87188106/messuup9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Stuffed animals can be important for the emotional development of kids, and taking away a stuffed animal can be traumatic.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124013/87188107/messuup10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Cement dust. If youre ever around a construction site and notice cement dust in the air, mask up or move on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124020/87188108/messuup12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ignoring teeth problems. I had a filling that fell out and I ignored it. Worst pain ever. Cost me a lot too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124025/87188109/messuup11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Going to a nude beach without putting sunblock on your genitals.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124031/87188110/messuup13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Kangaroos. Apparently they have a claw on their hind leg similar to a raptor that can slice your abdomen so deep that your guts fall right out.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124036/87188111/messuup14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Garage door springs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124042/87188112/messuup15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Not replacing your gas furnace filters results in your heat exchanger to crack and then the furnace blows odorless carbon monoxide throughout your vents and you go to sleep forever.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124046/87188113/messuup16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Fist fights. One punch is all it takes to get messed up for life, if not die. Fall wrong. Smash your head on something. The punch itself. Plus, you dont even have to be on the receiving end of the punch to mess your life up.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124053/87188114/messuup17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Drinking soy sauce. Dont do that.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124059/87188115/messuup19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. If you are physically dependent on alcohol, quitting cold turkey can definitely kill you.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124105/87188116/messuup21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Straining too hard while pooping.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124109/87188117/messuup20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Acetaminophen. If you dont stay within the recommended dose, you can mess up your liver very quickly.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/011356/87188177/messuup23.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">8 Things Your Body Might Be Hiding From You</a><br>
-
-<span style="font-size:4em">1. Whenever a drop in temperature on the palate occurs, the brain jumps into action to prevent freezing to death. In other words, the brain will increase blood pressure in an effort to tell the person to slow down a notch. This condition is called an ice cream headache. And it’s something we should all watch out for during summer days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This might sound like a cliché, but stress can literally change the shape of your heart. Takotsubo syndrome is a condition that causes the left ventricle to change shape and fail to pump blood properly. During short-term stress, 2 molecules known to be released during stress and depression can affect the activity of heart muscle cells, leading to a temporary failure. Luckily, managing stress and practicing breathing and meditation techniques cure this condition without the need for medication.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The human microbiome, also known as the gut environment, is an ecosystem made of various bacteria that have co-evolved with humans to benefit both the host and the bacteria. This bacterium is known to influence human psychology since it contains a profound number of chemicals that are used by our neurons to communicate and regulate mood, like dopamine and serotonin. Speaking of which, 95% of the body’s supply of serotonin is produced in the gut.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The white matter is the tissue that connects neurons together, making communication possible between the various gray matter regions and between the gray matter and the rest of the body. As we age, our white matter degrades, resulting in symptoms like memory loss and difficulty solving problems.
-
-But research has shown that dancing increases white matter in the brain, which increases cognitive function and keeps the brain in shape. And of course, it’s hard to be unhappy when you’re dancing. So it’s a win-win situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. As we grow older, our bodies shrink, but our noses and ears keep getting bigger. This happens because our skin starts to lose its elasticity and can’t retain the support that it once could. The nose and ears are no exceptions. These pronominal organs change in size as we age, but not because we’re growing — it’s because of gravity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. We all have that friend who tells the same story each time with different details. The reason why they do that is that their memory is playing tricks on them. We often think of our brain as a machine that stores and arranges our memories for us, like a camera or a tape recorder.
-
-While in reality, many studies have concluded that memories, even our most cherished ones, are malleable and are fallible. False memories can affect anyone, regardless of whether the memory is trivial or life-changing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The brain now is smaller than it used to be 3,000 years ago. Before assuming that this is bad news, remember that there is a correlation between the body and brain size. So, as the body grew smaller, so did the brain.
-
-Yuval Noah Harari explained this phenomenon in a great way: “You give some, you take some.” Because of our developed cognitive and planning abilities, human beings no longer need larger bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Exposing the skin to black light, also known as Wood’s light, can be used to detect bacterial and fungal skin infections as well as irregularities in skin pigmentation. Under a Wood’s lamp, healthy skin glows brightly without shining. It may display white spots when the skin is thick, yellow spots where the skin is greasy, and purple patches where the skin is dry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188087.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Annoying Things Young People Keep Doing</a><br>
+## <a href="#linky7" id="linky6">25 Annoying Things Young People Keep Doing</a><br>
 
 <span style="font-size:4em">1. “Expect that Im not up to whats going on in the Internet. I was in my late 30s, when a friends son tried to explain me memes. He got them wrong too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185074.jpg" style="width:100%"><br>
 
@@ -694,91 +336,21 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">40 Dirty and Savage Memes for You Degenerates</a><br>
+## <a href="#linky8" id="linky7">Wife Prematurely Celebrates Husband’s Vasectomy</a><br>
 
-<span style="font-size:4em">1. Ahh the glorious summer is almost here.  Daisy dukes and sun dresses, what more can you ask for? </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021300/87187412/87098214.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021311/87187413/87098194.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Get it while its hot!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021323/87187414/87100092.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Well I guess he wasnt only thinking about himself!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021333/87187415/87100108.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021344/87187416/87100107.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021344/87187417/87100113.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. I think that is exactly what the means!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021354/87187418/87103439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Wait, is that why they keep calling me the hardest worker in the company?!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021356/87187419/87103441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021405/87187420/87103448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021407/87187421/87103461.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Its a bit of an art form.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021418/87187422/87107780.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Your sister is #2 on speed dial.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021419/87187423/87108604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021429/87187424/87108610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021430/87187425/87108619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. AKA, meals on wheels.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021440/87187426/87108621.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021442/87187427/87109220.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021452/87187428/87114071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021453/87187429/87114073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021504/87187430/87114075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021515/87187431/87114089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021526/87187432/87114080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021535/87187433/87114077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Oh, its invisible girl...</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021537/87187434/87125959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. That garlic bread does hit on a whole other level.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021547/87187435/87144585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. 100% of the time, it works every time.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021549/87187436/87148115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021559/87187437/87148125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021600/87187438/87148128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021610/87187439/87148132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021612/87187440/87148134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021622/87187441/87148139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021624/87187442/Untitled-1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. Well technically it is working out, but its also not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180097.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188295.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">50 Nifty Pics to Enjoy When You're Bored</a><br>
+## <a href="#linky9" id="linky8">50 Nifty Pics to Enjoy When You're Bored</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186767.jpg" style="width:100%"><br>
 
@@ -886,7 +458,79 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">59 Dank Memes and Funny Tweets Fresh From the Vine</a><br>
+## <a href="#linky10" id="linky9">21 Things Most People Don't Know Can F**k You Up</a><br>
+
+<span style="font-size:4em">1. Hiking at altitude youre not used to.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123928/87188099/messuup4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Inhaling mold from within your house.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123917/87188098/messuup3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Concussions. A few years back I taught a student with phenomenal grades. Around midyear, she got concussed playing soccer. Almost failed the school year. Next year she hardly showed up. She literally became a different person.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123939/87188100/messuup5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Mixing cleaning products. Yay Chlorine Gas, right there in your mostly enclosed bathroom…  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123948/87188101/messuup1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Dehydration. I recently had to be put into the hospital because I vomited so profusely and so strongly that I pulled most of the muscles in my core- diaphragm, abdominals, obliques, even my traps on my upper back. And I couldnt take a full breath in.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123948/87188102/messuup2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sea snails. They are one of the deadliest animals on our planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123950/87188103/messuup6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Listening to loud music or being exposed to loud sounds daily. Can cause permanent tinnitus or hearing loss issues down the road.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123959/87188104/messuup7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Pigs. An adult pig is a dangerous animal. Where I live there is always a death by pigs every year. Same story; family had pigs, kids grew and left the house, elder mother or father falls while feeding the pigs, cant get up because they’re old, pigs eat them.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124001/87188105/messuup8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Deer. Especially bucks in mating season. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124010/87188106/messuup9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Stuffed animals can be important for the emotional development of kids, and taking away a stuffed animal can be traumatic.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124013/87188107/messuup10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Cement dust. If youre ever around a construction site and notice cement dust in the air, mask up or move on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124020/87188108/messuup12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ignoring teeth problems. I had a filling that fell out and I ignored it. Worst pain ever. Cost me a lot too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124025/87188109/messuup11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Going to a nude beach without putting sunblock on your genitals.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124031/87188110/messuup13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Kangaroos. Apparently they have a claw on their hind leg similar to a raptor that can slice your abdomen so deep that your guts fall right out.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124036/87188111/messuup14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Garage door springs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124042/87188112/messuup15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Not replacing your gas furnace filters results in your heat exchanger to crack and then the furnace blows odorless carbon monoxide throughout your vents and you go to sleep forever.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124046/87188113/messuup16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Fist fights. One punch is all it takes to get messed up for life, if not die. Fall wrong. Smash your head on something. The punch itself. Plus, you dont even have to be on the receiving end of the punch to mess your life up.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124053/87188114/messuup17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Drinking soy sauce. Dont do that.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124059/87188115/messuup19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. If you are physically dependent on alcohol, quitting cold turkey can definitely kill you.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124105/87188116/messuup21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Straining too hard while pooping.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/124109/87188117/messuup20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Acetaminophen. If you dont stay within the recommended dose, you can mess up your liver very quickly.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/011356/87188177/messuup23.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">8 Things Your Body Might Be Hiding From You</a><br>
+
+<span style="font-size:4em">1. Whenever a drop in temperature on the palate occurs, the brain jumps into action to prevent freezing to death. In other words, the brain will increase blood pressure in an effort to tell the person to slow down a notch. This condition is called an ice cream headache. And it’s something we should all watch out for during summer days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This might sound like a cliché, but stress can literally change the shape of your heart. Takotsubo syndrome is a condition that causes the left ventricle to change shape and fail to pump blood properly. During short-term stress, 2 molecules known to be released during stress and depression can affect the activity of heart muscle cells, leading to a temporary failure. Luckily, managing stress and practicing breathing and meditation techniques cure this condition without the need for medication.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The human microbiome, also known as the gut environment, is an ecosystem made of various bacteria that have co-evolved with humans to benefit both the host and the bacteria. This bacterium is known to influence human psychology since it contains a profound number of chemicals that are used by our neurons to communicate and regulate mood, like dopamine and serotonin. Speaking of which, 95% of the body’s supply of serotonin is produced in the gut.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The white matter is the tissue that connects neurons together, making communication possible between the various gray matter regions and between the gray matter and the rest of the body. As we age, our white matter degrades, resulting in symptoms like memory loss and difficulty solving problems.
+
+But research has shown that dancing increases white matter in the brain, which increases cognitive function and keeps the brain in shape. And of course, it’s hard to be unhappy when you’re dancing. So it’s a win-win situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. As we grow older, our bodies shrink, but our noses and ears keep getting bigger. This happens because our skin starts to lose its elasticity and can’t retain the support that it once could. The nose and ears are no exceptions. These pronominal organs change in size as we age, but not because we’re growing — it’s because of gravity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. We all have that friend who tells the same story each time with different details. The reason why they do that is that their memory is playing tricks on them. We often think of our brain as a machine that stores and arranges our memories for us, like a camera or a tape recorder.
+
+While in reality, many studies have concluded that memories, even our most cherished ones, are malleable and are fallible. False memories can affect anyone, regardless of whether the memory is trivial or life-changing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The brain now is smaller than it used to be 3,000 years ago. Before assuming that this is bad news, remember that there is a correlation between the body and brain size. So, as the body grew smaller, so did the brain.
+
+Yuval Noah Harari explained this phenomenon in a great way: “You give some, you take some.” Because of our developed cognitive and planning abilities, human beings no longer need larger bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Exposing the skin to black light, also known as Wood’s light, can be used to detect bacterial and fungal skin infections as well as irregularities in skin pigmentation. Under a Wood’s lamp, healthy skin glows brightly without shining. It may display white spots when the skin is thick, yellow spots where the skin is greasy, and purple patches where the skin is dry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188087.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">59 Dank Memes and Funny Tweets Fresh From the Vine</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87188598.png" style="width:100%"><br>
 
@@ -1008,7 +652,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">47 Pics to Slaughter Your Boredom</a><br>
+## <a href="#linky13" id="linky12">47 Pics to Slaughter Your Boredom</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187505.jpg" style="width:100%"><br>
 
@@ -1106,7 +750,133 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">22 Handy Guides to Stay Prepared (For Whatever)</a><br>
+## <a href="#linky14" id="linky13">19 Ex-Cons Share Habits They Still Have From Prison</a><br>
+
+<span style="font-size:4em">1. Standing up for myself, even if the other guy is bigger and stronger.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040814/87187565/prisonhabits7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. After you shower you use your hands like a squeegee blade and it removes 75% of the water off you. Now your towel isnt wet at the end, it’s damp.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040731/87187559/prisonhabits1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I eat with my plate tucked between my arms, huddled over it like a trough, shoveling it in as fast as possible.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040837/87187569/prisonhabits11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I can play Spades a bit better now.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040742/87187560/prisonhabits4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Reading. Thats where I figured out how to read for leisure.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040750/87187561/prisonhabits3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Being Patient.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040816/87187566/prisonhabits9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Not reaching over somebodys food.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040753/87187562/prisonhabits5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Ice cubes. Spoon. Soup. Eat it as fast as possible this way. Dont let someone have the chance to take your soup.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040802/87187563/prisonhabits6.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Save every extra sugar packet I come across in case I get hungry between meals.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040826/87187567/prisonhabits10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Answering the telephone. Once a call connects, you would hear them say hello and then a prompt would play letting them know the call is recorded and what not before you then say hello. For about a year people would answer when I called them, and I would wait for the recording to play before responding.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040828/87187568/prisonhabits12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Made a habit of addressing something that could potentially become a problem. Harshly and immediately. Currently trying to drop the harsh part.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040720/87187558/prisonhabits2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My friend would wake up early and do his business in the dark, door wide open, and smoking a cig. Without fail, every morning. Took me a night in county jail to put 2 and 2 together and have my aha moment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040839/87187570/prisonhabits13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Eating fast. Too fast honestly.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040902/87187574/prisonhabits17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My boyfriend washes his clothes in the shower or bathroom sink, sweeps every morning, jumps out of bed as soon as he wakes up, and lives pretty minimally. Hes super fit and works out everyday.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040849/87187571/prisonhabits14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. If a snickers magically appears on my bed one day, you best believe I’ll leave it alone.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040850/87187572/prisonhabits15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My brother had a hard time closing the door to poop. He said it felt weird to poop alone.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040900/87187573/prisonhabits16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My friend spends a few hours everyday in a tool shed in his backyard, the size of a jail cell, fully stocked with a fridge, tv, ac, music, three bongs and a little bed. He said it helps him feel sane and in control.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040912/87187575/prisonhabits18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Friend worked in a bad prison for 10+ years. Said he became immune to s**t talk. Nothing, literally nothing, could piss him off or make him emotional or unbalanced.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040913/87187576/prisonhabits19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My friend’s baby daddy was in jail, apparently learned how to give really good massages. Now owns his own massage therapy clinic and employs like 30 RMT’s.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/040922/87187577/prisonhabits20.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">40 Dirty and Savage Memes for You Degenerates</a><br>
+
+<span style="font-size:4em">1. Ahh the glorious summer is almost here.  Daisy dukes and sun dresses, what more can you ask for? </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021300/87187412/87098214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021311/87187413/87098194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Get it while its hot!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021323/87187414/87100092.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Well I guess he wasnt only thinking about himself!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021333/87187415/87100108.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021344/87187416/87100107.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021344/87187417/87100113.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. I think that is exactly what the means!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021354/87187418/87103439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Wait, is that why they keep calling me the hardest worker in the company?!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021356/87187419/87103441.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021405/87187420/87103448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021407/87187421/87103461.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Its a bit of an art form.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021418/87187422/87107780.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Your sister is #2 on speed dial.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021419/87187423/87108604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021429/87187424/87108610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021430/87187425/87108619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. AKA, meals on wheels.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021440/87187426/87108621.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021442/87187427/87109220.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021452/87187428/87114071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021453/87187429/87114073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021504/87187430/87114075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021515/87187431/87114089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021526/87187432/87114080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021535/87187433/87114077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Oh, its invisible girl...</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021537/87187434/87125959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. That garlic bread does hit on a whole other level.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021547/87187435/87144585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. 100% of the time, it works every time.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021549/87187436/87148115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021559/87187437/87148125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021600/87187438/87148128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021610/87187439/87148132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021612/87187440/87148134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021622/87187441/87148139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021624/87187442/Untitled-1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. Well technically it is working out, but its also not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180097.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">22 Handy Guides to Stay Prepared (For Whatever)</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187599.jpg" style="width:100%"><br>
 
@@ -1151,6 +921,112 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187601.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187602.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">51 Choice Randoms For Your Weekend Enjoyment</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187895.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
