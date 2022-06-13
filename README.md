@@ -1,227 +1,267 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/13/2022-07:11:32
+Last updated: 06/13/2022-08:11:31
 <br>
-## <a href="#linky2" id="linky1">29 Comebacks That Roast Hotter Than Your Grill</a><br>
+## <a href="#linky2" id="linky1">Monday Morning Randomness User Edition - Ohlord</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024109/87188258/commentscomebacks2.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115334/87189445/87188470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024111/87188259/commentscomebacks3.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024120/87188260/commentscomebacks1.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024122/87188261/commentscomebacks4.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115013/87189409/87183235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024131/87188262/commentscomebacks6.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024134/87188263/commentscomebacks5.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024142/87188264/commentscomebacks7.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024146/87188265/commentscomebacks8.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115112/87189420/87184466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024153/87188266/commentscomebacks9.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114909/87189398/87167549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024156/87188267/commentscomebacks10.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024204/87188268/commentscomebacks11.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189029.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024208/87188269/commentscomebacks12.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024215/87188270/commentscomebacks13.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115027/87189412/87183484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024219/87188271/commentscomebacks14.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114952/87189406/87183218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024226/87188272/commentscomebacks15.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024231/87188273/commentscomebacks16.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024237/87188274/commentscomebacks17.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024248/87188276/commentscomebacks19.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024254/87188277/commentscomebacks20.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024259/87188278/commentscomebacks21.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87189043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024306/87188279/commentscomebacks22.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114846/87189396/87167540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024310/87188280/commentscomebacks23.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114857/87189397/87167548.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024317/87188281/commentscomebacks24.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114916/87189399/87167545.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024321/87188282/commentscomebacks25.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114920/87189400/87167558.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024329/87188283/commentscomebacks26.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114928/87189401/87167560.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024332/87188284/commentscomebacks27.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115024/87189411/87183245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024343/87188286/commentscomebacks29.png" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115046/87189415/87183884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024352/87188287/commentscomebacks30.png" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114931/87189402/87167571.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114939/87189403/87167577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115203/87189429/87185397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114942/87189404/87167578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/114951/87189405/87180436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115002/87189407/87183221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115003/87189408/87183222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115016/87189410/87183238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115035/87189413/87183874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115039/87189414/87183876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115050/87189416/87184447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115057/87189417/87184449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115101/87189418/87184451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115108/87189419/87184452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115119/87189421/87184470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115124/87189422/87184471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115130/87189423/87184476.png" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115135/87189424/87184477.png" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115141/87189425/87185371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115147/87189426/87185381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115152/87189427/87185386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115158/87189428/87185387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115209/87189430/87185398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115214/87189431/87185403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115221/87189432/87188356.png" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115226/87189433/87188357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115233/87189434/87188358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115237/87189435/87188362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115244/87189436/87188364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115248/87189437/87188367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115255/87189438/87188371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115259/87189439/87188372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115307/87189440/87188373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115310/87189441/87188438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115318/87189442/87188381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115323/87189443/87188449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115329/87189444/87188444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115340/87189446/87188452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115346/87189447/87188473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115402/87189448/87188471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115405/87189449/87188482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115413/87189450/87189360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115416/87189451/87189361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">71. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115424/87189452/87189364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">72. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115427/87189453/87189365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">73. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115435/87189454/87189368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">74. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115438/87189455/87189369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">75. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115439/87189456/87189370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">76. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115447/87189457/87189371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">77. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115450/87189458/87189375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">78. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115459/87189459/87189379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">79. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/12/115502/87189460/87189380.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 Annoying Things Young People Keep Doing</a><br>
+## <a href="#linky3" id="linky2">47 Pics to Slaughter Your Boredom</a><br>
 
-<span style="font-size:4em">1. “Expect that Im not up to whats going on in the Internet. I was in my late 30s, when a friends son tried to explain me memes. He got them wrong too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185074.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Act like 30+ is old AF. Honestly itll be on you before you know it and youll still feel 25 at 40.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185075.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Took a job working at a Mcdonalds cleaning, as a favour to my mothers manager. Wow are kids brutal when youre my age working in a position like that, you become the punchline to all their funnies as Or youll end up like him! Ive never had a reason to think about folding a kid in half til I had to deal with it 40 hours a week.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185076.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Act like they invented something, or discovered a brand new thing when they have the internet and can look up exactly where and when said thing came from. My roommate told me a young co-worker of hers was dressed in early 2000s fashion and when she told the coworker she had that same outfit in high school the coworker replied, No they just started making this last year. I told her I remember dressing very 80s in my late teens, but I was fully aware that I was copying 80s fashion, and I feel like Gen Z kids dress like its the 90s/2000s but they think its brand new like they invented it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185077.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187507.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I’ve heard 20 year olds say “I hope I die before I have to turn 30.” I wish them the best of luck.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185078.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “The look of astonishment when anyone finds out our age. I’m in my late 30s. When someone in their 20s hears that, they developed this look of shock likes it’s the 1500s and I should have died already from old age.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185079.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187509.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Im 45 and I still play video games. I grew up in the 80s and 90s. Video games is all. So when some kid gets in our party chat (xbox) and starts chewing me out or making fun of me cause Im old and shouldnt be there it ticks me off. Like what are you gonna do when youre 45 kid? Tell the house robot to leave you alone while you play more call of duty vr?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185080.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Kindergarten/primary teacher here. Kids are so wholesome until the parents buy them a phone.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185081.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187511.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Im only 29 but I hate that young people try to exclude us from fandoms, saying were too old for that. Life doesnt just stop at 25 and not all of us want or have kids and partners. Let us enjoy things!!!!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185082.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Act like theyve experienced more than us. Im only 33 but wow, the amount of 16 to 22 year old that talk down to us is absurd.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185083.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I’m 35 and young people seem to be both more sensitive and simultaneously RUDE as heck! I don’t understand, being sensitive should make you more kind :(“</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185084.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Sometimes you make bad decisions and choices. Like we did.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185085.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Call me old when Im only 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185086.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Just being loud in an otherwise quiet place. I take the bus and almost everybody is just quietly looking at their phones or listening to music except for the inevitable kids loudly facetiming or something.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185087.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187517.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Send emails like a text or a dm. Youre contacting me about a problem, and I know that from the fact that youre emailing me. I need you to tell me more than the words I have a problem. Give me some details to work with up front so I dont have to go back and forth with you all day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185088.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Sneering at younger kids or their own peers for being cringe. I promise you that youre as cringy as they are, its just going to take you ten years to realize it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185089.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “This is trades specific. Im 36, and Ive been practicing my trade for 16 years. If youre 18-21 years old and ask me how to do something, then turn around and do the exact opposite of what I suggest, then quit wasting my time. Im here to help you learn, if youre not willing then find somewhere else to be.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185090.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Im 55 and I love playing Fallout. Then when I mention it to my classes (physics teacher)... I get the You play games? exclamation. Yes, Sonny. I am not dead yet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185091.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Think they invented everything. Granted, Im sure I also did this, but its infuriating watching someone who discovered butterfly clips and makes a tutorial on how to wear them . . .”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185092.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Listen to music in public without headphones.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185093.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Oversharing unnecessary drama on social media.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185094.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “If I get asked for advice, give the advice and the outcome of what will happen, then they do it anyway and exactly what I said will happen, happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185095.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Ruin the forest behind my house. They party and leave a mess, they cut down trees, they shit in the middle of the path.They also pull out my garden, every...single... Summer. But they do forget things and for that, I am greatful.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185096.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Using trauma to excuse mistreating people. This generation has pioneered making it acceptable to process and be open about trauma, and thats a great thing, but its not cool when you behave in a cruel and selfish way and expect to get a pass because of it. Your mental health problems are not your fault but they are your responsibility.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185097.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Speak with confidence about shit they dont know about. Especially when it relates to life experience.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185098.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187551.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">51 Choice Randoms For Your Weekend Enjoyment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187895.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">21 Things Most People Don't Know Can F**k You Up</a><br>
+## <a href="#linky4" id="linky3">21 Things Most People Don't Know Can F**k You Up</a><br>
 
 <span style="font-size:4em">1. Hiking at altitude youre not used to.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123928/87188099/messuup4.jpg" style="width:100%"><br>
 
@@ -267,7 +307,7 @@ Last updated: 06/13/2022-07:11:32
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">8 Things Your Body Might Be Hiding From You</a><br>
+## <a href="#linky5" id="linky4">8 Things Your Body Might Be Hiding From You</a><br>
 
 <span style="font-size:4em">1. Whenever a drop in temperature on the palate occurs, the brain jumps into action to prevent freezing to death. In other words, the brain will increase blood pressure in an effort to tell the person to slow down a notch. This condition is called an ice cream headache. And it’s something we should all watch out for during summer days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188088.jpg" style="width:100%"><br>
 
@@ -293,7 +333,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">23 Interesting Images for Fans of Science</a><br>
+## <a href="#linky6" id="linky5">23 Interesting Images for Fans of Science</a><br>
 
 <span style="font-size:4em">1. “I’ve been growing mono ammonium phosphate crystals for the past 3 years. They are truly fascinating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188964.jpg" style="width:100%"><br>
 
@@ -343,7 +383,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Entitled Parents Leave Infant to Fend For Itself in Six Flags Line</a><br>
+## <a href="#linky7" id="linky6">Entitled Parents Leave Infant to Fend For Itself in Six Flags Line</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/045729/87188307/one.jpg" style="width:100%"><br>
 
@@ -359,7 +399,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">54 Kickass Pics and Funny Memes For Your Enjoyment</a><br>
+## <a href="#linky8" id="linky7">54 Kickass Pics and Funny Memes For Your Enjoyment</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87188971.jpg" style="width:100%"><br>
 
@@ -471,7 +511,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">39 Things We All Experience but Never Talk About</a><br>
+## <a href="#linky9" id="linky8">39 Things We All Experience but Never Talk About</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173347.jpg" style="width:100%"><br>
 
@@ -553,7 +593,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">25 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky10" id="linky9">25 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87187691.jpg" style="width:100%"><br>
 
@@ -605,7 +645,335 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">59 Dank Memes and Funny Tweets Fresh From the Vine</a><br>
+## <a href="#linky11" id="linky10">29 Comebacks That Roast Hotter Than Your Grill</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024109/87188258/commentscomebacks2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024111/87188259/commentscomebacks3.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024120/87188260/commentscomebacks1.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024122/87188261/commentscomebacks4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024131/87188262/commentscomebacks6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024134/87188263/commentscomebacks5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024142/87188264/commentscomebacks7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024146/87188265/commentscomebacks8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024153/87188266/commentscomebacks9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024156/87188267/commentscomebacks10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024204/87188268/commentscomebacks11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024208/87188269/commentscomebacks12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024215/87188270/commentscomebacks13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024219/87188271/commentscomebacks14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024226/87188272/commentscomebacks15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024231/87188273/commentscomebacks16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024237/87188274/commentscomebacks17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024248/87188276/commentscomebacks19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024254/87188277/commentscomebacks20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024259/87188278/commentscomebacks21.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024306/87188279/commentscomebacks22.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024310/87188280/commentscomebacks23.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024317/87188281/commentscomebacks24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024321/87188282/commentscomebacks25.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024329/87188283/commentscomebacks26.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024332/87188284/commentscomebacks27.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024343/87188286/commentscomebacks29.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/024352/87188287/commentscomebacks30.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">51 Choice Randoms For Your Weekend Enjoyment</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187895.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">50 Nifty Pics to Enjoy When You're Bored</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032129/87187489/87186999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032139/87187490/87187009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032141/87187491/87187006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032150/87187492/87187015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032152/87187493/87187021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032202/87187494/87187022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032204/87187495/87187024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032214/87187496/87187027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032215/87187497/87187028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032225/87187498/87187029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032227/87187499/87187030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032236/87187500/87187032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032238/87187501/87187037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032247/87187502/87187038.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">25 Annoying Things Young People Keep Doing</a><br>
+
+<span style="font-size:4em">1. “Expect that Im not up to whats going on in the Internet. I was in my late 30s, when a friends son tried to explain me memes. He got them wrong too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Act like 30+ is old AF. Honestly itll be on you before you know it and youll still feel 25 at 40.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Took a job working at a Mcdonalds cleaning, as a favour to my mothers manager. Wow are kids brutal when youre my age working in a position like that, you become the punchline to all their funnies as Or youll end up like him! Ive never had a reason to think about folding a kid in half til I had to deal with it 40 hours a week.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Act like they invented something, or discovered a brand new thing when they have the internet and can look up exactly where and when said thing came from. My roommate told me a young co-worker of hers was dressed in early 2000s fashion and when she told the coworker she had that same outfit in high school the coworker replied, No they just started making this last year. I told her I remember dressing very 80s in my late teens, but I was fully aware that I was copying 80s fashion, and I feel like Gen Z kids dress like its the 90s/2000s but they think its brand new like they invented it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I’ve heard 20 year olds say “I hope I die before I have to turn 30.” I wish them the best of luck.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “The look of astonishment when anyone finds out our age. I’m in my late 30s. When someone in their 20s hears that, they developed this look of shock likes it’s the 1500s and I should have died already from old age.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Im 45 and I still play video games. I grew up in the 80s and 90s. Video games is all. So when some kid gets in our party chat (xbox) and starts chewing me out or making fun of me cause Im old and shouldnt be there it ticks me off. Like what are you gonna do when youre 45 kid? Tell the house robot to leave you alone while you play more call of duty vr?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Kindergarten/primary teacher here. Kids are so wholesome until the parents buy them a phone.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Im only 29 but I hate that young people try to exclude us from fandoms, saying were too old for that. Life doesnt just stop at 25 and not all of us want or have kids and partners. Let us enjoy things!!!!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Act like theyve experienced more than us. Im only 33 but wow, the amount of 16 to 22 year old that talk down to us is absurd.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I’m 35 and young people seem to be both more sensitive and simultaneously RUDE as heck! I don’t understand, being sensitive should make you more kind :(“</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Sometimes you make bad decisions and choices. Like we did.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Call me old when Im only 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Just being loud in an otherwise quiet place. I take the bus and almost everybody is just quietly looking at their phones or listening to music except for the inevitable kids loudly facetiming or something.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Send emails like a text or a dm. Youre contacting me about a problem, and I know that from the fact that youre emailing me. I need you to tell me more than the words I have a problem. Give me some details to work with up front so I dont have to go back and forth with you all day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Sneering at younger kids or their own peers for being cringe. I promise you that youre as cringy as they are, its just going to take you ten years to realize it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “This is trades specific. Im 36, and Ive been practicing my trade for 16 years. If youre 18-21 years old and ask me how to do something, then turn around and do the exact opposite of what I suggest, then quit wasting my time. Im here to help you learn, if youre not willing then find somewhere else to be.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Im 55 and I love playing Fallout. Then when I mention it to my classes (physics teacher)... I get the You play games? exclamation. Yes, Sonny. I am not dead yet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Think they invented everything. Granted, Im sure I also did this, but its infuriating watching someone who discovered butterfly clips and makes a tutorial on how to wear them . . .”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Listen to music in public without headphones.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Oversharing unnecessary drama on social media.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “If I get asked for advice, give the advice and the outcome of what will happen, then they do it anyway and exactly what I said will happen, happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Ruin the forest behind my house. They party and leave a mess, they cut down trees, they shit in the middle of the path.They also pull out my garden, every...single... Summer. But they do forget things and for that, I am greatful.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Using trauma to excuse mistreating people. This generation has pioneered making it acceptable to process and be open about trauma, and thats a great thing, but its not cool when you behave in a cruel and selfish way and expect to get a pass because of it. Your mental health problems are not your fault but they are your responsibility.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Speak with confidence about shit they dont know about. Especially when it relates to life experience.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185098.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">59 Dank Memes and Funny Tweets Fresh From the Vine</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87188598.png" style="width:100%"><br>
 
@@ -727,7 +1095,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">22 Handy Guides to Stay Prepared (For Whatever)</a><br>
+## <a href="#linky16" id="linky15">22 Handy Guides to Stay Prepared (For Whatever)</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187599.jpg" style="width:100%"><br>
 
@@ -772,296 +1140,6 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187601.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187602.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">47 Pics to Slaughter Your Boredom</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87187551.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">50 Nifty Pics to Enjoy When You're Bored</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032129/87187489/87186999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032139/87187490/87187009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032141/87187491/87187006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032150/87187492/87187015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032152/87187493/87187021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032202/87187494/87187022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032204/87187495/87187024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032214/87187496/87187027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032215/87187497/87187028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032225/87187498/87187029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032227/87187499/87187030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032236/87187500/87187032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032238/87187501/87187037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/032247/87187502/87187038.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">40 Dirty and Savage Memes for You Degenerates</a><br>
-
-<span style="font-size:4em">1. Ahh the glorious summer is almost here.  Daisy dukes and sun dresses, what more can you ask for? </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021300/87187412/87098214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021311/87187413/87098194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Get it while its hot!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021323/87187414/87100092.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Well I guess he wasnt only thinking about himself!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021333/87187415/87100108.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021344/87187416/87100107.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021344/87187417/87100113.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. I think that is exactly what the means!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021354/87187418/87103439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Wait, is that why they keep calling me the hardest worker in the company?!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021356/87187419/87103441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021405/87187420/87103448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021407/87187421/87103461.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Its a bit of an art form.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021418/87187422/87107780.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Your sister is #2 on speed dial.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021419/87187423/87108604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021429/87187424/87108610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021430/87187425/87108619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. AKA, meals on wheels.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021440/87187426/87108621.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021442/87187427/87109220.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021452/87187428/87114071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021453/87187429/87114073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021504/87187430/87114075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021515/87187431/87114089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021526/87187432/87114080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021535/87187433/87114077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Oh, its invisible girl...</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021537/87187434/87125959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. That garlic bread does hit on a whole other level.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021547/87187435/87144585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. 100% of the time, it works every time.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021549/87187436/87148115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021559/87187437/87148125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021600/87187438/87148128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021610/87187439/87148132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021612/87187440/87148134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021622/87187441/87148139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021624/87187442/Untitled-1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. Well technically it is working out, but its also not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180097.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
