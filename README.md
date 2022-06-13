@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/13/2022-03:11:32
+Last updated: 06/13/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">25 Fresh Memes of the Dankest Kind</a><br>
 
@@ -53,21 +53,7 @@ Last updated: 06/13/2022-03:11:32
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Wife Prematurely Celebrates Husband’s Vasectomy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188295.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">40 Dirty and Savage Memes for You Degenerates</a><br>
+## <a href="#linky3" id="linky2">40 Dirty and Savage Memes for You Degenerates</a><br>
 
 <span style="font-size:4em">1. Ahh the glorious summer is almost here.  Daisy dukes and sun dresses, what more can you ask for? </span><br><img src="https://cdn.ebaumsworld.com/2022/06/09/021300/87187412/87098214.jpg" style="width:100%"><br>
 
@@ -148,6 +134,20 @@ Last updated: 06/13/2022-03:11:32
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180096.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87180097.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Wife Prematurely Celebrates Husband’s Vasectomy</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87188295.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -249,51 +249,7 @@ Last updated: 06/13/2022-03:11:32
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Dudes Winning on the Internet Will Never Get Old</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110942/87188018/burger.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110934/87188017/apple.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110946/87188023/divorce.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110953/87188045/def.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110958/87188046/down.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111005/87188047/hands.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110930/87188016/badass.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111009/87188048/grad.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111020/87188050/kelce.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111027/87188051/job.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111031/87188052/kid.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111039/87188053/mark.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111016/87188049/john.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111043/87188054/orang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111050/87188055/phub.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111054/87188056/plane.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111100/87188057/reddit.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111106/87188058/self.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111111/87188059/waiter.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111117/87188060/wood.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">25 Annoying Things Young People Keep Doing</a><br>
+## <a href="#linky6" id="linky5">25 Annoying Things Young People Keep Doing</a><br>
 
 <span style="font-size:4em">1. “Expect that Im not up to whats going on in the Internet. I was in my late 30s, when a friends son tried to explain me memes. He got them wrong too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185074.jpg" style="width:100%"><br>
 
@@ -347,55 +303,7 @@ Last updated: 06/13/2022-03:11:32
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">22 Handy Guides to Stay Prepared (For Whatever)</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187581.gif" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187582.gif" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187602.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">59 Dank Memes and Funny Tweets Fresh From the Vine</a><br>
+## <a href="#linky7" id="linky6">59 Dank Memes and Funny Tweets Fresh From the Vine</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87188598.png" style="width:100%"><br>
 
@@ -517,195 +425,51 @@ Last updated: 06/13/2022-03:11:32
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">51 Choice Randoms For Your Weekend Enjoyment</a><br>
+## <a href="#linky8" id="linky7">Dudes Winning on the Internet Will Never Get Old</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187845.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110942/87188018/burger.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187846.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110934/87188017/apple.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187847.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110946/87188023/divorce.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187848.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110953/87188045/def.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187849.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110958/87188046/down.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187850.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111005/87188047/hands.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187851.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/110930/87188016/badass.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187852.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111009/87188048/grad.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187853.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111020/87188050/kelce.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187854.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111027/87188051/job.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187855.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111031/87188052/kid.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187856.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111039/87188053/mark.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187857.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111016/87188049/john.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187858.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111043/87188054/orang.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187859.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111050/87188055/phub.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187860.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111054/87188056/plane.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187861.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111100/87188057/reddit.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187862.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111106/87188058/self.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187863.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111111/87188059/waiter.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187895.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/111117/87188060/wood.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">39 Things We All Experience but Never Talk About</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173369.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173375.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">50 Nifty Pics to Enjoy When You're Bored</a><br>
+## <a href="#linky9" id="linky8">50 Nifty Pics to Enjoy When You're Bored</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87186767.jpg" style="width:100%"><br>
 
@@ -813,83 +577,161 @@ Last updated: 06/13/2022-03:11:32
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">23 Interesting Images for Fans of Science</a><br>
+## <a href="#linky10" id="linky9">22 Handy Guides to Stay Prepared (For Whatever)</a><br>
 
-<span style="font-size:4em">1. “I’ve been growing mono ammonium phosphate crystals for the past 3 years. They are truly fascinating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188964.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “This is how swamped skies — the effect of satellites on the night sky — look.” “The end result is 343 photos (over 85 mins) worth of satellite images blended together.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188943.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Many people don’t know that rubies are fluorescent.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188944.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I made some plant cell earrings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188945.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “PER ASPERA AD ASTRA (’through hardships to the stars’) encoded into peptide tattoo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188946.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187586.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I always wear some clear nail polish that strongly fluoresces. When I’m outside and I see some blue on my thumb, I know the UV index is high and it’s sunscreen time.” “In the photo, I shined a UV flashlight on the nail polish to exaggerate it. In reality, there is a slight blue tint.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188941.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Finished my most ambitious project to this day. I present to you my true to size 3D Atlas Moth.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188947.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “I’ve turned cellular respiration and photosynthesis into necklaces.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188948.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Maple Syrup Chemistry. All the molecules drawn are found in maple syrup.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188949.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187581.gif" style="width:100%"><br>
 
-<span style="font-size:4em">10. This is how chemistry fans dye eggs:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188950.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187582.gif" style="width:100%"><br>
 
-<span style="font-size:4em">11. “My son is obsessed with ants and poison dart frogs, so I made these for his Birthday!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188951.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I just turned 17 today. And I got kidney-themed slippers for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188952.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My boyfriend built me molecule wall art last weekend.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188953.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I and my homie made a dinosaur model for our school’s science exhibition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188954.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I designed and 3D printed a periodic table with electronegativity shown by height!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188955.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “I’ve been working on my most recent stained-glass piece over the past 2 months. It’s one of a kind!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188956.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “I synthesized human insulin into a necklace.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188957.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Made this Dopamine light.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188958.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Quick little project celebrating the reawakening of the forest floor” The Forest Floor is a layer above the soil surface in the forest that consists of shed vegetative parts, such as leaves, branches, bark, and stems, existing in various stages of decomposition. (Bright Side note)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188959.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “I made a blue ring octopus out of clay.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188960.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Bees help to convert sucrose into glucose and fructose, honey. I drew this to represent that!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188961.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “I stitched a Junonia Orithya, also known as a Blue Pansy butterfly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Took my students’ indicator papers from them just to make a little art.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188963.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87187602.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">8 Things Your Body Might Be Hiding From You</a><br>
+## <a href="#linky11" id="linky10">51 Choice Randoms For Your Weekend Enjoyment</a><br>
 
-<span style="font-size:4em">1. Whenever a drop in temperature on the palate occurs, the brain jumps into action to prevent freezing to death. In other words, the brain will increase blood pressure in an effort to tell the person to slow down a notch. This condition is called an ice cream headache. And it’s something we should all watch out for during summer days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188088.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This might sound like a cliché, but stress can literally change the shape of your heart. Takotsubo syndrome is a condition that causes the left ventricle to change shape and fail to pump blood properly. During short-term stress, 2 molecules known to be released during stress and depression can affect the activity of heart muscle cells, leading to a temporary failure. Luckily, managing stress and practicing breathing and meditation techniques cure this condition without the need for medication.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188089.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The human microbiome, also known as the gut environment, is an ecosystem made of various bacteria that have co-evolved with humans to benefit both the host and the bacteria. This bacterium is known to influence human psychology since it contains a profound number of chemicals that are used by our neurons to communicate and regulate mood, like dopamine and serotonin. Speaking of which, 95% of the body’s supply of serotonin is produced in the gut.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188091.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The white matter is the tissue that connects neurons together, making communication possible between the various gray matter regions and between the gray matter and the rest of the body. As we age, our white matter degrades, resulting in symptoms like memory loss and difficulty solving problems.
-
-But research has shown that dancing increases white matter in the brain, which increases cognitive function and keeps the brain in shape. And of course, it’s hard to be unhappy when you’re dancing. So it’s a win-win situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188090.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. As we grow older, our bodies shrink, but our noses and ears keep getting bigger. This happens because our skin starts to lose its elasticity and can’t retain the support that it once could. The nose and ears are no exceptions. These pronominal organs change in size as we age, but not because we’re growing — it’s because of gravity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188094.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. We all have that friend who tells the same story each time with different details. The reason why they do that is that their memory is playing tricks on them. We often think of our brain as a machine that stores and arranges our memories for us, like a camera or a tape recorder.
-
-While in reality, many studies have concluded that memories, even our most cherished ones, are malleable and are fallible. False memories can affect anyone, regardless of whether the memory is trivial or life-changing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188093.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The brain now is smaller than it used to be 3,000 years ago. Before assuming that this is bad news, remember that there is a correlation between the body and brain size. So, as the body grew smaller, so did the brain.
-
-Yuval Noah Harari explained this phenomenon in a great way: “You give some, you take some.” Because of our developed cognitive and planning abilities, human beings no longer need larger bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188092.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Exposing the skin to black light, also known as Wood’s light, can be used to detect bacterial and fungal skin infections as well as irregularities in skin pigmentation. Under a Wood’s lamp, healthy skin glows brightly without shining. It may display white spots when the skin is thick, yellow spots where the skin is greasy, and purple patches where the skin is dry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188087.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87187895.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">21 Things Most People Don't Know Can F**k You Up</a><br>
+## <a href="#linky12" id="linky11">21 Things Most People Don't Know Can F**k You Up</a><br>
 
 <span style="font-size:4em">1. Hiking at altitude youre not used to.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/123928/87188099/messuup4.jpg" style="width:100%"><br>
 
@@ -935,7 +777,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Entitled Parents Leave Infant to Fend For Itself in Six Flags Line</a><br>
+## <a href="#linky13" id="linky12">Entitled Parents Leave Infant to Fend For Itself in Six Flags Line</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/10/045729/87188307/one.jpg" style="width:100%"><br>
 
@@ -951,7 +793,7 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">54 Kickass Pics and Funny Memes For Your Enjoyment</a><br>
+## <a href="#linky14" id="linky13">54 Kickass Pics and Funny Memes For Your Enjoyment</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87188971.jpg" style="width:100%"><br>
 
@@ -1060,6 +902,164 @@ Yuval Noah Harari explained this phenomenon in a great way: “You give some, yo
 <span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/11/042921/87189100/87183714.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/11/042927/87189101/87183715.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">23 Interesting Images for Fans of Science</a><br>
+
+<span style="font-size:4em">1. “I’ve been growing mono ammonium phosphate crystals for the past 3 years. They are truly fascinating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “This is how swamped skies — the effect of satellites on the night sky — look.” “The end result is 343 photos (over 85 mins) worth of satellite images blended together.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Many people don’t know that rubies are fluorescent.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I made some plant cell earrings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “PER ASPERA AD ASTRA (’through hardships to the stars’) encoded into peptide tattoo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I always wear some clear nail polish that strongly fluoresces. When I’m outside and I see some blue on my thumb, I know the UV index is high and it’s sunscreen time.” “In the photo, I shined a UV flashlight on the nail polish to exaggerate it. In reality, there is a slight blue tint.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Finished my most ambitious project to this day. I present to you my true to size 3D Atlas Moth.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I’ve turned cellular respiration and photosynthesis into necklaces.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Maple Syrup Chemistry. All the molecules drawn are found in maple syrup.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This is how chemistry fans dye eggs:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My son is obsessed with ants and poison dart frogs, so I made these for his Birthday!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I just turned 17 today. And I got kidney-themed slippers for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My boyfriend built me molecule wall art last weekend.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I and my homie made a dinosaur model for our school’s science exhibition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I designed and 3D printed a periodic table with electronegativity shown by height!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188955.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I’ve been working on my most recent stained-glass piece over the past 2 months. It’s one of a kind!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I synthesized human insulin into a necklace.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Made this Dopamine light.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Quick little project celebrating the reawakening of the forest floor” The Forest Floor is a layer above the soil surface in the forest that consists of shed vegetative parts, such as leaves, branches, bark, and stems, existing in various stages of decomposition. (Bright Side note)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “I made a blue ring octopus out of clay.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Bees help to convert sucrose into glucose and fructose, honey. I drew this to represent that!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “I stitched a Junonia Orithya, also known as a Blue Pansy butterfly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Took my students’ indicator papers from them just to make a little art.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188963.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">8 Things Your Body Might Be Hiding From You</a><br>
+
+<span style="font-size:4em">1. Whenever a drop in temperature on the palate occurs, the brain jumps into action to prevent freezing to death. In other words, the brain will increase blood pressure in an effort to tell the person to slow down a notch. This condition is called an ice cream headache. And it’s something we should all watch out for during summer days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This might sound like a cliché, but stress can literally change the shape of your heart. Takotsubo syndrome is a condition that causes the left ventricle to change shape and fail to pump blood properly. During short-term stress, 2 molecules known to be released during stress and depression can affect the activity of heart muscle cells, leading to a temporary failure. Luckily, managing stress and practicing breathing and meditation techniques cure this condition without the need for medication.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The human microbiome, also known as the gut environment, is an ecosystem made of various bacteria that have co-evolved with humans to benefit both the host and the bacteria. This bacterium is known to influence human psychology since it contains a profound number of chemicals that are used by our neurons to communicate and regulate mood, like dopamine and serotonin. Speaking of which, 95% of the body’s supply of serotonin is produced in the gut.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The white matter is the tissue that connects neurons together, making communication possible between the various gray matter regions and between the gray matter and the rest of the body. As we age, our white matter degrades, resulting in symptoms like memory loss and difficulty solving problems.
+
+But research has shown that dancing increases white matter in the brain, which increases cognitive function and keeps the brain in shape. And of course, it’s hard to be unhappy when you’re dancing. So it’s a win-win situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. As we grow older, our bodies shrink, but our noses and ears keep getting bigger. This happens because our skin starts to lose its elasticity and can’t retain the support that it once could. The nose and ears are no exceptions. These pronominal organs change in size as we age, but not because we’re growing — it’s because of gravity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. We all have that friend who tells the same story each time with different details. The reason why they do that is that their memory is playing tricks on them. We often think of our brain as a machine that stores and arranges our memories for us, like a camera or a tape recorder.
+
+While in reality, many studies have concluded that memories, even our most cherished ones, are malleable and are fallible. False memories can affect anyone, regardless of whether the memory is trivial or life-changing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The brain now is smaller than it used to be 3,000 years ago. Before assuming that this is bad news, remember that there is a correlation between the body and brain size. So, as the body grew smaller, so did the brain.
+
+Yuval Noah Harari explained this phenomenon in a great way: “You give some, you take some.” Because of our developed cognitive and planning abilities, human beings no longer need larger bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Exposing the skin to black light, also known as Wood’s light, can be used to detect bacterial and fungal skin infections as well as irregularities in skin pigmentation. Under a Wood’s lamp, healthy skin glows brightly without shining. It may display white spots when the skin is thick, yellow spots where the skin is greasy, and purple patches where the skin is dry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188087.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">39 Things We All Experience but Never Talk About</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173369.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87173375.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
