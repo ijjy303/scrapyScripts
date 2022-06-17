@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/17/2022-07:40:58
+Last updated: 06/17/2022-07:47:43
 <br>
 ## <a href="#linky2" id="linky1">23 Stalin Facts Your Teachers Never Told You</a><br>
 
@@ -235,53 +235,59 @@ Last updated: 06/17/2022-07:40:58
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Dark Facts for Cognitive Creeps</a><br>
+## <a href="#linky6" id="linky5">25 Useful But Unknown Websites You Should Know About</a><br>
 
-<span style="font-size:4em">1. “In 2019, there was a document about internet predators. The filmmakers hired three young-looking actresses and let them pose as 12yo girls on social media for 10 days. They received 2458 messages. Only one of them actually wanted to chat, the rest were sexual predators.” - the_mudskipper 
-
-https://www.reddit.com/r/AskReddit/comments/nwbbm3/what_are_some_deeply_unsettling_facts_that_you/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191637.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Tineye and Foto Forensics. Do you want to know if an image is shopped, cropped or otherwise altered? Using these two tools youve got a good chance of finding out. Tineye is reverse image search on steroids and foto forensics provides free image analysis tools.” - jekylphd 
+ 
+https://www.reddit.com/r/AskReddit/comments/q2viki/what_useful_unknown_website_do_you_wish_more/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191716.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Within three days of death, the enzymes from your digestive system begin to digest your body.” - Smidvard_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191638.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “twoseven.xyz -Allows you to watch and sync netflix, prime video, downloaded videos, streaming from browser, youtube with your friends while opting to be on voice/video call with them for FREE and NO ADS.” - Weirdzillaed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191717.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Mutineers on ships were hung by their nails. Or if they did something really bad they would get a rope tied around their neck and dragged under the ship to be killed. The ship was covered in barnacles and other marine life that would cut up the unfortunate man. Its called keelhauling (kielhalen in Dutch) and it combines a bunch of terrible fears of mine. Like drowning and open wounds.” - martijnfromholland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191639.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “https://thispersondoesnotexist.com/, Its an AI that creates faces of made up people. Pretty interesting.” - QualityProof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191718.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “If a hamster manages to get it’s hands on your body if you are dead, it will use chunks of your skin, hair and other stuff to make a nest. Leaving a very bloody and messy scene behind” - Indistrol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191640.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Enjoy cartoons? Please enjoy every cartoon ever made all in one place! https://www.wcofun.com/playlist.” - voivoivoi183</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191719.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “In 1933, a doctor named Carl Tanzler raided the tomb of a female patient with whom hed become obsessed and stole her body. He lived with the corpse for seven years. As the body fell apart, he attached the corpses bones together with wire and coat hangers, and fitted the face with glass eyes. He was only caught when someone saw him dancing with the corpse in front of an open window.” - Platonus44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191642.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Coolors.co, Randomly generates 5 matching colors for you to use for paint jobs or designing” - Particular_Ham</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191720.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “21 year old girl from South Carolina had a psychotic episode after using meth... pulled both of her eyes out and crushed them in her hands because she thought she needed to in order to save the world. I believe people saw it happen.” - Thrwawy819</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191643.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Project Gutenberg. Taking all the books that are copyright free and making digital copies available. In college and the school wants you to buy the complete works of Shakespeare for $40? Fuck that noise! Free! https://www.gutenberg.org/” - GlobalPhreak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191721.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “All whales eventually lose the energy to surface for oxygen, so they basically just sink and drown” - mahindra27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191644.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Deepl.com, Best translator I’ve found. It’s quite intuitive and even translates idioms and slang. They’ve got around 20 languages as of their most recent update.” - sand_pipers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191722.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “After the bombing of Hiroshima, black rain that contained radioactive material fell, and many didnt realize it until it was too late. Also, according to my Japanese professor, they didnt even have a word for the atomic bomb at the time. I unfortunately cant remember what she said they called it instead.” - Flying_Ninja_Bunny</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191645.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “remove.bg is a great way to remove any background.” - browsing-idiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191723.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Paradoxical undressing. it happens during the last stages of hypothermia. as your nerves are damaged, the person removes all of their clothing in freezing temperatures because they feel irrationally hot.” - shadowinc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191646.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “https://www.blitzortung.org/ This one lets you see where lightning strikes in real time! Can be reassuring to see the lightning get further and further away, its also pretty neat in general!” - Nihil921</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191724.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Cadmium poisoning is so horrible the name in Japanese (イタイイタイ病) literally translates to it hurt it hurts. Cadmium poisoning can cause your bones to literally soften; also it can cause kidney/lung disease, chills, muscle aches, hair loss, and fever.” - rando-calrisan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191647.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “ID Ransomware https://id-ransomware.malwarehunterteam.com/, If you ever get Ransomware in your computer you can take a encrypted file and out it into this website and it will tell you if any security researchers have cracked it so you can get your files back. And if it hasnt been cracked you can sign up for email notification so when it is cracked you get an email. I havnt used it but someday it might save me or you.” - ICE0124</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191725.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Tumors can grow teeth” - NoLiferBg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191648.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Terms of Service (https://tosdr.org/), Didn’t Read summarizes terms of service and rates them for privacy.” - Jeramy_Jones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191726.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Veteran criminals in the gulags would recruit naïve prisoners for their escape attempts called cows for the sole purpose of eating them when they ran out of food in the Siberian wilderness.” - Jaquivleon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191649.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I ADORE mynoise.net. Its an archive of customizable sound generators with everything from music, nature sounds, sound cancelling, ambiances, and meditative drones etc. I focus best with some kind of white noise, and this website has a ton to choose from and it is free. My favorite feature is the customizable, animated sliders so you can listen to storms that ebb and grow automatically. It is great for TTRPGs too. The sound engineer who runs it has put together all kinds of specific settings like churches, cities, forests, faires, dungeons, etc. Seriously, people should check it out” - OriginalHeartbreaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191727.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “In the Battle Of Verdun, over a million artillery shells were fired onto a 19 mile wide stretch of land in the first 12 hours. If you were lucky enough to survive until then, the sound alone was enough to drive you insane.” - AldoBooth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191650.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “https://www.rome2rio.com, Gives you full directions from any two places from door to door including trains, busses and ferries. With options to fly to nearby places and take transit to get to your final destination.” - Chaosrayne9000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191728.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “The little girl who voiced Ducky in the Land Before Time movies was murdered by her father when she was 11, in part, because he was jealous of her success.” - Forsaken_Cookies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191651.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “If youre interested in languages or trying to learn a new language I recommend Forvo.com, you can look up a word and hear native speakers pronounce it. Its based on volunteers uploading their recordings of the various words. Its pretty useful for when youre working on your pronounciation, https://forvo.com/word/gnocchi/” - Cunnilingus_Academy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191729.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “The astonishing fatality rates that can be found in so many battles in the First World War weren’t accidents or unfortunate byproducts of the technology - they were factored into the battle plans. By the nature of attritional warfare it was calculated how many men would be lost every week and commanders drew up enough reinforcements to replace them. This was called “Normal Wastage” - Medafets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191653.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “https://storyset.com/ or https://undraw.co/, Open-sourced illustrations by designers who contribute on their spare time ❤️” - beanbagbotatoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191730.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Mortgage means death pledge - GoneInSixtyFrames</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191654.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “https://openlibrary.org/, You can borrow books across a shit ton of different library systems without having to register for them.” - rednoise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191731.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “https://en.m.wikipedia.org/wiki/Mummy_brown Mummy brown is a paint hue partially made up of ground up Egyptian mummies. There are paintings made of dead people.” - Pxireland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191655.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “everynoise.com : This website contains every obscure sub genre of music imaginable. You can find some great music you’ve never heard of there.” - AudiCulprit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191732.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “In extreme cases of scurvy, your scars break down and old wounds re-open. Collagen keeps scars together and that collagen maintains itself throughout our lives. But without vitamin C, that process begins to halt and the collagen breaks down. Eat your fruits and veggies folks.” - Spectre06</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191656.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Also music-map.com : Search an artist/band and it generates a map of similar artists/bands with proximity indicating more fan base crossover. I’ve tested it with the most obscure stuff I know and it always finds suggestions.” - Tor-Pedo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “The worlds most prolific living serial killer is a man called Pedro Lopez. He was convicted of the killing of 110 girls. But he claims he has raped and murdered over 300. His current whereabouts are unknown. https://en.m.wikipedia.org/wiki/Pedro_L%C3%B3pez_(serial_killer)” - DavosLostFingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191657.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “10 minute mail provides a temporary email address for you to cut and paste into those pesky insert email to sign up or read the rest of the story or whatever. https://10minutemail.com/”- FunDivertissement</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191734.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “In the 1800s a LOT of dentures were made using the teeth of dead soldiers.” - SnooDoughnuts3368</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191658.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “http://radio.garden/visit - you can hear radios live from all around the world. (I recommend accessing on computer or installing the app on mobile)” - VRicci92</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191735.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “The symptoms for a heart attack can be a lot milder than what is shown in movies or TV shows. I have seen people coming in with some discomfort and then passing due to a massive infarction when we did the angiogram.” - OneNOnly007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191660.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “https://piracy.moe/ Shows nearly every anime/manga website, torrent and streamable URL on the internet and also shows if they are active have ads and if they are safe to use. With this you will never need to ask yourself, Where am I going to watch/download this anime or read this manga?” - Hiyami</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Terminal lucidity is the return of mental clarity or memory or consciousness shortly before death. This happens to around 10% of people with dementia.” - Final-Procedure-8235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191661.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “Depending on who you are determines if its useful or not, but https://rsoe-edis.org/ is a very informative site of the on-goings of the world. The event map is interesting to explore.” - Cyrussphere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “https://12ft.io/ It bypasses all paywalls and removes all ads from any webpage I have found. Show me a 10ft paywall, I’ll show you a 12ft ladder. No install, just copy and paste your link.” - lllilllillil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “openculture.com Watch free movies! Learn languages! Take educational courses! All for free!” - HolyMolyGawkomole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Oldgamesdownload.com Download and Play the games from the early 90s and 2000s on your Windows machine! I personally Play NFSMW 2005 and Counter Strike. Brings Back lot of memories.” - sweetFLUFFYpanda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191740.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -501,59 +507,53 @@ But when he still refused to leave, the military had to be called in to corral t
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">24 Terrifying Facts That Help Put History into Perspective </a><br>
+## <a href="#linky10" id="linky9">25 Dark Facts for Cognitive Creeps</a><br>
 
-<span style="font-size:4em">1. “The dancing plague of 1518, or dance epidemic of 1518, was a case of dancing mania that occurred in Strasbourg, Alsace (modern-day France), in the Holy Roman Empire from July 1518 to September 1518. Somewhere between 50 and 400 people took to dancing for weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “When the USSR collapsed, multiple nuclear weapons and boxes full of vials of smallpox were lost” - mypenisisveryerect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “A lot of sailors survived the bombing of Pearl Harbor, but were trapped in their sunken ships. There was no way to rescue them. People had to listen helplessly to the men banging on the inside of the hulls for days until they gradually went quiet.” - heatherbyism</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “When the Khmer Rouge was mass killing its citizens bullets were expensive, so when they were slaughtering babies they would grab them by the ankles and bash their heads open on a particular tree. That tree is still there by the way. Its just sitting there with a little sign on it that says baby killing tree. So many people were killed in the fields that when you look down there you see these little white flecks everywhere in the soil, and at some point you realize theyre bone.” - Matt01123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “In Bridgeton, Missouri, near where I live, there is an underground fire through the years slowly nearing nuclear waste that was dumped in the 70s, it was dumped illegally, and would cost hundreds of millions to fix” - freethedamnsel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “During the paraguayan war, paraguay sent 3500 poorly armed children between 9 to 15 yo, wounded soldiers and old men to face brazilian army (20 thousand men), because most of paraguayan combatants were killed. the date of this battle is now childrens day in paraguay.” - anylifeonmars_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Near Mt St Helens, in the Gifford Pinchot National Forest, and before the volcano erupted in 1980, there were areas where you were not allowed off the footpaths. This was because Douglas Firs, which can reach 200ft, were buried in ash in prior eruptions, then rotted away. So you could step on a relatively thin layer of old ash, break through, and fall any number of feet into what amounted to a crevasse or a well.” - quikdogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Agent Orange is nowadays still a viral toxin in Vietnam, still deforming children with parents / grandparents who were exposed to the drops in the 70’s.” - blemip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The radium girls were the women who worked in clock and aviation dial factories, painting the dials with radioactive paint that they applied by licking the brushes to point them. The long term effects of radium ingestion were known by the inventor of the paint, who was also the owner of the largest factory. He eventually died from his own creations in the same horrific ways as the women. Their struggle for justice directly lead to the creation of OSHA.” - Langstarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “In the warsaw ghettos they would pile up body’s of people that might have not even been dead. someone who collapsed could have been tossed to the side and be covered with other bodies, slowly crushing them and suffocating them. until they did actually die.” - Wise_Stock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Dutch Whalers and the like would raid Australian Aboriginal villages and kidnap the women, the would take them off shore and rape them in their rowboat, when the aboriginal men would try and swim out to rescue them they would wait until they reached the boats and hack off their hands with machetes. They would then kill and dump the women and sail away.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “22 Australian nurses where captured on Bangka Island by the Japanese, they where all raped, tortured, and then marched out into the sea and gunned down. Except for one who was allowed to survive. She was later gagged from saying anything and was disbarred from speaking at the Tokyo War Crimes tribunal after world war 2 ended, because the Australian government didnt want to look bad.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “In 1859 the largest known coronal mass ejection from the sun hit earth. If it hit us today, the nations affected would be without power for 6-18 months, most major technologies and infrastructure would be badly degraded, the cost would be upwards of $2trillion and there is every chance of those affected moving toward a social collapse.” - rohankent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Richard Nixon has written a special speech in case Neil Armstrong dies during the moon landing expedition.” - OctogoatYTofficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “During the Polish Operation of the Great Purge, the Soviet NKVD shot 111,091 Poles between August of 1937 and November of 1938. That’s 7,406 Poles every month for 15 months. 246 Poles being shot in the back of the head every single day or 10 Poles being murdered by the Soviets every hour. The vast majority of these Poles were of course, completely innocent of the imaginary crimes the Soviets accused them of.” - PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “During WW2, the Nazis head doctor in Auschwiz did so many inhumane experiments he was named the ‘Angel of Death.’ In his office, he had a wall of eyeballs from everybody he killed in those experiments. The CRAZIEST thing, he was able to escape and ended up living in Brazil, where he died from drowning at a resort.” - Welp_shit02</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “There are cases where the Vatican actively worked to prevent kids orphaned by the Holocaust from being reunited with their remaining families after the war.  - OwnPsychology8943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. ‘In 1945 the USS Indianapolis sank between Guam and the Philippines due to a Japanese submarine. Out of nearly 1200 crew members, only 316 survived. The worst part? Only 300 went down with the ship in the initial event. The other 900 crew members were trapped in the open ocean for four days before they were spotted and rescued. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
+<span style="font-size:4em">1. “In 2019, there was a document about internet predators. The filmmakers hired three young-looking actresses and let them pose as 12yo girls on social media for 10 days. They received 2458 messages. Only one of them actually wanted to chat, the rest were sexual predators.” - the_mudskipper 
 
-That means that around 600 men died due to exposure, dehydration, salt water poisoning and shark attacks by oceanic white tip sharks. We tend to believe that great white sharks, bull sharks, and tiger sharks are responsible for the majority of shark attacks on humans, but oceanic white tip sharks have likely killed far more humans due to ships/planes sinking and the deaths not being recorded as shark attacks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191548.jpg" style="width:100%"><br>
+https://www.reddit.com/r/AskReddit/comments/nwbbm3/what_are_some_deeply_unsettling_facts_that_you/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191637.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-They are known to commonly follow ships and can form big groups when finding food, and are pretty aggressive, but most of their victims are unrecorded in shark bite records since these attacks dont happen close to the shore.” - JulesLovesYou1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191549.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Within three days of death, the enzymes from your digestive system begin to digest your body.” - Smidvard_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191638.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “8% of all Asian men have a particular Y chromosome haplogroup. This equates to 0.5% of the worlds population. It is a very specific male to male chromosome. And occurs everywhere that Gengis Kahn and his descendants conquered. This means that 8% of Asian men can trace their lineage directly back (father to son) to Gengis Kahn. There was a lot of rape.” - newsfromplanetmike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191550.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Mutineers on ships were hung by their nails. Or if they did something really bad they would get a rope tied around their neck and dragged under the ship to be killed. The ship was covered in barnacles and other marine life that would cut up the unfortunate man. Its called keelhauling (kielhalen in Dutch) and it combines a bunch of terrible fears of mine. Like drowning and open wounds.” - martijnfromholland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191639.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “King Leopold and his colony in, what is now, the Congo. It was brutal. Ante Pavelic and the crimes of the Ustaše during WWII. Brutal enough that he was asked to tone it down by his Nazi Allies. He was protected by the Papacy during the war.” - Drulock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191551.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “If a hamster manages to get it’s hands on your body if you are dead, it will use chunks of your skin, hair and other stuff to make a nest. Leaving a very bloody and messy scene behind” - Indistrol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “George Washington never got to know that dinosaurs existed.” - WatchTheBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191552.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “In 1933, a doctor named Carl Tanzler raided the tomb of a female patient with whom hed become obsessed and stole her body. He lived with the corpse for seven years. As the body fell apart, he attached the corpses bones together with wire and coat hangers, and fitted the face with glass eyes. He was only caught when someone saw him dancing with the corpse in front of an open window.” - Platonus44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “The Childrens Crusade around 1200 started in France and Germany. They were convinced that God would allow them to take Jerusalem and convert the Muslims to Christianity. Somewhere in the neighborhood of 30000 set out for the Mediterranean Sea, which they believed God would part for them and allow them to walk to Jerusalem. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191553.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “21 year old girl from South Carolina had a psychotic episode after using meth... pulled both of her eyes out and crushed them in her hands because she thought she needed to in order to save the world. I believe people saw it happen.” - Thrwawy819</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “All whales eventually lose the energy to surface for oxygen, so they basically just sink and drown” - mahindra27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “After the bombing of Hiroshima, black rain that contained radioactive material fell, and many didnt realize it until it was too late. Also, according to my Japanese professor, they didnt even have a word for the atomic bomb at the time. I unfortunately cant remember what she said they called it instead.” - Flying_Ninja_Bunny</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Paradoxical undressing. it happens during the last stages of hypothermia. as your nerves are damaged, the person removes all of their clothing in freezing temperatures because they feel irrationally hot.” - shadowinc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Cadmium poisoning is so horrible the name in Japanese (イタイイタイ病) literally translates to it hurt it hurts. Cadmium poisoning can cause your bones to literally soften; also it can cause kidney/lung disease, chills, muscle aches, hair loss, and fever.” - rando-calrisan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Tumors can grow teeth” - NoLiferBg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Veteran criminals in the gulags would recruit naïve prisoners for their escape attempts called cows for the sole purpose of eating them when they ran out of food in the Siberian wilderness.” - Jaquivleon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “In the Battle Of Verdun, over a million artillery shells were fired onto a 19 mile wide stretch of land in the first 12 hours. If you were lucky enough to survive until then, the sound alone was enough to drive you insane.” - AldoBooth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “The little girl who voiced Ducky in the Land Before Time movies was murdered by her father when she was 11, in part, because he was jealous of her success.” - Forsaken_Cookies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “The astonishing fatality rates that can be found in so many battles in the First World War weren’t accidents or unfortunate byproducts of the technology - they were factored into the battle plans. By the nature of attritional warfare it was calculated how many men would be lost every week and commanders drew up enough reinforcements to replace them. This was called “Normal Wastage” - Medafets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Mortgage means death pledge - GoneInSixtyFrames</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “https://en.m.wikipedia.org/wiki/Mummy_brown Mummy brown is a paint hue partially made up of ground up Egyptian mummies. There are paintings made of dead people.” - Pxireland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “In extreme cases of scurvy, your scars break down and old wounds re-open. Collagen keeps scars together and that collagen maintains itself throughout our lives. But without vitamin C, that process begins to halt and the collagen breaks down. Eat your fruits and veggies folks.” - Spectre06</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “The worlds most prolific living serial killer is a man called Pedro Lopez. He was convicted of the killing of 110 girls. But he claims he has raped and murdered over 300. His current whereabouts are unknown. https://en.m.wikipedia.org/wiki/Pedro_L%C3%B3pez_(serial_killer)” - DavosLostFingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “In the 1800s a LOT of dentures were made using the teeth of dead soldiers.” - SnooDoughnuts3368</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “The symptoms for a heart attack can be a lot milder than what is shown in movies or TV shows. I have seen people coming in with some discomfort and then passing due to a massive infarction when we did the angiogram.” - OneNOnly007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Terminal lucidity is the return of mental clarity or memory or consciousness shortly before death. This happens to around 10% of people with dementia.” - Final-Procedure-8235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191661.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -625,41 +625,7 @@ They are known to commonly follow ships and can form big groups when finding foo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">15 Servants Reveal Rich People's Secrets</a><br>
-
-<span style="font-size:4em">1. “My grandfather died with a 20 million dollar portfolio. He lived in a 1 bedroom condo that was build in the 50s, drove a rusted out honda, and his entire wardrobe came from Walmart and was 10 years old. At his will reading, a bunch of distant relatives showed up hoping to get a piece. In his will, he made fun of all of them, then spent 10 pages detailing how and where he wanted all of his money donated to specific charities and foundations. Some of it was even really surprising, as nobody besides him was aware that he casually owned 160 acres of land in Vermont that was just forest. The land was donated to a land trust, and turned into hiking trails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “I briefly worked with one of the top Saudi Arabian crown princes in the 80’s. He would buy out the top three floors of the best hotels (Four Seasons etc); two floors were for maids/help/security, top floor was for the Royal family… once it was only the prince and his three wives. Crazy stuff.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I used to work for a billionaire Russian family as a tutor for their daughter. One day we’re in her room studying and suddenly she yells “daddy’s home!” and runs to the window. She’d heard a helicopter and knew is was about to land on the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My dads client bought a whole block of houses to build theirs. It is so wide that they installed a moving walkway like the ones at airports.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Worked graveyards as a valet at an ultra luxury boutique hotel. Its quite shocking how some of these people live and youd never have a clue by just looking at them on the street. One weekday night I was asked at 2am by a guest to bring around his Bentley. Regular looking dude came out with a backpack, got in and left. Not 30 min later the same dude pulls up in a Ferrari and now has a briefcase instead of backpack. Skip ahead an hour and the same guy orders 5 shot glasses to his room. I go up and its 2 guys in robes and 2 naked ladies on the couch. They have lines of coke and booze on the coffee table. They tip me 50 for the shot glasses and I leave. 2 hours later, just as the sun was rising, the two guys come out together in suits looking like they were heading to the office. The ladies left shortly after. Obviously drugs and escorts were nothing new but the car swap middle of the night was a bit strange.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “I am an art student working as a gardener. We work in one of the wealthiest areas in my country. Some customers are really eager to show me their collection of artworks that they have hanging on their walls once they find out that I study it. I remember one time standing in a bathroom, with my dirty gardening clothes and there was a Picasso above the toilet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “A friend from high school worked a few years as a deck hand on yachts in the Mediterranean and he said he once jumped in to get a customers bag and got tipped €4000. He also observed actual bricks of coke brought onto P Diddys yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “My dad works in shipping and has a lot of friends who have worked on super yachts. In the 90s one of his mates got a call up to bring the yacht of a particular Australian media tycoon billionaire (not that one) from Sydney to New York, with instructions to be anchored in a particular bay at an exact time with a lunch spread for 50 people ready. So they got there and set up the food. The guy never showed up. Turns out he was having a rich dude party in a building overlooking the harbour and wanted to be able to point down and say “that’s my boat”. He wanted the lunch just in case he decided to take his rich friends down to his yacht, but he didn’t feel like it that day, so all the food got wasted and they sailed back to Aus without seeing him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Worked at a resruraunt where a few of the regulars were the children of billionaires. I told my parents that my tuition costs $500,000 - a student (from china, in america) i overheard after being asked how she has so much money. Another time i was serving a table i was asked to bring a tray of sixty patron shots ($600, for a 19 year old student) i must have had an incredulous look on my face because his only response to assuage my concern was my father owns diamond mines in Africa.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “I went to a New England prep school for high school on a full ride sports scholarship. There were a decent amount of foreign national students - mainly from Asia, that came from EXTREMELY wealthy families. One of those students parents bought him a brand new BMW 5 series - fully loaded, when he got his license our Junior year. When we graduated a year later, he was going back to Korea and obviously couldn’t take the car, so he gave it to his best friend…kid got an $80k car at 17 years old, just for being good friends with the right guy! I’ll never forget that.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “A friend did some work on Sylvester Stallones home. Apparently theres a ton of statues and art of himself, some of which are naked and very well endowed”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “This was ages ago, I worked in a DVD store a woman came in with five A4 pages (double sided) of movie titles and just asked me to fetch what we had. I ran about and collected DVDs and Blu-rays close to 1k worth. I asked what they were for - she was a PA for a billionaire and getting them for his yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “A woman who owned a small private jet business told me one time someone paid them to fly their dog (by itself) to NY for about $45,000 for some training. No other passengers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I became personal friends with my boss and his wife; super nice people. The wife turned out to be an heiress and would buy me whatever I mentioned, like in passing during a conversation. I learned gifts were how she was raised to show love. I’ve trained myself to only talk about things I already own, unless I find something useful she might like and suggest it for her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Have been working for the super rich for sometime. Craziest thing Ive seen - brand new 90 metre multimillion pound (GBP) yacht was built in Netherlands. Maiden voyage to Antibes in France. Owner came onboard and left after a few hours. Next week we get sent to Genoa Italy, where all the bathrooms onboard were ripped out and upgraded. That doesnt sound like a big deal but Im talking about brand new marble sinks, showers, floors and lobbies all crowbarred out chucked in skips. Tonnes of brand new polished marble binned. New marble colours and patterns arrived in the weeks following. Theres feed me money, theres f- you money and theres its not even a thought money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191682.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Normal Things That Look SUS At Night</a><br>
+## <a href="#linky12" id="linky11">25 Normal Things That Look SUS At Night</a><br>
 
 <span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
 
@@ -713,7 +679,209 @@ They are known to commonly follow ships and can form big groups when finding foo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">51 Pics Where The Timing Couldn't Be any Better</a><br>
+## <a href="#linky13" id="linky12">24 Terrifying Facts That Help Put History into Perspective </a><br>
+
+<span style="font-size:4em">1. “The dancing plague of 1518, or dance epidemic of 1518, was a case of dancing mania that occurred in Strasbourg, Alsace (modern-day France), in the Holy Roman Empire from July 1518 to September 1518. Somewhere between 50 and 400 people took to dancing for weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “When the USSR collapsed, multiple nuclear weapons and boxes full of vials of smallpox were lost” - mypenisisveryerect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “A lot of sailors survived the bombing of Pearl Harbor, but were trapped in their sunken ships. There was no way to rescue them. People had to listen helplessly to the men banging on the inside of the hulls for days until they gradually went quiet.” - heatherbyism</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “When the Khmer Rouge was mass killing its citizens bullets were expensive, so when they were slaughtering babies they would grab them by the ankles and bash their heads open on a particular tree. That tree is still there by the way. Its just sitting there with a little sign on it that says baby killing tree. So many people were killed in the fields that when you look down there you see these little white flecks everywhere in the soil, and at some point you realize theyre bone.” - Matt01123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “In Bridgeton, Missouri, near where I live, there is an underground fire through the years slowly nearing nuclear waste that was dumped in the 70s, it was dumped illegally, and would cost hundreds of millions to fix” - freethedamnsel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “During the paraguayan war, paraguay sent 3500 poorly armed children between 9 to 15 yo, wounded soldiers and old men to face brazilian army (20 thousand men), because most of paraguayan combatants were killed. the date of this battle is now childrens day in paraguay.” - anylifeonmars_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Near Mt St Helens, in the Gifford Pinchot National Forest, and before the volcano erupted in 1980, there were areas where you were not allowed off the footpaths. This was because Douglas Firs, which can reach 200ft, were buried in ash in prior eruptions, then rotted away. So you could step on a relatively thin layer of old ash, break through, and fall any number of feet into what amounted to a crevasse or a well.” - quikdogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Agent Orange is nowadays still a viral toxin in Vietnam, still deforming children with parents / grandparents who were exposed to the drops in the 70’s.” - blemip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The radium girls were the women who worked in clock and aviation dial factories, painting the dials with radioactive paint that they applied by licking the brushes to point them. The long term effects of radium ingestion were known by the inventor of the paint, who was also the owner of the largest factory. He eventually died from his own creations in the same horrific ways as the women. Their struggle for justice directly lead to the creation of OSHA.” - Langstarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “In the warsaw ghettos they would pile up body’s of people that might have not even been dead. someone who collapsed could have been tossed to the side and be covered with other bodies, slowly crushing them and suffocating them. until they did actually die.” - Wise_Stock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Dutch Whalers and the like would raid Australian Aboriginal villages and kidnap the women, the would take them off shore and rape them in their rowboat, when the aboriginal men would try and swim out to rescue them they would wait until they reached the boats and hack off their hands with machetes. They would then kill and dump the women and sail away.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “22 Australian nurses where captured on Bangka Island by the Japanese, they where all raped, tortured, and then marched out into the sea and gunned down. Except for one who was allowed to survive. She was later gagged from saying anything and was disbarred from speaking at the Tokyo War Crimes tribunal after world war 2 ended, because the Australian government didnt want to look bad.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “In 1859 the largest known coronal mass ejection from the sun hit earth. If it hit us today, the nations affected would be without power for 6-18 months, most major technologies and infrastructure would be badly degraded, the cost would be upwards of $2trillion and there is every chance of those affected moving toward a social collapse.” - rohankent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Richard Nixon has written a special speech in case Neil Armstrong dies during the moon landing expedition.” - OctogoatYTofficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “During the Polish Operation of the Great Purge, the Soviet NKVD shot 111,091 Poles between August of 1937 and November of 1938. That’s 7,406 Poles every month for 15 months. 246 Poles being shot in the back of the head every single day or 10 Poles being murdered by the Soviets every hour. The vast majority of these Poles were of course, completely innocent of the imaginary crimes the Soviets accused them of.” - PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “During WW2, the Nazis head doctor in Auschwiz did so many inhumane experiments he was named the ‘Angel of Death.’ In his office, he had a wall of eyeballs from everybody he killed in those experiments. The CRAZIEST thing, he was able to escape and ended up living in Brazil, where he died from drowning at a resort.” - Welp_shit02</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “There are cases where the Vatican actively worked to prevent kids orphaned by the Holocaust from being reunited with their remaining families after the war.  - OwnPsychology8943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. ‘In 1945 the USS Indianapolis sank between Guam and the Philippines due to a Japanese submarine. Out of nearly 1200 crew members, only 316 survived. The worst part? Only 300 went down with the ship in the initial event. The other 900 crew members were trapped in the open ocean for four days before they were spotted and rescued. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+That means that around 600 men died due to exposure, dehydration, salt water poisoning and shark attacks by oceanic white tip sharks. We tend to believe that great white sharks, bull sharks, and tiger sharks are responsible for the majority of shark attacks on humans, but oceanic white tip sharks have likely killed far more humans due to ships/planes sinking and the deaths not being recorded as shark attacks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+They are known to commonly follow ships and can form big groups when finding food, and are pretty aggressive, but most of their victims are unrecorded in shark bite records since these attacks dont happen close to the shore.” - JulesLovesYou1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “8% of all Asian men have a particular Y chromosome haplogroup. This equates to 0.5% of the worlds population. It is a very specific male to male chromosome. And occurs everywhere that Gengis Kahn and his descendants conquered. This means that 8% of Asian men can trace their lineage directly back (father to son) to Gengis Kahn. There was a lot of rape.” - newsfromplanetmike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “King Leopold and his colony in, what is now, the Congo. It was brutal. Ante Pavelic and the crimes of the Ustaše during WWII. Brutal enough that he was asked to tone it down by his Nazi Allies. He was protected by the Papacy during the war.” - Drulock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “George Washington never got to know that dinosaurs existed.” - WatchTheBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The Childrens Crusade around 1200 started in France and Germany. They were convinced that God would allow them to take Jerusalem and convert the Muslims to Christianity. Somewhere in the neighborhood of 30000 set out for the Mediterranean Sea, which they believed God would part for them and allow them to walk to Jerusalem. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191553.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Entitled Boss Fired after Losing Company over $200K</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101857/87192662/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/102419/87192668/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101921/87192665/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101908/87192663/four.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">18 Skills That Are Easier To Learn Than You Think</a><br>
+
+<span style="font-size:4em">1. “Im left handed and and I wanted to learn to write with my right hand it was much easier than I thought and now I can write with it making it look somewhat decent.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Fixing computers. Its just a lot of googling and YouTubing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Picking a lock. It only takes about 1 or 2 hours to learn, contrary to popular belief.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Pissing in the urinal and not on the wall, floor, or shoes of the unfortunate bastard next to you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Crocheting! It looked really difficult to me but I was really pleased how easy it was to pick up. Especially with YouTube tutorials.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Flying a small airplane is actually very simple. Its everything else like weather and flight planning, emergency mindfulness, airspace and traffic, and confidence in yourself that gets tricky, but any person with eyeballs and a pulse could fly a plane.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “parallel parking.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Unicycling. It takes just 10-20 minutes a day for 3-10 days. Find a railing you can lean on to start. At some point, youll be able to let go and ride!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Basic IT troubleshooting”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Driving a stick shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Using your off hand skillfully. I worked on this when I owned a woodworking business and it has helped so many times over the years.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Working out in the gym. Lots of machines, lots of weights, but almost all of them are easy to use, and the hardest part of going to the gym is going consistently”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Cooking - once you understand the instructions and how the stove/oven works it’s simple.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Solving a rubix cube, all you have to do is look on YouTube”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Meditation. IF you pick the right resources and dont go down the new age rabbit hole.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Reading Korean phonetically. What the words mean is something else entirely, but with about half an hour of learning you could turn those symbols into sounds; a fraction of Korean is also made up of loanwords so it may actually be additionally helpful.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Drawing. People think you have to have inherent talent. You do not. You can learn how to process shape, line, and light differently and put it on paper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Juggling. You can probably learn it in an hour, two hours max.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191508.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">30 Impressing and Amazing Transformations </a><br>
+
+<span style="font-size:4em">1. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Why was I taking a picture in the bathroom at 534 lb? Because the shirt actually fit. I was shocked.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125517/87192127/87028439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “A ring i made out of a silver Nevada quarter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Before and after restoration: 1978 Ruger Security Six .357 rescue. Not sure how this gun got so jacked up, but I just had to get her back into working shape. I am in love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125217/87192124/86342857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125744/87192129/87030806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125733/87192128/87030796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Cable management</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Weight loss transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Tattoo cover up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Cleaning off a few years’ worth of gunk from our family’s 40-foot trawler”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hair salon transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Photo restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Landscaping transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “26 months – words can’t really describe the quality of life improvement this progress has had on me”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Headlight restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Before and after adoption</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “4 years after recovering from near death and a traumatic brain injury, I’m finally able to train and feeling better than ever!”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125225/87192125/86342867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191218.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">15 Servants Reveal Rich People's Secrets</a><br>
+
+<span style="font-size:4em">1. “My grandfather died with a 20 million dollar portfolio. He lived in a 1 bedroom condo that was build in the 50s, drove a rusted out honda, and his entire wardrobe came from Walmart and was 10 years old. At his will reading, a bunch of distant relatives showed up hoping to get a piece. In his will, he made fun of all of them, then spent 10 pages detailing how and where he wanted all of his money donated to specific charities and foundations. Some of it was even really surprising, as nobody besides him was aware that he casually owned 160 acres of land in Vermont that was just forest. The land was donated to a land trust, and turned into hiking trails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I briefly worked with one of the top Saudi Arabian crown princes in the 80’s. He would buy out the top three floors of the best hotels (Four Seasons etc); two floors were for maids/help/security, top floor was for the Royal family… once it was only the prince and his three wives. Crazy stuff.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I used to work for a billionaire Russian family as a tutor for their daughter. One day we’re in her room studying and suddenly she yells “daddy’s home!” and runs to the window. She’d heard a helicopter and knew is was about to land on the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My dads client bought a whole block of houses to build theirs. It is so wide that they installed a moving walkway like the ones at airports.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Worked graveyards as a valet at an ultra luxury boutique hotel. Its quite shocking how some of these people live and youd never have a clue by just looking at them on the street. One weekday night I was asked at 2am by a guest to bring around his Bentley. Regular looking dude came out with a backpack, got in and left. Not 30 min later the same dude pulls up in a Ferrari and now has a briefcase instead of backpack. Skip ahead an hour and the same guy orders 5 shot glasses to his room. I go up and its 2 guys in robes and 2 naked ladies on the couch. They have lines of coke and booze on the coffee table. They tip me 50 for the shot glasses and I leave. 2 hours later, just as the sun was rising, the two guys come out together in suits looking like they were heading to the office. The ladies left shortly after. Obviously drugs and escorts were nothing new but the car swap middle of the night was a bit strange.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I am an art student working as a gardener. We work in one of the wealthiest areas in my country. Some customers are really eager to show me their collection of artworks that they have hanging on their walls once they find out that I study it. I remember one time standing in a bathroom, with my dirty gardening clothes and there was a Picasso above the toilet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “A friend from high school worked a few years as a deck hand on yachts in the Mediterranean and he said he once jumped in to get a customers bag and got tipped €4000. He also observed actual bricks of coke brought onto P Diddys yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “My dad works in shipping and has a lot of friends who have worked on super yachts. In the 90s one of his mates got a call up to bring the yacht of a particular Australian media tycoon billionaire (not that one) from Sydney to New York, with instructions to be anchored in a particular bay at an exact time with a lunch spread for 50 people ready. So they got there and set up the food. The guy never showed up. Turns out he was having a rich dude party in a building overlooking the harbour and wanted to be able to point down and say “that’s my boat”. He wanted the lunch just in case he decided to take his rich friends down to his yacht, but he didn’t feel like it that day, so all the food got wasted and they sailed back to Aus without seeing him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Worked at a resruraunt where a few of the regulars were the children of billionaires. I told my parents that my tuition costs $500,000 - a student (from china, in america) i overheard after being asked how she has so much money. Another time i was serving a table i was asked to bring a tray of sixty patron shots ($600, for a 19 year old student) i must have had an incredulous look on my face because his only response to assuage my concern was my father owns diamond mines in Africa.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I went to a New England prep school for high school on a full ride sports scholarship. There were a decent amount of foreign national students - mainly from Asia, that came from EXTREMELY wealthy families. One of those students parents bought him a brand new BMW 5 series - fully loaded, when he got his license our Junior year. When we graduated a year later, he was going back to Korea and obviously couldn’t take the car, so he gave it to his best friend…kid got an $80k car at 17 years old, just for being good friends with the right guy! I’ll never forget that.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A friend did some work on Sylvester Stallones home. Apparently theres a ton of statues and art of himself, some of which are naked and very well endowed”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “This was ages ago, I worked in a DVD store a woman came in with five A4 pages (double sided) of movie titles and just asked me to fetch what we had. I ran about and collected DVDs and Blu-rays close to 1k worth. I asked what they were for - she was a PA for a billionaire and getting them for his yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “A woman who owned a small private jet business told me one time someone paid them to fly their dog (by itself) to NY for about $45,000 for some training. No other passengers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I became personal friends with my boss and his wife; super nice people. The wife turned out to be an heiress and would buy me whatever I mentioned, like in passing during a conversation. I learned gifts were how she was raised to show love. I’ve trained myself to only talk about things I already own, unless I find something useful she might like and suggest it for her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Have been working for the super rich for sometime. Craziest thing Ive seen - brand new 90 metre multimillion pound (GBP) yacht was built in Netherlands. Maiden voyage to Antibes in France. Owner came onboard and left after a few hours. Next week we get sent to Genoa Italy, where all the bathrooms onboard were ripped out and upgraded. That doesnt sound like a big deal but Im talking about brand new marble sinks, showers, floors and lobbies all crowbarred out chucked in skips. Tonnes of brand new polished marble binned. New marble colours and patterns arrived in the weeks following. Theres feed me money, theres f- you money and theres its not even a thought money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191682.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">51 Pics Where The Timing Couldn't Be any Better</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034106/87192194/83046654.jpg" style="width:100%"><br>
 
@@ -816,174 +984,6 @@ They are known to commonly follow ships and can form big groups when finding foo
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181673.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181674.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">18 Skills That Are Easier To Learn Than You Think</a><br>
-
-<span style="font-size:4em">1. “Im left handed and and I wanted to learn to write with my right hand it was much easier than I thought and now I can write with it making it look somewhat decent.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Fixing computers. Its just a lot of googling and YouTubing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Picking a lock. It only takes about 1 or 2 hours to learn, contrary to popular belief.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Pissing in the urinal and not on the wall, floor, or shoes of the unfortunate bastard next to you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Crocheting! It looked really difficult to me but I was really pleased how easy it was to pick up. Especially with YouTube tutorials.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Flying a small airplane is actually very simple. Its everything else like weather and flight planning, emergency mindfulness, airspace and traffic, and confidence in yourself that gets tricky, but any person with eyeballs and a pulse could fly a plane.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “parallel parking.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Unicycling. It takes just 10-20 minutes a day for 3-10 days. Find a railing you can lean on to start. At some point, youll be able to let go and ride!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Basic IT troubleshooting”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Driving a stick shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Using your off hand skillfully. I worked on this when I owned a woodworking business and it has helped so many times over the years.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Working out in the gym. Lots of machines, lots of weights, but almost all of them are easy to use, and the hardest part of going to the gym is going consistently”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Cooking - once you understand the instructions and how the stove/oven works it’s simple.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Solving a rubix cube, all you have to do is look on YouTube”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Meditation. IF you pick the right resources and dont go down the new age rabbit hole.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Reading Korean phonetically. What the words mean is something else entirely, but with about half an hour of learning you could turn those symbols into sounds; a fraction of Korean is also made up of loanwords so it may actually be additionally helpful.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Drawing. People think you have to have inherent talent. You do not. You can learn how to process shape, line, and light differently and put it on paper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Juggling. You can probably learn it in an hour, two hours max.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191508.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">25 Useful But Unknown Websites You Should Know About</a><br>
-
-<span style="font-size:4em">1. “Tineye and Foto Forensics. Do you want to know if an image is shopped, cropped or otherwise altered? Using these two tools youve got a good chance of finding out. Tineye is reverse image search on steroids and foto forensics provides free image analysis tools.” - jekylphd 
- 
-https://www.reddit.com/r/AskReddit/comments/q2viki/what_useful_unknown_website_do_you_wish_more/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “twoseven.xyz -Allows you to watch and sync netflix, prime video, downloaded videos, streaming from browser, youtube with your friends while opting to be on voice/video call with them for FREE and NO ADS.” - Weirdzillaed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “https://thispersondoesnotexist.com/, Its an AI that creates faces of made up people. Pretty interesting.” - QualityProof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Enjoy cartoons? Please enjoy every cartoon ever made all in one place! https://www.wcofun.com/playlist.” - voivoivoi183</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Coolors.co, Randomly generates 5 matching colors for you to use for paint jobs or designing” - Particular_Ham</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Project Gutenberg. Taking all the books that are copyright free and making digital copies available. In college and the school wants you to buy the complete works of Shakespeare for $40? Fuck that noise! Free! https://www.gutenberg.org/” - GlobalPhreak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Deepl.com, Best translator I’ve found. It’s quite intuitive and even translates idioms and slang. They’ve got around 20 languages as of their most recent update.” - sand_pipers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “remove.bg is a great way to remove any background.” - browsing-idiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “https://www.blitzortung.org/ This one lets you see where lightning strikes in real time! Can be reassuring to see the lightning get further and further away, its also pretty neat in general!” - Nihil921</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “ID Ransomware https://id-ransomware.malwarehunterteam.com/, If you ever get Ransomware in your computer you can take a encrypted file and out it into this website and it will tell you if any security researchers have cracked it so you can get your files back. And if it hasnt been cracked you can sign up for email notification so when it is cracked you get an email. I havnt used it but someday it might save me or you.” - ICE0124</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Terms of Service (https://tosdr.org/), Didn’t Read summarizes terms of service and rates them for privacy.” - Jeramy_Jones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I ADORE mynoise.net. Its an archive of customizable sound generators with everything from music, nature sounds, sound cancelling, ambiances, and meditative drones etc. I focus best with some kind of white noise, and this website has a ton to choose from and it is free. My favorite feature is the customizable, animated sliders so you can listen to storms that ebb and grow automatically. It is great for TTRPGs too. The sound engineer who runs it has put together all kinds of specific settings like churches, cities, forests, faires, dungeons, etc. Seriously, people should check it out” - OriginalHeartbreaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “https://www.rome2rio.com, Gives you full directions from any two places from door to door including trains, busses and ferries. With options to fly to nearby places and take transit to get to your final destination.” - Chaosrayne9000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “If youre interested in languages or trying to learn a new language I recommend Forvo.com, you can look up a word and hear native speakers pronounce it. Its based on volunteers uploading their recordings of the various words. Its pretty useful for when youre working on your pronounciation, https://forvo.com/word/gnocchi/” - Cunnilingus_Academy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “https://storyset.com/ or https://undraw.co/, Open-sourced illustrations by designers who contribute on their spare time ❤️” - beanbagbotatoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “https://openlibrary.org/, You can borrow books across a shit ton of different library systems without having to register for them.” - rednoise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “everynoise.com : This website contains every obscure sub genre of music imaginable. You can find some great music you’ve never heard of there.” - AudiCulprit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Also music-map.com : Search an artist/band and it generates a map of similar artists/bands with proximity indicating more fan base crossover. I’ve tested it with the most obscure stuff I know and it always finds suggestions.” - Tor-Pedo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “10 minute mail provides a temporary email address for you to cut and paste into those pesky insert email to sign up or read the rest of the story or whatever. https://10minutemail.com/”- FunDivertissement</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “http://radio.garden/visit - you can hear radios live from all around the world. (I recommend accessing on computer or installing the app on mobile)” - VRicci92</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “https://piracy.moe/ Shows nearly every anime/manga website, torrent and streamable URL on the internet and also shows if they are active have ads and if they are safe to use. With this you will never need to ask yourself, Where am I going to watch/download this anime or read this manga?” - Hiyami</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Depending on who you are determines if its useful or not, but https://rsoe-edis.org/ is a very informative site of the on-goings of the world. The event map is interesting to explore.” - Cyrussphere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “https://12ft.io/ It bypasses all paywalls and removes all ads from any webpage I have found. Show me a 10ft paywall, I’ll show you a 12ft ladder. No install, just copy and paste your link.” - lllilllillil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “openculture.com Watch free movies! Learn languages! Take educational courses! All for free!” - HolyMolyGawkomole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Oldgamesdownload.com Download and Play the games from the early 90s and 2000s on your Windows machine! I personally Play NFSMW 2005 and Counter Strike. Brings Back lot of memories.” - sweetFLUFFYpanda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191740.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">30 Impressing and Amazing Transformations </a><br>
-
-<span style="font-size:4em">1. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Why was I taking a picture in the bathroom at 534 lb? Because the shirt actually fit. I was shocked.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125517/87192127/87028439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “A ring i made out of a silver Nevada quarter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Before and after restoration: 1978 Ruger Security Six .357 rescue. Not sure how this gun got so jacked up, but I just had to get her back into working shape. I am in love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125217/87192124/86342857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125744/87192129/87030806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125733/87192128/87030796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Cable management</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Weight loss transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Tattoo cover up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Cleaning off a few years’ worth of gunk from our family’s 40-foot trawler”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hair salon transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Photo restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Landscaping transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “26 months – words can’t really describe the quality of life improvement this progress has had on me”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Headlight restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Before and after adoption</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “4 years after recovering from near death and a traumatic brain injury, I’m finally able to train and feeling better than ever!”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125225/87192125/86342867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191218.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">Entitled Boss Fired after Losing Company over $200K</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101857/87192662/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/102419/87192668/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101921/87192665/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101908/87192663/four.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
