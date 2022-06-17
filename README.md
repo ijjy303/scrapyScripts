@@ -1,209 +1,179 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/17/2022-06:03:06
+Last updated: 06/17/2022-07:40:58
 <br>
-## <a href="#linky2" id="linky1">30 Impressing and Amazing Transformations </a><br>
+## <a href="#linky2" id="linky1">23 Stalin Facts Your Teachers Never Told You</a><br>
 
-<span style="font-size:4em">1. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191216.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Joseph Stalin was covered in scars from smallpox that he’d survived at the age of seven and had official photos portraying his face as smooth and fresh with well-maintained hair by heavily editing and retouching photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191228.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Why was I taking a picture in the bathroom at 534 lb? Because the shirt actually fit. I was shocked.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125517/87192127/87028439.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. In 1952, Stalin proposed German reunification under a neutral and democratic government, but was turned down by the West. It is still debated whether the offer was a bluff, a trick, or a genuine missed opportunity for reunification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191229.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “A ring i made out of a silver Nevada quarter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191199.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Stalin struggled with depression and summoned renowned Russian psychiatrist Vladimir Bekhterev to examine him. After the examination, Bekhterev said only one word - paranoiac. He died on the very next day from what most believed was poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191211.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In 1967, Stalins only daughter Svetlana Alliluyeva defected to the US and lived in a small Wisconsin town until her death in 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Before and after restoration: 1978 Ruger Security Six .357 rescue. Not sure how this gun got so jacked up, but I just had to get her back into working shape. I am in love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191205.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Stalin, the historic leader of the USSR, was a pen name meaning man of steel. His real name was Ioseb Besarionis dzе Jughashvili.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191232.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191203.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. In 1952, Stalin offered West German Chancellor Konrad Adenauer reunification of Germany in return for permanent neutrality. Adenauer said No.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125217/87192124/86342857.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Boris Pasternak (the author of Doctor Zhivago) was almost killed in the great purge, 20 years before he wrote his famous novel. He was only saved at the last moment when Stalin himself crossed his name off the list with the note, leave that fool alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125744/87192129/87030806.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. When Truman told Stalin about the Manhattan project in July of 1945, Stalin displayed little reaction, since Stalin had known about the project for almost 4 years before Truman, and he arguably knew more about it than Truman himself did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191191.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. When Joseph Stalin was dying, his private physician was not available because he was already being tortured in the basement of the KGB headquarters for suggesting the Soviet leader required more bed rest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191192.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Genrich Altshuller, a Soviet engineer, was given a 25-year prison sentence for sending Joseph Stalin a letter explaining a desire to improve Soviet engineering. He later went on to write science fiction books and founded a famous engineering school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191194.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Ivan Evgrafovich Fedorov was rewarded by Hitler and Stalin during World War 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125733/87192128/87030796.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. In 1937, nearly 172,000 Koreans in the Soviet Far East were forcibly deported to unpopulated areas of Central Asia on the orders of Soviet leader Joseph Stalin. It marked the precedent of the first Soviet ethnic deportation of an entire nationality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Cable management</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191195.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The first president of Mongolia, Peljidiin Genden, allegedly slapped and broke Stalins pipe after Stalin pressured him to destroy Mongolias Buddhist clergies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Weight loss transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191220.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Stalin loved Charlie Chaplin movies and even cried at the last scene of City Lights, but he banned The Great Dictator from screening in the USSR. Stalin apparently was afraid that the image of the dictator Adenoid Hynkel would bring up an unwanted comparison – not to Hitler, but to himself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Tattoo cover up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191196.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Due to Chinese espionage and infiltration in Nazi Germany in WWII, the Chinese under Chiang Kai-sheks government were able to warn Stalin that Germany was planning to attack the Soviet Union in the spring of 1941, several months before the commencement of Operation Barbarossa on June 22, 1941.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Cleaning off a few years’ worth of gunk from our family’s 40-foot trawler”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191197.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Stalin’s granddaughter is a punk hippie Buddhist who runs an antique shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Hair salon transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191198.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Stalin had his photographs edited to remove people he didnt like from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191244.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Photo restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191200.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. After Joseph Stalins death, his successor embarked on a program of De-Stalinization - systematically reversing most of Stalins policies while in office, to end the era of the cult of personality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191201.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. When Joseph Stalins first wife died, he was so overcome with grief he threw himself into her grave during the funeral. Later, secret policemen arrived at the funeral, looking for Stalin (at the time a wanted fugitive); he was forced to flee the service early by jumping the graveyards fence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Landscaping transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191206.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Joseph Stalin had a relationship with a 13 year-old and got her pregnant. Twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191208.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Joseph Stalin was highly suspicious of doctors and had many Kremlin doctors arrested and tortured. So few doctors were available that after Stalin suffered a stroke, one imprisoned doctor claimed he was mid-interrogation when his captors suddenly started asking for medical advice instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191249.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “26 months – words can’t really describe the quality of life improvement this progress has had on me”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191210.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. In Stalin’s Russia, some people who were late to work three times were sent to a hard labor camp for three years as punishment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Headlight restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Before and after adoption</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “4 years after recovering from near death and a traumatic brain injury, I’m finally able to train and feeling better than ever!”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125225/87192125/86342867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191218.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Stalin had a son who he hated and who was later captured by the nazis. Hitler offered to trade him for Friedrich Paulus, a field marshal who led the 6th army into Stalingrad. When Stalin heard of this, he allegedly said, I will not trade a Marshal for a Lieutenant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191251.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">51 Pics Where The Timing Couldn't Be any Better</a><br>
+## <a href="#linky3" id="linky2">Evil Ways Product Designers and Marketers Screw With Us</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034106/87192194/83046654.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. There are few things that grind our gears like manipulative packaging designs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034034/87192191/82902174.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Lies, everywhere I look, nothing but lies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192132.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034057/87192193/83046672.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034045/87192192/82902164.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. What is the point of having hundreds of square stickers? Seems like a rip off. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034131/87192199/83046680.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Someone should tell this guy that the calculator app is free and come with the phone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034108/87192195/83046659.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034111/87192196/83046673.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The truth comes to light. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034118/87192197/83046676.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Subtle, but devious. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034122/87192198/83046679.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Not this old trick. We arent falling for it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034133/87192200/83394013.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. One half of a Stanley Cup chocolate trophy. What are you greedy or something? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034023/87192190/82902175.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034142/87192201/83394014.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Its hard to read, as thats where they get you, but right above the 500 it reads, 39 selections from the. Bastards. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034143/87192202/83394016.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Oh nice, more bs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034154/87192203/83394024.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Sike! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034155/87192204/83394027.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Lmao. This sucks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034206/87192205/83394030.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034207/87192206/83394032.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034217/87192207/83394042.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034218/87192208/83394047.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034228/87192209/83459990.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034231/87192210/83460003.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034239/87192211/83460008.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. You can hardly read it, but it says, less than. Lmao, f*** me right? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034241/87192212/83460025.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034251/87192213/84667613.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034252/87192214/84667615.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. You look terrible. Now buy are product which is guaranteed to make you look less terrible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034301/87192215/84667616.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034303/87192216/84667618.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034313/87192217/84667622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034314/87192218/85471040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034326/87192219/85471054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034337/87192220/85471071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034349/87192221/85471078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034357/87192222/85471065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034401/87192223/85471081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181674.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192159.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">18 Skills That Are Easier To Learn Than You Think</a><br>
+## <a href="#linky4" id="linky3">31 Savage Tweets Juicier Than Grilled Meats</a><br>
 
-<span style="font-size:4em">1. “Im left handed and and I wanted to learn to write with my right hand it was much easier than I thought and now I can write with it making it look somewhat decent.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191489.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Fixing computers. Its just a lot of googling and YouTubing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191490.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Picking a lock. It only takes about 1 or 2 hours to learn, contrary to popular belief.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191491.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Pissing in the urinal and not on the wall, floor, or shoes of the unfortunate bastard next to you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191492.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Crocheting! It looked really difficult to me but I was really pleased how easy it was to pick up. Especially with YouTube tutorials.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191493.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Flying a small airplane is actually very simple. Its everything else like weather and flight planning, emergency mindfulness, airspace and traffic, and confidence in yourself that gets tricky, but any person with eyeballs and a pulse could fly a plane.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191494.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191810.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “parallel parking.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191495.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Unicycling. It takes just 10-20 minutes a day for 3-10 days. Find a railing you can lean on to start. At some point, youll be able to let go and ride!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191496.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Basic IT troubleshooting”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191497.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Driving a stick shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191498.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191814.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Using your off hand skillfully. I worked on this when I owned a woodworking business and it has helped so many times over the years.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191499.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Working out in the gym. Lots of machines, lots of weights, but almost all of them are easy to use, and the hardest part of going to the gym is going consistently”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191500.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191821.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Cooking - once you understand the instructions and how the stove/oven works it’s simple.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191501.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191817.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Solving a rubix cube, all you have to do is look on YouTube”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191502.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Meditation. IF you pick the right resources and dont go down the new age rabbit hole.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191503.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Reading Korean phonetically. What the words mean is something else entirely, but with about half an hour of learning you could turn those symbols into sounds; a fraction of Korean is also made up of loanwords so it may actually be additionally helpful.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191505.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Drawing. People think you have to have inherent talent. You do not. You can learn how to process shape, line, and light differently and put it on paper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191507.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Juggling. You can probably learn it in an hour, two hours max.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191508.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191824.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191830.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191827.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191837.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191835.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -655,7 +625,41 @@ They are known to commonly follow ships and can form big groups when finding foo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">25 Normal Things That Look SUS At Night</a><br>
+## <a href="#linky12" id="linky11">15 Servants Reveal Rich People's Secrets</a><br>
+
+<span style="font-size:4em">1. “My grandfather died with a 20 million dollar portfolio. He lived in a 1 bedroom condo that was build in the 50s, drove a rusted out honda, and his entire wardrobe came from Walmart and was 10 years old. At his will reading, a bunch of distant relatives showed up hoping to get a piece. In his will, he made fun of all of them, then spent 10 pages detailing how and where he wanted all of his money donated to specific charities and foundations. Some of it was even really surprising, as nobody besides him was aware that he casually owned 160 acres of land in Vermont that was just forest. The land was donated to a land trust, and turned into hiking trails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I briefly worked with one of the top Saudi Arabian crown princes in the 80’s. He would buy out the top three floors of the best hotels (Four Seasons etc); two floors were for maids/help/security, top floor was for the Royal family… once it was only the prince and his three wives. Crazy stuff.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I used to work for a billionaire Russian family as a tutor for their daughter. One day we’re in her room studying and suddenly she yells “daddy’s home!” and runs to the window. She’d heard a helicopter and knew is was about to land on the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My dads client bought a whole block of houses to build theirs. It is so wide that they installed a moving walkway like the ones at airports.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Worked graveyards as a valet at an ultra luxury boutique hotel. Its quite shocking how some of these people live and youd never have a clue by just looking at them on the street. One weekday night I was asked at 2am by a guest to bring around his Bentley. Regular looking dude came out with a backpack, got in and left. Not 30 min later the same dude pulls up in a Ferrari and now has a briefcase instead of backpack. Skip ahead an hour and the same guy orders 5 shot glasses to his room. I go up and its 2 guys in robes and 2 naked ladies on the couch. They have lines of coke and booze on the coffee table. They tip me 50 for the shot glasses and I leave. 2 hours later, just as the sun was rising, the two guys come out together in suits looking like they were heading to the office. The ladies left shortly after. Obviously drugs and escorts were nothing new but the car swap middle of the night was a bit strange.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I am an art student working as a gardener. We work in one of the wealthiest areas in my country. Some customers are really eager to show me their collection of artworks that they have hanging on their walls once they find out that I study it. I remember one time standing in a bathroom, with my dirty gardening clothes and there was a Picasso above the toilet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “A friend from high school worked a few years as a deck hand on yachts in the Mediterranean and he said he once jumped in to get a customers bag and got tipped €4000. He also observed actual bricks of coke brought onto P Diddys yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “My dad works in shipping and has a lot of friends who have worked on super yachts. In the 90s one of his mates got a call up to bring the yacht of a particular Australian media tycoon billionaire (not that one) from Sydney to New York, with instructions to be anchored in a particular bay at an exact time with a lunch spread for 50 people ready. So they got there and set up the food. The guy never showed up. Turns out he was having a rich dude party in a building overlooking the harbour and wanted to be able to point down and say “that’s my boat”. He wanted the lunch just in case he decided to take his rich friends down to his yacht, but he didn’t feel like it that day, so all the food got wasted and they sailed back to Aus without seeing him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Worked at a resruraunt where a few of the regulars were the children of billionaires. I told my parents that my tuition costs $500,000 - a student (from china, in america) i overheard after being asked how she has so much money. Another time i was serving a table i was asked to bring a tray of sixty patron shots ($600, for a 19 year old student) i must have had an incredulous look on my face because his only response to assuage my concern was my father owns diamond mines in Africa.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I went to a New England prep school for high school on a full ride sports scholarship. There were a decent amount of foreign national students - mainly from Asia, that came from EXTREMELY wealthy families. One of those students parents bought him a brand new BMW 5 series - fully loaded, when he got his license our Junior year. When we graduated a year later, he was going back to Korea and obviously couldn’t take the car, so he gave it to his best friend…kid got an $80k car at 17 years old, just for being good friends with the right guy! I’ll never forget that.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A friend did some work on Sylvester Stallones home. Apparently theres a ton of statues and art of himself, some of which are naked and very well endowed”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “This was ages ago, I worked in a DVD store a woman came in with five A4 pages (double sided) of movie titles and just asked me to fetch what we had. I ran about and collected DVDs and Blu-rays close to 1k worth. I asked what they were for - she was a PA for a billionaire and getting them for his yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “A woman who owned a small private jet business told me one time someone paid them to fly their dog (by itself) to NY for about $45,000 for some training. No other passengers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I became personal friends with my boss and his wife; super nice people. The wife turned out to be an heiress and would buy me whatever I mentioned, like in passing during a conversation. I learned gifts were how she was raised to show love. I’ve trained myself to only talk about things I already own, unless I find something useful she might like and suggest it for her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Have been working for the super rich for sometime. Craziest thing Ive seen - brand new 90 metre multimillion pound (GBP) yacht was built in Netherlands. Maiden voyage to Antibes in France. Owner came onboard and left after a few hours. Next week we get sent to Genoa Italy, where all the bathrooms onboard were ripped out and upgraded. That doesnt sound like a big deal but Im talking about brand new marble sinks, showers, floors and lobbies all crowbarred out chucked in skips. Tonnes of brand new polished marble binned. New marble colours and patterns arrived in the weeks following. Theres feed me money, theres f- you money and theres its not even a thought money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191682.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">25 Normal Things That Look SUS At Night</a><br>
 
 <span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
 
@@ -709,99 +713,149 @@ They are known to commonly follow ships and can form big groups when finding foo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Entitled Boss Fired after Losing Company over $200K</a><br>
+## <a href="#linky14" id="linky13">51 Pics Where The Timing Couldn't Be any Better</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101857/87192662/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034106/87192194/83046654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/102419/87192668/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034034/87192191/82902174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101921/87192665/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034057/87192193/83046672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101908/87192663/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034045/87192192/82902164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034131/87192199/83046680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034108/87192195/83046659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034111/87192196/83046673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034118/87192197/83046676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034122/87192198/83046679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034133/87192200/83394013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034023/87192190/82902175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034142/87192201/83394014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034143/87192202/83394016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034154/87192203/83394024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034155/87192204/83394027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034206/87192205/83394030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034207/87192206/83394032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034217/87192207/83394042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034218/87192208/83394047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034228/87192209/83459990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034231/87192210/83460003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034239/87192211/83460008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034241/87192212/83460025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034251/87192213/84667613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034252/87192214/84667615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034301/87192215/84667616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034303/87192216/84667618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034313/87192217/84667622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034314/87192218/85471040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034326/87192219/85471054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034337/87192220/85471071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034349/87192221/85471078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034357/87192222/85471065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/034401/87192223/85471081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87181674.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">15 Servants Reveal Rich People's Secrets</a><br>
+## <a href="#linky15" id="linky14">18 Skills That Are Easier To Learn Than You Think</a><br>
 
-<span style="font-size:4em">1. “My grandfather died with a 20 million dollar portfolio. He lived in a 1 bedroom condo that was build in the 50s, drove a rusted out honda, and his entire wardrobe came from Walmart and was 10 years old. At his will reading, a bunch of distant relatives showed up hoping to get a piece. In his will, he made fun of all of them, then spent 10 pages detailing how and where he wanted all of his money donated to specific charities and foundations. Some of it was even really surprising, as nobody besides him was aware that he casually owned 160 acres of land in Vermont that was just forest. The land was donated to a land trust, and turned into hiking trails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191663.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Im left handed and and I wanted to learn to write with my right hand it was much easier than I thought and now I can write with it making it look somewhat decent.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “I briefly worked with one of the top Saudi Arabian crown princes in the 80’s. He would buy out the top three floors of the best hotels (Four Seasons etc); two floors were for maids/help/security, top floor was for the Royal family… once it was only the prince and his three wives. Crazy stuff.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191664.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Fixing computers. Its just a lot of googling and YouTubing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I used to work for a billionaire Russian family as a tutor for their daughter. One day we’re in her room studying and suddenly she yells “daddy’s home!” and runs to the window. She’d heard a helicopter and knew is was about to land on the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191665.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Picking a lock. It only takes about 1 or 2 hours to learn, contrary to popular belief.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “My dads client bought a whole block of houses to build theirs. It is so wide that they installed a moving walkway like the ones at airports.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191667.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Pissing in the urinal and not on the wall, floor, or shoes of the unfortunate bastard next to you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Worked graveyards as a valet at an ultra luxury boutique hotel. Its quite shocking how some of these people live and youd never have a clue by just looking at them on the street. One weekday night I was asked at 2am by a guest to bring around his Bentley. Regular looking dude came out with a backpack, got in and left. Not 30 min later the same dude pulls up in a Ferrari and now has a briefcase instead of backpack. Skip ahead an hour and the same guy orders 5 shot glasses to his room. I go up and its 2 guys in robes and 2 naked ladies on the couch. They have lines of coke and booze on the coffee table. They tip me 50 for the shot glasses and I leave. 2 hours later, just as the sun was rising, the two guys come out together in suits looking like they were heading to the office. The ladies left shortly after. Obviously drugs and escorts were nothing new but the car swap middle of the night was a bit strange.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191668.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Crocheting! It looked really difficult to me but I was really pleased how easy it was to pick up. Especially with YouTube tutorials.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I am an art student working as a gardener. We work in one of the wealthiest areas in my country. Some customers are really eager to show me their collection of artworks that they have hanging on their walls once they find out that I study it. I remember one time standing in a bathroom, with my dirty gardening clothes and there was a Picasso above the toilet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191669.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Flying a small airplane is actually very simple. Its everything else like weather and flight planning, emergency mindfulness, airspace and traffic, and confidence in yourself that gets tricky, but any person with eyeballs and a pulse could fly a plane.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “A friend from high school worked a few years as a deck hand on yachts in the Mediterranean and he said he once jumped in to get a customers bag and got tipped €4000. He also observed actual bricks of coke brought onto P Diddys yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191670.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “parallel parking.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “My dad works in shipping and has a lot of friends who have worked on super yachts. In the 90s one of his mates got a call up to bring the yacht of a particular Australian media tycoon billionaire (not that one) from Sydney to New York, with instructions to be anchored in a particular bay at an exact time with a lunch spread for 50 people ready. So they got there and set up the food. The guy never showed up. Turns out he was having a rich dude party in a building overlooking the harbour and wanted to be able to point down and say “that’s my boat”. He wanted the lunch just in case he decided to take his rich friends down to his yacht, but he didn’t feel like it that day, so all the food got wasted and they sailed back to Aus without seeing him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191671.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Unicycling. It takes just 10-20 minutes a day for 3-10 days. Find a railing you can lean on to start. At some point, youll be able to let go and ride!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Worked at a resruraunt where a few of the regulars were the children of billionaires. I told my parents that my tuition costs $500,000 - a student (from china, in america) i overheard after being asked how she has so much money. Another time i was serving a table i was asked to bring a tray of sixty patron shots ($600, for a 19 year old student) i must have had an incredulous look on my face because his only response to assuage my concern was my father owns diamond mines in Africa.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191672.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Basic IT troubleshooting”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I went to a New England prep school for high school on a full ride sports scholarship. There were a decent amount of foreign national students - mainly from Asia, that came from EXTREMELY wealthy families. One of those students parents bought him a brand new BMW 5 series - fully loaded, when he got his license our Junior year. When we graduated a year later, he was going back to Korea and obviously couldn’t take the car, so he gave it to his best friend…kid got an $80k car at 17 years old, just for being good friends with the right guy! I’ll never forget that.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191673.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Driving a stick shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “A friend did some work on Sylvester Stallones home. Apparently theres a ton of statues and art of himself, some of which are naked and very well endowed”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191674.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Using your off hand skillfully. I worked on this when I owned a woodworking business and it has helped so many times over the years.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “This was ages ago, I worked in a DVD store a woman came in with five A4 pages (double sided) of movie titles and just asked me to fetch what we had. I ran about and collected DVDs and Blu-rays close to 1k worth. I asked what they were for - she was a PA for a billionaire and getting them for his yacht.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191675.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Working out in the gym. Lots of machines, lots of weights, but almost all of them are easy to use, and the hardest part of going to the gym is going consistently”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “A woman who owned a small private jet business told me one time someone paid them to fly their dog (by itself) to NY for about $45,000 for some training. No other passengers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191678.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Cooking - once you understand the instructions and how the stove/oven works it’s simple.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191501.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I became personal friends with my boss and his wife; super nice people. The wife turned out to be an heiress and would buy me whatever I mentioned, like in passing during a conversation. I learned gifts were how she was raised to show love. I’ve trained myself to only talk about things I already own, unless I find something useful she might like and suggest it for her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191680.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Solving a rubix cube, all you have to do is look on YouTube”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191502.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Have been working for the super rich for sometime. Craziest thing Ive seen - brand new 90 metre multimillion pound (GBP) yacht was built in Netherlands. Maiden voyage to Antibes in France. Owner came onboard and left after a few hours. Next week we get sent to Genoa Italy, where all the bathrooms onboard were ripped out and upgraded. That doesnt sound like a big deal but Im talking about brand new marble sinks, showers, floors and lobbies all crowbarred out chucked in skips. Tonnes of brand new polished marble binned. New marble colours and patterns arrived in the weeks following. Theres feed me money, theres f- you money and theres its not even a thought money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191682.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Meditation. IF you pick the right resources and dont go down the new age rabbit hole.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191503.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">16. “Reading Korean phonetically. What the words mean is something else entirely, but with about half an hour of learning you could turn those symbols into sounds; a fraction of Korean is also made up of loanwords so it may actually be additionally helpful.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191505.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">23 Stalin Facts Your Teachers Never Told You</a><br>
+<span style="font-size:4em">17. “Drawing. People think you have to have inherent talent. You do not. You can learn how to process shape, line, and light differently and put it on paper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191507.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Joseph Stalin was covered in scars from smallpox that he’d survived at the age of seven and had official photos portraying his face as smooth and fresh with well-maintained hair by heavily editing and retouching photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191228.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. In 1952, Stalin proposed German reunification under a neutral and democratic government, but was turned down by the West. It is still debated whether the offer was a bluff, a trick, or a genuine missed opportunity for reunification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191229.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Stalin struggled with depression and summoned renowned Russian psychiatrist Vladimir Bekhterev to examine him. After the examination, Bekhterev said only one word - paranoiac. He died on the very next day from what most believed was poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 1967, Stalins only daughter Svetlana Alliluyeva defected to the US and lived in a small Wisconsin town until her death in 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Stalin, the historic leader of the USSR, was a pen name meaning man of steel. His real name was Ioseb Besarionis dzе Jughashvili.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191232.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. In 1952, Stalin offered West German Chancellor Konrad Adenauer reunification of Germany in return for permanent neutrality. Adenauer said No.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Boris Pasternak (the author of Doctor Zhivago) was almost killed in the great purge, 20 years before he wrote his famous novel. He was only saved at the last moment when Stalin himself crossed his name off the list with the note, leave that fool alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. When Truman told Stalin about the Manhattan project in July of 1945, Stalin displayed little reaction, since Stalin had known about the project for almost 4 years before Truman, and he arguably knew more about it than Truman himself did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. When Joseph Stalin was dying, his private physician was not available because he was already being tortured in the basement of the KGB headquarters for suggesting the Soviet leader required more bed rest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Genrich Altshuller, a Soviet engineer, was given a 25-year prison sentence for sending Joseph Stalin a letter explaining a desire to improve Soviet engineering. He later went on to write science fiction books and founded a famous engineering school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ivan Evgrafovich Fedorov was rewarded by Hitler and Stalin during World War 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In 1937, nearly 172,000 Koreans in the Soviet Far East were forcibly deported to unpopulated areas of Central Asia on the orders of Soviet leader Joseph Stalin. It marked the precedent of the first Soviet ethnic deportation of an entire nationality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The first president of Mongolia, Peljidiin Genden, allegedly slapped and broke Stalins pipe after Stalin pressured him to destroy Mongolias Buddhist clergies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Stalin loved Charlie Chaplin movies and even cried at the last scene of City Lights, but he banned The Great Dictator from screening in the USSR. Stalin apparently was afraid that the image of the dictator Adenoid Hynkel would bring up an unwanted comparison – not to Hitler, but to himself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Due to Chinese espionage and infiltration in Nazi Germany in WWII, the Chinese under Chiang Kai-sheks government were able to warn Stalin that Germany was planning to attack the Soviet Union in the spring of 1941, several months before the commencement of Operation Barbarossa on June 22, 1941.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Stalin’s granddaughter is a punk hippie Buddhist who runs an antique shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Stalin had his photographs edited to remove people he didnt like from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191244.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. After Joseph Stalins death, his successor embarked on a program of De-Stalinization - systematically reversing most of Stalins policies while in office, to end the era of the cult of personality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. When Joseph Stalins first wife died, he was so overcome with grief he threw himself into her grave during the funeral. Later, secret policemen arrived at the funeral, looking for Stalin (at the time a wanted fugitive); he was forced to flee the service early by jumping the graveyards fence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Joseph Stalin had a relationship with a 13 year-old and got her pregnant. Twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Joseph Stalin was highly suspicious of doctors and had many Kremlin doctors arrested and tortured. So few doctors were available that after Stalin suffered a stroke, one imprisoned doctor claimed he was mid-interrogation when his captors suddenly started asking for medical advice instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. In Stalin’s Russia, some people who were late to work three times were sent to a hard labor camp for three years as punishment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Stalin had a son who he hated and who was later captured by the nazis. Hitler offered to trade him for Friedrich Paulus, a field marshal who led the 6th army into Stalingrad. When Stalin heard of this, he allegedly said, I will not trade a Marshal for a Lieutenant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191251.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Juggling. You can probably learn it in an hour, two hours max.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191508.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -861,129 +915,75 @@ https://www.reddit.com/r/AskReddit/comments/q2viki/what_useful_unknown_website_d
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">31 Savage Tweets Juicier Than Grilled Meats</a><br>
+## <a href="#linky17" id="linky16">30 Impressing and Amazing Transformations </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191807.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191216.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191833.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Why was I taking a picture in the bathroom at 534 lb? Because the shirt actually fit. I was shocked.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125517/87192127/87028439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191808.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “A ring i made out of a silver Nevada quarter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191813.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191809.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Before and after restoration: 1978 Ruger Security Six .357 rescue. Not sure how this gun got so jacked up, but I just had to get her back into working shape. I am in love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191810.png" style="width:100%"><br>
+<span style="font-size:4em">6. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191811.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “I went through Bulimia recovery and here is me after my teeth restoration.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125217/87192124/86342857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191812.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125744/87192129/87030806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191815.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191814.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191816.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191821.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125733/87192128/87030796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191817.png" style="width:100%"><br>
+<span style="font-size:4em">13. Cable management</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191818.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Weight loss transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191836.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Tattoo cover up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191819.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Cleaning off a few years’ worth of gunk from our family’s 40-foot trawler”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191820.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Hair salon transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191823.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Photo restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191822.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Power washing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191824.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. Landscaping transformation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191830.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191825.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “26 months – words can’t really describe the quality of life improvement this progress has had on me”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191826.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Headlight restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191827.png" style="width:100%"><br>
+<span style="font-size:4em">24. Before and after adoption</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191828.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191215.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191837.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. “4 years after recovering from near death and a traumatic brain injury, I’m finally able to train and feeling better than ever!”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/15/125225/87192125/86342867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191829.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87191835.png" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87191218.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">Evil Ways Product Designers and Marketers Screw With Us</a><br>
+## <a href="#linky18" id="linky17">Entitled Boss Fired after Losing Company over $200K</a><br>
 
-<span style="font-size:4em">1. There are few things that grind our gears like manipulative packaging designs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192133.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101857/87192662/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Lies, everywhere I look, nothing but lies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192132.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/102419/87192668/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192134.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101921/87192665/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. What is the point of having hundreds of square stickers? Seems like a rip off. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Someone should tell this guy that the calculator app is free and come with the phone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The truth comes to light. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Subtle, but devious. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Not this old trick. We arent falling for it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. One half of a Stanley Cup chocolate trophy. What are you greedy or something? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Its hard to read, as thats where they get you, but right above the 500 it reads, 39 selections from the. Bastards. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Oh nice, more bs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Sike! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Lmao. This sucks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. You can hardly read it, but it says, less than. Lmao, f*** me right? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. You look terrible. Now buy are product which is guaranteed to make you look less terrible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192159.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/101908/87192663/four.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
