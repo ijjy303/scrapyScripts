@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/17/2022-20:47:20
+Last updated: 06/17/2022-21:47:18
 <br>
 ## <a href="#linky2" id="linky1">25 Most Horrifying Movies Scenes Of All Time</a><br>
 
@@ -55,167 +55,69 @@ Last updated: 06/17/2022-20:47:20
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">53 Boredom Bashing Pics That Are the Enemy of Mundane</a><br>
+## <a href="#linky3" id="linky2">Fresh Memes and Funny Pics of the Dank Variety </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191892.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Remember when we all got that U2 album dropped onto our phones? That was cool, not! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191893.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191895.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. There are two types of people. Which one are you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191899.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191900.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I am the backbone of this family!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192407.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191901.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191902.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Colorized* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191903.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191906.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191907.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191908.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191909.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Someone has to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191910.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191914.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. He isnt even in his final form. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191915.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191916.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192418.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191918.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Why are men so dull? Umm, if you like me, just say so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191924.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191929.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191930.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191933.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191934.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191935.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191936.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191937.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Times have changed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192427.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191938.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192428.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024840/87192889/87191327.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Never skip leg day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192429.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024845/87192890/87191334.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192430.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024851/87192891/87191330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024856/87192892/87191335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024902/87192893/87191339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024907/87192894/87191346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024915/87192895/87191365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024918/87192896/87192317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024926/87192897/87192321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024929/87192898/87192322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024939/87192899/87192326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024940/87192900/87192327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024950/87192901/87192332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024952/87192902/87192335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025001/87192903/87192338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025003/87192904/87192352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025012/87192905/87192353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025014/87192906/87192357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025023/87192907/87192605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025025/87192908/87192607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025034/87192909/87192619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025036/87192910/87192626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025046/87192911/87192636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025048/87192912/87192642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025057/87192913/87192637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025059/87192914/87192644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025108/87192915/87192647.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192431.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">23 Stalin Facts Your Teachers Never Told You</a><br>
-
-<span style="font-size:4em">1. Joseph Stalin was covered in scars from smallpox that he’d survived at the age of seven and had official photos portraying his face as smooth and fresh with well-maintained hair by heavily editing and retouching photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191228.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. In 1952, Stalin proposed German reunification under a neutral and democratic government, but was turned down by the West. It is still debated whether the offer was a bluff, a trick, or a genuine missed opportunity for reunification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191229.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Stalin struggled with depression and summoned renowned Russian psychiatrist Vladimir Bekhterev to examine him. After the examination, Bekhterev said only one word - paranoiac. He died on the very next day from what most believed was poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 1967, Stalins only daughter Svetlana Alliluyeva defected to the US and lived in a small Wisconsin town until her death in 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Stalin, the historic leader of the USSR, was a pen name meaning man of steel. His real name was Ioseb Besarionis dzе Jughashvili.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191232.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. In 1952, Stalin offered West German Chancellor Konrad Adenauer reunification of Germany in return for permanent neutrality. Adenauer said No.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Boris Pasternak (the author of Doctor Zhivago) was almost killed in the great purge, 20 years before he wrote his famous novel. He was only saved at the last moment when Stalin himself crossed his name off the list with the note, leave that fool alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. When Truman told Stalin about the Manhattan project in July of 1945, Stalin displayed little reaction, since Stalin had known about the project for almost 4 years before Truman, and he arguably knew more about it than Truman himself did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. When Joseph Stalin was dying, his private physician was not available because he was already being tortured in the basement of the KGB headquarters for suggesting the Soviet leader required more bed rest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Genrich Altshuller, a Soviet engineer, was given a 25-year prison sentence for sending Joseph Stalin a letter explaining a desire to improve Soviet engineering. He later went on to write science fiction books and founded a famous engineering school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ivan Evgrafovich Fedorov was rewarded by Hitler and Stalin during World War 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In 1937, nearly 172,000 Koreans in the Soviet Far East were forcibly deported to unpopulated areas of Central Asia on the orders of Soviet leader Joseph Stalin. It marked the precedent of the first Soviet ethnic deportation of an entire nationality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The first president of Mongolia, Peljidiin Genden, allegedly slapped and broke Stalins pipe after Stalin pressured him to destroy Mongolias Buddhist clergies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Stalin loved Charlie Chaplin movies and even cried at the last scene of City Lights, but he banned The Great Dictator from screening in the USSR. Stalin apparently was afraid that the image of the dictator Adenoid Hynkel would bring up an unwanted comparison – not to Hitler, but to himself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Due to Chinese espionage and infiltration in Nazi Germany in WWII, the Chinese under Chiang Kai-sheks government were able to warn Stalin that Germany was planning to attack the Soviet Union in the spring of 1941, several months before the commencement of Operation Barbarossa on June 22, 1941.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Stalin’s granddaughter is a punk hippie Buddhist who runs an antique shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Stalin had his photographs edited to remove people he didnt like from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191244.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. After Joseph Stalins death, his successor embarked on a program of De-Stalinization - systematically reversing most of Stalins policies while in office, to end the era of the cult of personality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. When Joseph Stalins first wife died, he was so overcome with grief he threw himself into her grave during the funeral. Later, secret policemen arrived at the funeral, looking for Stalin (at the time a wanted fugitive); he was forced to flee the service early by jumping the graveyards fence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Joseph Stalin had a relationship with a 13 year-old and got her pregnant. Twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Joseph Stalin was highly suspicious of doctors and had many Kremlin doctors arrested and tortured. So few doctors were available that after Stalin suffered a stroke, one imprisoned doctor claimed he was mid-interrogation when his captors suddenly started asking for medical advice instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. In Stalin’s Russia, some people who were late to work three times were sent to a hard labor camp for three years as punishment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Stalin had a son who he hated and who was later captured by the nazis. Hitler offered to trade him for Friedrich Paulus, a field marshal who led the 6th army into Stalingrad. When Stalin heard of this, he allegedly said, I will not trade a Marshal for a Lieutenant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191251.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
+## <a href="#linky4" id="linky3">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192243.jpg" style="width:100%"><br>
 
@@ -267,71 +169,147 @@ Last updated: 06/17/2022-20:47:20
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">32 Adult Themed Memes for Your Deranged Sense of Humor</a><br>
+## <a href="#linky5" id="linky4">The Best American Foods As Chosen By Non-Americans</a><br>
 
-<span style="font-size:4em">1. Random dic pics, GO!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105412/87192686/87188775.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I’ve tried many things so far but SMORES MAN, wow it’s perfection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044316/87192983/americanfoods2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Give her a little something something to snack on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105511/87192697/87189593.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I really like Reuben sandwiches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044318/87192984/americanfoods3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Finally, I have the power!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105407/87192685/87188774.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I had a friend from France here for nearly 6 months, and took him around the Mid-Atlantic and NYC. All he wanted to do was keep going back to Arbys for the Beef n Cheddar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044327/87192987/americanfoods1.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Datass.  They dont call him woody for nothing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105348/87192682/87188762.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Buffalo wings. Because thats modern day Ambrosia.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044329/87192988/americanfoods4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Thats it, now hold that pose, now switch, okay right there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105322/87192677/87188752.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Key Lime Pie. I think I ate a whole one by myself when I was in Miami.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192991/americanfoods5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105450/87192693/87189579.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Baked cheesecake, Boston chowder, pecan pie and BBQ ribs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192992/americanfoods6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188813.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Gumbo. I’m talking cooked by somebody raised south of I-10.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044351/87192995/americanfoods7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188828.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Lobster Rolls. OMG these would be soooo popular back home. They are the perfect seafood sandwich!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044401/87192998/americanfoods9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105508/87192696/87189591.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Oof, I love Philly cheesesteaks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044412/87193001/americanfoods11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105250/87192672/87188742.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I lived in Asia and when I visited the USA for 10 days my entire diet was basically Texas BBQ with all the sides. All the Pies - Apple, Peach, Pecan, Key Lime.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044421/87193002/americanfoods8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188805.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Cornbread. As a guy who moved here, Americans have got cornbread down to a T. Combined with some soul food ? Makes me smile on the inside. Gives me high blood pressure, but smile on the inside too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044423/87193003/americanfoods12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105257/87192673/87188733.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Those potatoes with cheese in it you make for thanksgiving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044432/87193004/americanfoods10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105302/87192674/87188745.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I have a friend who lived in Japan and China for a total of 6 years. The thing she missed most about American food was cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044433/87193005/americanfoods13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105310/87192675/87188746.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Smoked brisket. Wow! I tried this in some small Texas town and that place deserves a Michelin star!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044434/87193006/americanfoods14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105314/87192676/87188749.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Anything fried: mozza sticks, onion rings, fried chicken etc…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044444/87193007/americanfoods15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105333/87192679/87188758.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Given the level of Mexican food in Europe generally, Tex Mex is insane compared to what we get over here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044445/87193008/americanfoods16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105337/87192680/87188761.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Call me basic, but I could die for New York pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044454/87193010/americanfoods17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105355/87192683/87188769.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Crab cakes!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044457/87193011/americanfoods19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105400/87192684/87188771.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. An average diner with bottomless filter coffee, pancakes, bacon and syrup was my favorite part of the day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044506/87193012/americanfoods18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105418/87192687/87188776.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Biscuits And gravy. Nothing even comes close. A good buttermilk biscuit with a proper sausage gravy is heaven on earth. Because by the end, your heart stops beating anyway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044508/87193013/americanfoods20.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105423/87192688/87189572.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105429/87192689/87189573.jpg" style="width:100%"><br>
+## <a href="#linky6" id="linky5">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105434/87192690/87189576.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100418/87193579/87098949.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105440/87192691/87189578.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188807.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105445/87192692/87189583.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100322/87193569/87063866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105457/87192694/87189587.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188831.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100430/87193581/Ineb.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105344/87192681/87188766.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100314/87193568/87063857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105501/87192695/87189590.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188795.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105326/87192678/87188754.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094031/87193515/87191318.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193170.gif" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193179.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193180.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093855/87193503/87191285.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093906/87193504/87191286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093915/87193505/87191283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093918/87193506/87191288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093931/87193507/87191289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093932/87193508/87191306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093944/87193509/87191307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093954/87193510/87191309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094007/87193511/87191310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094014/87193512/87191308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094019/87193513/87191312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094027/87193514/87191315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100311/87193567/87063840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100325/87193570/87063859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100333/87193571/87073812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100337/87193572/87073827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100344/87193573/87073833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100348/87193574/87091984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100356/87193575/87091989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100400/87193576/87093750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100407/87193577/87093766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100411/87193578/87098940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100423/87193580/87098959.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -515,7 +493,43 @@ Last updated: 06/17/2022-20:47:20
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Scary Things Kids Have Said Proving They’re Absolute Creeps</a><br>
+## <a href="#linky10" id="linky9">15 People Reveal What They Love About The '90s</a><br>
+
+<span style="font-size:4em">1. “Music was great and it was exciting to be at the beginning of new technology but not have it consume our lives. You could still go out for the day and be completely unreachable and that was normal.” - queuedUp
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Unless you were around at the time, its hard to describe the positive vibe/feeling of hope that existed in that era. The Cold War was over, that meant the threat of nuclear war was over and we could focus on moving mankind to a better place. Society felt united not divided like it is today. Daily life involved face to face interaction with people. There were stores to go to, I especially miss bookstores and record shops. Life was a lot more laid back, no one expected an instant reply; it might take a couple of days to get hold of a friend.” - extra_less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Well there was a genuine air of positivity before the millennium, before everything went to shit after 9/11 and the phoney wars etc..” - rotwilder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Internet wasn’t rotting society yet.” - mamadovah1102</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Im German and the fall of the Berlin Wall and reunification of Germany made many people believe that theres a wonderful future ahead. Unfortunately that wasnt true.” - ohara1250</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “The Cold War had just come to an end. There was a feeling that liberal democracy had triumphed over other systems and that a new era of increasing freedom and prosperity for all had begun (The end of history).” - HighlandsBen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “We had enough technology to get by, and make life easier but it didn’t run our lives. You could leave your house for a night out with friends and your parents wouldn’t be able to find you. The music, the fashion, malls, mass shootings every damn day wasn’t a thing. Gas was .89 a gallon. It was glorious!” - worldsokayestmomx3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “The goth chicks man. Loved the 90s goth chicks.” - Inner-Nothing7779</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “We were forced to live in the moment and it felt amazing. When you heard your favorite song on the radio, you relished it because there was no other way for you to access the song (other than buying the tape). When you had not seen your friends in a while, you genuinely miss them because the only way to keep in touch were through letters and phone calls. When you watched a concert, you had to absorb it all in because there was no practical way you could record your experience. Life just felt more present and authentic.” - papaweir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My take: Watch “Star Trek: The Next Generation” and then watch “Star Trek: Picard”. The hopeful, aspirational tone of the former reflected the optimism in the 90s. The rather more dreary tone of the latter reflects today’s pessimism and fatalism. If you watch and agree with this assessment, ask yourself in which setting you would rather live.” - rogless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The economy was booming, the internet was exciting and new, culture seemed to be moving toward more inclusion, acceptance, and diversity. People my age (Im a Xennial) were raised with a belief that every new generation in America is better and more prosperous than the generation that came before, and since we would be the most educated generation ever, the future looked bright. That dreamy ultramodern view of progress that started in the 60s -- we were living it. It was our future, and it was right around the corner. Needless to say, that amazing future never materialized. The internet has seemed to make people dumber rather than better educated, and to top it all off, America is now a backsliding democracy. Yeah, we have electric cars and fancy phones and sh*t, but life is getting worse for the average American, and our culture just generally sucks. People are so angry, about everything. I think those of us old enough to remember the 80s and 90s mostly just miss having hope.” - AccessibleBeige</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “The vibes were just better. It seemed like people were happier and more content with what they did have. Now it seems like everyone is in the hustle mode and not truly happy. The nation also seemed more united at that time. There seemed to be more patriotism and less division.” - SquareAffectionate64</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I think it was the way people treated each other, as well as the fact that it was simpler times without social media. Also, nature in my part of the world was still flourishing. I tell my SO all the time about how many fireflies, butterflies, and other insects there used to be all over our small town. Humans have made our culture and environment worse since the 90s, in my opinion. Sure, there was still bullying and shitty people in the 90s like there are now, but I felt more of a sense of community. Your friends would call your house, have to talk to a parent first usually, and then your mom and dad would yell for you to come get the phone. Then youd all meet up in the neighborhood and have a good time doing whatever it was you were doing. People didnt seem so suspicious of one another and weird about things. People seemed a lot less narcissistic and less concerned with how others perceived them. There wasnt so much time wasted staring at your phone and youd have to do things like talk to each other instead. People seemed a lot more caring and less selfish back then. Thank you for reading my incoherent morning thoughts about a time of my life I loved.” - Betty_Broops</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “No cell phones or social media. Unplugged before there was a thing called unplugged. Really miss that.” - waterbottlejesus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “The simplicity of it. Those of us that grew up in it have seen one world end, and another begin. We saw the rise of personal computers and the internet. It was all so new and fresh and really cool. But it also signaled the end of the pre-internet era. We are the last generation to grow up outside. The last generation that didnt grow up with the ills of the world thrown into our faces 24/7. The last generation to truly have an innocent childhood. When that era ended, and social media and the internet became a big part of everyones lives, we started seeing all the terrible things going on in the world. Kids were exposed to it. Everything became political. If you werent angered by X then the Xers hated you. If you were angered by Y you hated the Xers, etc. All that hate and divisiveness has grown and grown until we have the angry, hateful, tired, and stressed society we have now. The 90s were simple. We had no worries. Just cool music, clothes, tv shows, etc. We lived and didnt worry about things outside our local bubble, with exceptions of course. It was simple.” - Inner-Nothing7779</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191525.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Scary Things Kids Have Said Proving They’re Absolute Creeps</a><br>
 
 <span style="font-size:4em">1. Him: too bad the babysitter died. Me: no she didn’t bud, she’s just not here today. Him: or she’s in the freezer (while staring at the freezer) Me: you’re pretty creepy sometimes bud Him: just smiles.
 
@@ -614,42 +628,6 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">15 People Reveal What They Love About The '90s</a><br>
-
-<span style="font-size:4em">1. “Music was great and it was exciting to be at the beginning of new technology but not have it consume our lives. You could still go out for the day and be completely unreachable and that was normal.” - queuedUp
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Unless you were around at the time, its hard to describe the positive vibe/feeling of hope that existed in that era. The Cold War was over, that meant the threat of nuclear war was over and we could focus on moving mankind to a better place. Society felt united not divided like it is today. Daily life involved face to face interaction with people. There were stores to go to, I especially miss bookstores and record shops. Life was a lot more laid back, no one expected an instant reply; it might take a couple of days to get hold of a friend.” - extra_less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Well there was a genuine air of positivity before the millennium, before everything went to shit after 9/11 and the phoney wars etc..” - rotwilder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Internet wasn’t rotting society yet.” - mamadovah1102</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Im German and the fall of the Berlin Wall and reunification of Germany made many people believe that theres a wonderful future ahead. Unfortunately that wasnt true.” - ohara1250</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “The Cold War had just come to an end. There was a feeling that liberal democracy had triumphed over other systems and that a new era of increasing freedom and prosperity for all had begun (The end of history).” - HighlandsBen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “We had enough technology to get by, and make life easier but it didn’t run our lives. You could leave your house for a night out with friends and your parents wouldn’t be able to find you. The music, the fashion, malls, mass shootings every damn day wasn’t a thing. Gas was .89 a gallon. It was glorious!” - worldsokayestmomx3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “The goth chicks man. Loved the 90s goth chicks.” - Inner-Nothing7779</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “We were forced to live in the moment and it felt amazing. When you heard your favorite song on the radio, you relished it because there was no other way for you to access the song (other than buying the tape). When you had not seen your friends in a while, you genuinely miss them because the only way to keep in touch were through letters and phone calls. When you watched a concert, you had to absorb it all in because there was no practical way you could record your experience. Life just felt more present and authentic.” - papaweir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My take: Watch “Star Trek: The Next Generation” and then watch “Star Trek: Picard”. The hopeful, aspirational tone of the former reflected the optimism in the 90s. The rather more dreary tone of the latter reflects today’s pessimism and fatalism. If you watch and agree with this assessment, ask yourself in which setting you would rather live.” - rogless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The economy was booming, the internet was exciting and new, culture seemed to be moving toward more inclusion, acceptance, and diversity. People my age (Im a Xennial) were raised with a belief that every new generation in America is better and more prosperous than the generation that came before, and since we would be the most educated generation ever, the future looked bright. That dreamy ultramodern view of progress that started in the 60s -- we were living it. It was our future, and it was right around the corner. Needless to say, that amazing future never materialized. The internet has seemed to make people dumber rather than better educated, and to top it all off, America is now a backsliding democracy. Yeah, we have electric cars and fancy phones and sh*t, but life is getting worse for the average American, and our culture just generally sucks. People are so angry, about everything. I think those of us old enough to remember the 80s and 90s mostly just miss having hope.” - AccessibleBeige</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “The vibes were just better. It seemed like people were happier and more content with what they did have. Now it seems like everyone is in the hustle mode and not truly happy. The nation also seemed more united at that time. There seemed to be more patriotism and less division.” - SquareAffectionate64</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I think it was the way people treated each other, as well as the fact that it was simpler times without social media. Also, nature in my part of the world was still flourishing. I tell my SO all the time about how many fireflies, butterflies, and other insects there used to be all over our small town. Humans have made our culture and environment worse since the 90s, in my opinion. Sure, there was still bullying and shitty people in the 90s like there are now, but I felt more of a sense of community. Your friends would call your house, have to talk to a parent first usually, and then your mom and dad would yell for you to come get the phone. Then youd all meet up in the neighborhood and have a good time doing whatever it was you were doing. People didnt seem so suspicious of one another and weird about things. People seemed a lot less narcissistic and less concerned with how others perceived them. There wasnt so much time wasted staring at your phone and youd have to do things like talk to each other instead. People seemed a lot more caring and less selfish back then. Thank you for reading my incoherent morning thoughts about a time of my life I loved.” - Betty_Broops</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “No cell phones or social media. Unplugged before there was a thing called unplugged. Really miss that.” - waterbottlejesus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “The simplicity of it. Those of us that grew up in it have seen one world end, and another begin. We saw the rise of personal computers and the internet. It was all so new and fresh and really cool. But it also signaled the end of the pre-internet era. We are the last generation to grow up outside. The last generation that didnt grow up with the ills of the world thrown into our faces 24/7. The last generation to truly have an innocent childhood. When that era ended, and social media and the internet became a big part of everyones lives, we started seeing all the terrible things going on in the world. Kids were exposed to it. Everything became political. If you werent angered by X then the Xers hated you. If you were angered by Y you hated the Xers, etc. All that hate and divisiveness has grown and grown until we have the angry, hateful, tired, and stressed society we have now. The 90s were simple. We had no worries. Just cool music, clothes, tv shows, etc. We lived and didnt worry about things outside our local bubble, with exceptions of course. It was simple.” - Inner-Nothing7779</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191525.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
 ## <a href="#linky12" id="linky11">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
@@ -696,105 +674,7 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">The Best American Foods As Chosen By Non-Americans</a><br>
-
-<span style="font-size:4em">1. I’ve tried many things so far but SMORES MAN, wow it’s perfection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044316/87192983/americanfoods2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I really like Reuben sandwiches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044318/87192984/americanfoods3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I had a friend from France here for nearly 6 months, and took him around the Mid-Atlantic and NYC. All he wanted to do was keep going back to Arbys for the Beef n Cheddar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044327/87192987/americanfoods1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Buffalo wings. Because thats modern day Ambrosia.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044329/87192988/americanfoods4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Key Lime Pie. I think I ate a whole one by myself when I was in Miami.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192991/americanfoods5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Baked cheesecake, Boston chowder, pecan pie and BBQ ribs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192992/americanfoods6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Gumbo. I’m talking cooked by somebody raised south of I-10.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044351/87192995/americanfoods7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Lobster Rolls. OMG these would be soooo popular back home. They are the perfect seafood sandwich!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044401/87192998/americanfoods9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oof, I love Philly cheesesteaks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044412/87193001/americanfoods11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I lived in Asia and when I visited the USA for 10 days my entire diet was basically Texas BBQ with all the sides. All the Pies - Apple, Peach, Pecan, Key Lime.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044421/87193002/americanfoods8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Cornbread. As a guy who moved here, Americans have got cornbread down to a T. Combined with some soul food ? Makes me smile on the inside. Gives me high blood pressure, but smile on the inside too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044423/87193003/americanfoods12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Those potatoes with cheese in it you make for thanksgiving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044432/87193004/americanfoods10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I have a friend who lived in Japan and China for a total of 6 years. The thing she missed most about American food was cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044433/87193005/americanfoods13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Smoked brisket. Wow! I tried this in some small Texas town and that place deserves a Michelin star!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044434/87193006/americanfoods14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Anything fried: mozza sticks, onion rings, fried chicken etc…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044444/87193007/americanfoods15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Given the level of Mexican food in Europe generally, Tex Mex is insane compared to what we get over here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044445/87193008/americanfoods16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Call me basic, but I could die for New York pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044454/87193010/americanfoods17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Crab cakes!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044457/87193011/americanfoods19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. An average diner with bottomless filter coffee, pancakes, bacon and syrup was my favorite part of the day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044506/87193012/americanfoods18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Biscuits And gravy. Nothing even comes close. A good buttermilk biscuit with a proper sausage gravy is heaven on earth. Because by the end, your heart stops beating anyway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044508/87193013/americanfoods20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 Normal Things That Look SUS At Night</a><br>
-
-<span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Sun bathing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Cleaning the windows of the girls dorm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Digging a deep hole in the ground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “That one time Bart flew a kite at night, there was something unwholesome about it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “I tend to be nocturnal, and I also love to garden. This often means I forget to water until 2 am. I let my neighbors know that I might be out there watering in the middle of the night, because they are elderly, and I dont want to give anyone a heart attack.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Parking in the middle of an empty parking lot in the dark. Ive done this so many times on long road trips and 50% of the time a cop or local will knock on my window. So I now have tape and a laminated piece of paper in my car that says: I am not: A drug dealer or buyer, A burglar watching a store, Homeless, High or drunk.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Playing Pokemon Go outdoors. Just standing at a spot, then slowly walking, then stopping again. Probably at a park since theres more activity there.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Taking a suitcase to the trash, but I’ve done it. I’ve done everything at 3am.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Getting a Knock on the door, if it’s that late it’s never for good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Asking your neighbor if they have some sugar because youre out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Taking out multiple trash bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “A kid Swinging on a swing at a playground singing a nursery rhyme.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “mowing the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I have a relative who just likes to look out their living room window. so I’m gonna say that.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Washing the car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “I just took the cat poo out around 3am. To be blunt the cat poo bag is a hefty fella, so me, a six foot four-ish chunky dood hauling a big ass heavy trash bag across a parking lot, audibly struggling, and hefting the damn thing over into a dumpster looks pretty suspicious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Going to the bank.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Playing tag or paintball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Laughing hysterically after watching a funny video. Bonus points if youre at a park. The idea that you cant easily be seen looking at your phone is what might be weird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Checking the mailbox.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Cleaning the swimming pool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Parking a U-Haul van in front of the Russian embassy and walkkng away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Obviously, distributing balloons to passers-by. Bonus point if they are red and you are dressed as a clown.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Taking a kid to a playground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191189.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">24 Terrifying Facts That Help Put History into Perspective </a><br>
+## <a href="#linky13" id="linky12">24 Terrifying Facts That Help Put History into Perspective </a><br>
 
 <span style="font-size:4em">1. “The dancing plague of 1518, or dance epidemic of 1518, was a case of dancing mania that occurred in Strasbourg, Alsace (modern-day France), in the Holy Roman Empire from July 1518 to September 1518. Somewhere between 50 and 400 people took to dancing for weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191530.jpg" style="width:100%"><br>
 
@@ -850,165 +730,285 @@ They are known to commonly follow ships and can form big groups when finding foo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Fresh Memes and Funny Pics of the Dank Variety </a><br>
+## <a href="#linky14" id="linky13">53 Boredom Bashing Pics That Are the Enemy of Mundane</a><br>
 
-<span style="font-size:4em">1. Remember when we all got that U2 album dropped onto our phones? That was cool, not! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192403.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191892.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192404.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191893.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. There are two types of people. Which one are you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192405.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191895.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192406.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191899.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I am the backbone of this family!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192407.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191900.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192408.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Colorized* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192409.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192410.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192411.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192412.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192413.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Someone has to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192414.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192415.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. He isnt even in his final form. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192416.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191914.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192417.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191915.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192418.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Why are men so dull? Umm, if you like me, just say so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192419.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191918.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192420.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191924.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192421.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191929.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192422.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191930.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192423.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191933.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192424.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191934.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192425.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191935.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192426.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191936.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Times have changed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192427.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191937.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192428.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191938.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Never skip leg day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192429.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024840/87192889/87191327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192430.png" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024845/87192890/87191334.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192431.png" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024851/87192891/87191330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024856/87192892/87191335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024902/87192893/87191339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024907/87192894/87191346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024915/87192895/87191365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024918/87192896/87192317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024926/87192897/87192321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024929/87192898/87192322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024939/87192899/87192326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024940/87192900/87192327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024950/87192901/87192332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024952/87192902/87192335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025001/87192903/87192338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025003/87192904/87192352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025012/87192905/87192353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025014/87192906/87192357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025023/87192907/87192605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025025/87192908/87192607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025034/87192909/87192619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025036/87192910/87192626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025046/87192911/87192636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025048/87192912/87192642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025057/87192913/87192637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025059/87192914/87192644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025108/87192915/87192647.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
+## <a href="#linky15" id="linky14">32 Adult Themed Memes for Your Deranged Sense of Humor</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100418/87193579/87098949.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Random dic pics, GO!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105412/87192686/87188775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193151.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Give her a little something something to snack on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105511/87192697/87189593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193152.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Finally, I have the power!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105407/87192685/87188774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100322/87193569/87063866.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Datass.  They dont call him woody for nothing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105348/87192682/87188762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193154.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Thats it, now hold that pose, now switch, okay right there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105322/87192677/87188752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100430/87193581/Ineb.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105450/87192693/87189579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100314/87193568/87063857.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193155.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193156.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105508/87192696/87189591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094031/87193515/87191318.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105250/87192672/87188742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193158.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193162.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105257/87192673/87188733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193163.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105302/87192674/87188745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193165.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105310/87192675/87188746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193168.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105314/87192676/87188749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193170.gif" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105333/87192679/87188758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193172.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105337/87192680/87188761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193175.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105355/87192683/87188769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193176.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105400/87192684/87188771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193177.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105418/87192687/87188776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193179.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105423/87192688/87189572.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193180.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105429/87192689/87189573.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193187.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105434/87192690/87189576.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193189.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105440/87192691/87189578.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193192.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093855/87193503/87191285.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105445/87192692/87189583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093906/87193504/87191286.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105457/87192694/87189587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093915/87193505/87191283.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093918/87193506/87191288.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105344/87192681/87188766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093931/87193507/87191289.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105501/87192695/87189590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093932/87193508/87191306.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093944/87193509/87191307.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105326/87192678/87188754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093954/87193510/87191309.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094007/87193511/87191310.jpg" style="width:100%"><br>
+## <a href="#linky16" id="linky15">25 Normal Things That Look SUS At Night</a><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094014/87193512/87191308.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094019/87193513/87191312.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Sun bathing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094027/87193514/87191315.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Cleaning the windows of the girls dorm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100311/87193567/87063840.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Digging a deep hole in the ground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100325/87193570/87063859.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “That one time Bart flew a kite at night, there was something unwholesome about it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100333/87193571/87073812.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I tend to be nocturnal, and I also love to garden. This often means I forget to water until 2 am. I let my neighbors know that I might be out there watering in the middle of the night, because they are elderly, and I dont want to give anyone a heart attack.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100337/87193572/87073827.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Parking in the middle of an empty parking lot in the dark. Ive done this so many times on long road trips and 50% of the time a cop or local will knock on my window. So I now have tape and a laminated piece of paper in my car that says: I am not: A drug dealer or buyer, A burglar watching a store, Homeless, High or drunk.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100344/87193573/87073833.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Playing Pokemon Go outdoors. Just standing at a spot, then slowly walking, then stopping again. Probably at a park since theres more activity there.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100348/87193574/87091984.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Taking a suitcase to the trash, but I’ve done it. I’ve done everything at 3am.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100356/87193575/87091989.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Getting a Knock on the door, if it’s that late it’s never for good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100400/87193576/87093750.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Asking your neighbor if they have some sugar because youre out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100407/87193577/87093766.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Taking out multiple trash bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100411/87193578/87098940.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “A kid Swinging on a swing at a playground singing a nursery rhyme.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100423/87193580/87098959.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “mowing the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I have a relative who just likes to look out their living room window. so I’m gonna say that.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Washing the car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I just took the cat poo out around 3am. To be blunt the cat poo bag is a hefty fella, so me, a six foot four-ish chunky dood hauling a big ass heavy trash bag across a parking lot, audibly struggling, and hefting the damn thing over into a dumpster looks pretty suspicious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Going to the bank.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Playing tag or paintball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Laughing hysterically after watching a funny video. Bonus points if youre at a park. The idea that you cant easily be seen looking at your phone is what might be weird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Checking the mailbox.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Cleaning the swimming pool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Parking a U-Haul van in front of the Russian embassy and walkkng away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Obviously, distributing balloons to passers-by. Bonus point if they are red and you are dressed as a clown.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Taking a kid to a playground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191189.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">23 Stalin Facts Your Teachers Never Told You</a><br>
+
+<span style="font-size:4em">1. Joseph Stalin was covered in scars from smallpox that he’d survived at the age of seven and had official photos portraying his face as smooth and fresh with well-maintained hair by heavily editing and retouching photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191228.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. In 1952, Stalin proposed German reunification under a neutral and democratic government, but was turned down by the West. It is still debated whether the offer was a bluff, a trick, or a genuine missed opportunity for reunification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191229.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Stalin struggled with depression and summoned renowned Russian psychiatrist Vladimir Bekhterev to examine him. After the examination, Bekhterev said only one word - paranoiac. He died on the very next day from what most believed was poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In 1967, Stalins only daughter Svetlana Alliluyeva defected to the US and lived in a small Wisconsin town until her death in 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Stalin, the historic leader of the USSR, was a pen name meaning man of steel. His real name was Ioseb Besarionis dzе Jughashvili.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191232.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. In 1952, Stalin offered West German Chancellor Konrad Adenauer reunification of Germany in return for permanent neutrality. Adenauer said No.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Boris Pasternak (the author of Doctor Zhivago) was almost killed in the great purge, 20 years before he wrote his famous novel. He was only saved at the last moment when Stalin himself crossed his name off the list with the note, leave that fool alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. When Truman told Stalin about the Manhattan project in July of 1945, Stalin displayed little reaction, since Stalin had known about the project for almost 4 years before Truman, and he arguably knew more about it than Truman himself did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. When Joseph Stalin was dying, his private physician was not available because he was already being tortured in the basement of the KGB headquarters for suggesting the Soviet leader required more bed rest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Genrich Altshuller, a Soviet engineer, was given a 25-year prison sentence for sending Joseph Stalin a letter explaining a desire to improve Soviet engineering. He later went on to write science fiction books and founded a famous engineering school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ivan Evgrafovich Fedorov was rewarded by Hitler and Stalin during World War 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In 1937, nearly 172,000 Koreans in the Soviet Far East were forcibly deported to unpopulated areas of Central Asia on the orders of Soviet leader Joseph Stalin. It marked the precedent of the first Soviet ethnic deportation of an entire nationality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The first president of Mongolia, Peljidiin Genden, allegedly slapped and broke Stalins pipe after Stalin pressured him to destroy Mongolias Buddhist clergies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Stalin loved Charlie Chaplin movies and even cried at the last scene of City Lights, but he banned The Great Dictator from screening in the USSR. Stalin apparently was afraid that the image of the dictator Adenoid Hynkel would bring up an unwanted comparison – not to Hitler, but to himself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Due to Chinese espionage and infiltration in Nazi Germany in WWII, the Chinese under Chiang Kai-sheks government were able to warn Stalin that Germany was planning to attack the Soviet Union in the spring of 1941, several months before the commencement of Operation Barbarossa on June 22, 1941.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Stalin’s granddaughter is a punk hippie Buddhist who runs an antique shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Stalin had his photographs edited to remove people he didnt like from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191244.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. After Joseph Stalins death, his successor embarked on a program of De-Stalinization - systematically reversing most of Stalins policies while in office, to end the era of the cult of personality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. When Joseph Stalins first wife died, he was so overcome with grief he threw himself into her grave during the funeral. Later, secret policemen arrived at the funeral, looking for Stalin (at the time a wanted fugitive); he was forced to flee the service early by jumping the graveyards fence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Joseph Stalin had a relationship with a 13 year-old and got her pregnant. Twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Joseph Stalin was highly suspicious of doctors and had many Kremlin doctors arrested and tortured. So few doctors were available that after Stalin suffered a stroke, one imprisoned doctor claimed he was mid-interrogation when his captors suddenly started asking for medical advice instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. In Stalin’s Russia, some people who were late to work three times were sent to a hard labor camp for three years as punishment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Stalin had a son who he hated and who was later captured by the nazis. Hitler offered to trade him for Friedrich Paulus, a field marshal who led the 6th army into Stalingrad. When Stalin heard of this, he allegedly said, I will not trade a Marshal for a Lieutenant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191251.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
