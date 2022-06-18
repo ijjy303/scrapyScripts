@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/18/2022-05:47:18
+Last updated: 06/18/2022-06:47:18
 <br>
 ## <a href="#linky2" id="linky1">25 Greatest 'F**k You's' Throughout History</a><br>
 
@@ -63,59 +63,71 @@ Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">24 Terrifying Facts That Help Put History into Perspective </a><br>
+## <a href="#linky3" id="linky2">32 Adult Themed Memes for Your Deranged Sense of Humor</a><br>
 
-<span style="font-size:4em">1. “The dancing plague of 1518, or dance epidemic of 1518, was a case of dancing mania that occurred in Strasbourg, Alsace (modern-day France), in the Holy Roman Empire from July 1518 to September 1518. Somewhere between 50 and 400 people took to dancing for weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191530.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Random dic pics, GO!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105412/87192686/87188775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “When the USSR collapsed, multiple nuclear weapons and boxes full of vials of smallpox were lost” - mypenisisveryerect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191531.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Give her a little something something to snack on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105511/87192697/87189593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “A lot of sailors survived the bombing of Pearl Harbor, but were trapped in their sunken ships. There was no way to rescue them. People had to listen helplessly to the men banging on the inside of the hulls for days until they gradually went quiet.” - heatherbyism</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191532.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Finally, I have the power!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105407/87192685/87188774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “When the Khmer Rouge was mass killing its citizens bullets were expensive, so when they were slaughtering babies they would grab them by the ankles and bash their heads open on a particular tree. That tree is still there by the way. Its just sitting there with a little sign on it that says baby killing tree. So many people were killed in the fields that when you look down there you see these little white flecks everywhere in the soil, and at some point you realize theyre bone.” - Matt01123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191533.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Datass.  They dont call him woody for nothing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105348/87192682/87188762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “In Bridgeton, Missouri, near where I live, there is an underground fire through the years slowly nearing nuclear waste that was dumped in the 70s, it was dumped illegally, and would cost hundreds of millions to fix” - freethedamnsel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191534.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Thats it, now hold that pose, now switch, okay right there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105322/87192677/87188752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “During the paraguayan war, paraguay sent 3500 poorly armed children between 9 to 15 yo, wounded soldiers and old men to face brazilian army (20 thousand men), because most of paraguayan combatants were killed. the date of this battle is now childrens day in paraguay.” - anylifeonmars_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191535.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105450/87192693/87189579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Near Mt St Helens, in the Gifford Pinchot National Forest, and before the volcano erupted in 1980, there were areas where you were not allowed off the footpaths. This was because Douglas Firs, which can reach 200ft, were buried in ash in prior eruptions, then rotted away. So you could step on a relatively thin layer of old ash, break through, and fall any number of feet into what amounted to a crevasse or a well.” - quikdogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191536.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Agent Orange is nowadays still a viral toxin in Vietnam, still deforming children with parents / grandparents who were exposed to the drops in the 70’s.” - blemip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191537.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “The radium girls were the women who worked in clock and aviation dial factories, painting the dials with radioactive paint that they applied by licking the brushes to point them. The long term effects of radium ingestion were known by the inventor of the paint, who was also the owner of the largest factory. He eventually died from his own creations in the same horrific ways as the women. Their struggle for justice directly lead to the creation of OSHA.” - Langstarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191538.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105508/87192696/87189591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “In the warsaw ghettos they would pile up body’s of people that might have not even been dead. someone who collapsed could have been tossed to the side and be covered with other bodies, slowly crushing them and suffocating them. until they did actually die.” - Wise_Stock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191539.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105250/87192672/87188742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Dutch Whalers and the like would raid Australian Aboriginal villages and kidnap the women, the would take them off shore and rape them in their rowboat, when the aboriginal men would try and swim out to rescue them they would wait until they reached the boats and hack off their hands with machetes. They would then kill and dump the women and sail away.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191540.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “22 Australian nurses where captured on Bangka Island by the Japanese, they where all raped, tortured, and then marched out into the sea and gunned down. Except for one who was allowed to survive. She was later gagged from saying anything and was disbarred from speaking at the Tokyo War Crimes tribunal after world war 2 ended, because the Australian government didnt want to look bad.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191541.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105257/87192673/87188733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “In 1859 the largest known coronal mass ejection from the sun hit earth. If it hit us today, the nations affected would be without power for 6-18 months, most major technologies and infrastructure would be badly degraded, the cost would be upwards of $2trillion and there is every chance of those affected moving toward a social collapse.” - rohankent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191542.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105302/87192674/87188745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Richard Nixon has written a special speech in case Neil Armstrong dies during the moon landing expedition.” - OctogoatYTofficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191543.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105310/87192675/87188746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “During the Polish Operation of the Great Purge, the Soviet NKVD shot 111,091 Poles between August of 1937 and November of 1938. That’s 7,406 Poles every month for 15 months. 246 Poles being shot in the back of the head every single day or 10 Poles being murdered by the Soviets every hour. The vast majority of these Poles were of course, completely innocent of the imaginary crimes the Soviets accused them of.” - PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191544.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105314/87192676/87188749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “During WW2, the Nazis head doctor in Auschwiz did so many inhumane experiments he was named the ‘Angel of Death.’ In his office, he had a wall of eyeballs from everybody he killed in those experiments. The CRAZIEST thing, he was able to escape and ended up living in Brazil, where he died from drowning at a resort.” - Welp_shit02</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191545.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105333/87192679/87188758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “There are cases where the Vatican actively worked to prevent kids orphaned by the Holocaust from being reunited with their remaining families after the war.  - OwnPsychology8943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191546.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105337/87192680/87188761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. ‘In 1945 the USS Indianapolis sank between Guam and the Philippines due to a Japanese submarine. Out of nearly 1200 crew members, only 316 survived. The worst part? Only 300 went down with the ship in the initial event. The other 900 crew members were trapped in the open ocean for four days before they were spotted and rescued. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191547.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105355/87192683/87188769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-That means that around 600 men died due to exposure, dehydration, salt water poisoning and shark attacks by oceanic white tip sharks. We tend to believe that great white sharks, bull sharks, and tiger sharks are responsible for the majority of shark attacks on humans, but oceanic white tip sharks have likely killed far more humans due to ships/planes sinking and the deaths not being recorded as shark attacks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191548.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105400/87192684/87188771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-They are known to commonly follow ships and can form big groups when finding food, and are pretty aggressive, but most of their victims are unrecorded in shark bite records since these attacks dont happen close to the shore.” - JulesLovesYou1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191549.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105418/87192687/87188776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “8% of all Asian men have a particular Y chromosome haplogroup. This equates to 0.5% of the worlds population. It is a very specific male to male chromosome. And occurs everywhere that Gengis Kahn and his descendants conquered. This means that 8% of Asian men can trace their lineage directly back (father to son) to Gengis Kahn. There was a lot of rape.” - newsfromplanetmike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191550.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105423/87192688/87189572.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “King Leopold and his colony in, what is now, the Congo. It was brutal. Ante Pavelic and the crimes of the Ustaše during WWII. Brutal enough that he was asked to tone it down by his Nazi Allies. He was protected by the Papacy during the war.” - Drulock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191551.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105429/87192689/87189573.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “George Washington never got to know that dinosaurs existed.” - WatchTheBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191552.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105434/87192690/87189576.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “The Childrens Crusade around 1200 started in France and Germany. They were convinced that God would allow them to take Jerusalem and convert the Muslims to Christianity. Somewhere in the neighborhood of 30000 set out for the Mediterranean Sea, which they believed God would part for them and allow them to walk to Jerusalem. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191553.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105440/87192691/87189578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105445/87192692/87189583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105457/87192694/87189587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105344/87192681/87188766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105501/87192695/87189590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105326/87192678/87188754.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -219,69 +231,47 @@ They are known to commonly follow ships and can form big groups when finding foo
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">31 Odd and Intriguing Items With Simple Explanations</a><br>
+## <a href="#linky5" id="linky4">The Best American Foods As Chosen By Non-Americans</a><br>
 
-<span style="font-size:4em">1. “Found this in a kitchen drawer. It’s stiff but still bends a little. What is this thing?”Answer: It’s a connector to a measuring cup set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192790.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I’ve tried many things so far but SMORES MAN, wow it’s perfection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044316/87192983/americanfoods2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “What is this thing? A metal spoon with a spout-like end.”Answer: It’s a saucier spoon, a mini sauce ladle. They sometimes have spouts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192791.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I really like Reuben sandwiches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044318/87192984/americanfoods3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “A scissors-like device I bought years ago at a flea market”Answer: They are tongs for sugar cubes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192792.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I had a friend from France here for nearly 6 months, and took him around the Mid-Atlantic and NYC. All he wanted to do was keep going back to Arbys for the Beef n Cheddar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044327/87192987/americanfoods1.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “A keyring-sized thingy, made of metal (quite heavy)”Answer: It’s a tent platform anchor. This is used instead of a traditional stake when camping on a wood platform. You would slide one end between the floor planks and turn it halfway to lock it in place. The spring is there, so it doesn’t fall completely through the floorboards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192793.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Buffalo wings. Because thats modern day Ambrosia.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044329/87192988/americanfoods4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Today we found a large (bigger than a beach ball) white wooden spheric structure at the beach along the Baltic Sea.”Answer: It’s an anchor ball. Day signals are used by ships when anchored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192794.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Key Lime Pie. I think I ate a whole one by myself when I was in Miami.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192991/americanfoods5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “A gray roller-like thing, it is made from iron, the spiral part rolls, saw it in a store, nothing written on it, weighs about 150 g.”Answer: It’s a grill scrubber for cleaning grill grates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192795.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Baked cheesecake, Boston chowder, pecan pie and BBQ ribs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192992/americanfoods6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “A microphone-shaped object with a transparent globe spotted on the London Underground, what is it?”Answer: That’s a light stick for the K-pop group, ATEEZ.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192796.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Gumbo. I’m talking cooked by somebody raised south of I-10.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044351/87192995/americanfoods7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Hard, round, white sphere with ’hot or cold’ words and pictures”Answer: It’s a Mentos limited edition “This or That.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192797.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Lobster Rolls. OMG these would be soooo popular back home. They are the perfect seafood sandwich!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044401/87192998/americanfoods9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “About 3 feet tall, gold-colored, but silver inside — it’s hollow like a bucket, pretty lightweight.”Answer: It’s a grape hod. It was used for collecting the harvest from the vines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192798.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Oof, I love Philly cheesesteaks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044412/87193001/americanfoods11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “What is this? I was at the zoo today and saw these in the giraffe exhibit. They appear to be made of dirt and are about 7-10 feet in height.”Answer: These are feeding/enrichment stations made to look like termite mounds. I’m a former zookeeper and have made these.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192799.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I lived in Asia and when I visited the USA for 10 days my entire diet was basically Texas BBQ with all the sides. All the Pies - Apple, Peach, Pecan, Key Lime.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044421/87193002/americanfoods8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “This is a steel wire frame with 2 glass marbles. It was found in an old garage among various stuff. The marbles can turn inside the frame.”Answer: It’s a razor blade sharpener.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192800.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Cornbread. As a guy who moved here, Americans have got cornbread down to a T. Combined with some soul food ? Makes me smile on the inside. Gives me high blood pressure, but smile on the inside too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044423/87193003/americanfoods12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Found at a used bookstore. All parts rotate and the markings/months make me think it could be for mapping.”Answer: It’s an astrolabe, the ancient-times GPS. Used usually for navigation, also for time measurement and other scientific uses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192801.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Those potatoes with cheese in it you make for thanksgiving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044432/87193004/americanfoods10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “One of my neighbors has this ceramic stirring cabbage. It has a wooden stirrer with a notch that it fits in, it was purchased in 1958.”Answer: It’s a coleslaw mixer. Put the shredded cabbage in there. Put dressing in there. Mix it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192802.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I have a friend who lived in Japan and China for a total of 6 years. The thing she missed most about American food was cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044433/87193005/americanfoods13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “3 pieces, around 150 grams, greasy but solid substance in the bottom part”Answer: It’s a perfume bottle. The top would be liquid perfume and below would be a solid perfume that you could apply to your wrists or wherever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192803.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Smoked brisket. Wow! I tried this in some small Texas town and that place deserves a Michelin star!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044434/87193006/americanfoods14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Bought scissors from a yard sale, but one of the blades is doubled with a gap in between them. Are these scissors for something specific?”Answer: These are template scissors used for cutting out paper patterns for stained-glass. The portion in the middle allows for the seam between the glass panels where the glass is soldered together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192804.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Anything fried: mozza sticks, onion rings, fried chicken etc…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044444/87193007/americanfoods15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Found this unusual egg shaped metal container, turns out, it’s an old kit for storing sewing supplies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104047/87193634/87165117.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Given the level of Mexican food in Europe generally, Tex Mex is insane compared to what we get over here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044445/87193008/americanfoods16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Plastic and hollow, size of a big SUV, the tide never reach it, attached to the ground.  Answer: Large Ship bumper/fender. The are Used to keep huge ships from smashing in the pier.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104059/87193635/87174443.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Call me basic, but I could die for New York pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044454/87193010/americanfoods17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.   Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104110/87193636/87174450.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Crab cakes!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044457/87193011/americanfoods19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.  Answer: This is a Victorian folding clamshell biscuit box. In essence it’s just a very elaborate cookie jar however they can be quite expensive especially if this one is made of Sterling silver.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104118/87193637/87174446.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. An average diner with bottomless filter coffee, pancakes, bacon and syrup was my favorite part of the day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044506/87193012/americanfoods18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.  Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104122/87193638/87174454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.  Answer: It’s a prime factorization chart.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104130/87193639/87174457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Found this while cleaning out the attic. It’s wood, looks handmade, and measures 20 cm, but I have no idea what it is or does! Answer: It’s a double spoon — a symbol of hospitality in traditional African art. It represents 2 very distinct universes that are opposite.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104133/87193640/87174456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.  Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104135/87193641/87174459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just moved to a new apartment, and found this in the living room. What is it?  Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104142/87193642/87174461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I found this metal object. No text or numbers. Can retract to be the size of a bracelet.  Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104146/87193643/87174462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Purchased in Africa, was told something about ancient sailing.  Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104153/87193644/87174463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. What Is This Ice Phenomenon I Found On The Forest Floor Today?  Answer: The term for it is frost flower and has to do with moisture freezing as it escapes plant tissue.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104158/87193645/87179852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Toilet With A U-Shaped Divot In The Front  Answer: Its a type of handicap toilet, more common in Europe than in the US. Its supposed to have an open-front seat, too. That allows a person to slide straight onto and off of the seat (such as from a wheelchair), without their genitals ever touching the seat or the bowl. This is more comfortable and decreases the spread of disease.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104204/87193646/87179863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. What Is This Type Of Clamp Used? Only Says China On It.  Answer: That’s a gang lock for lockout/Tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104209/87193647/87179866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Heavy And Small. Found In Southern Germany.  Answer: Medieval pilgrim’s badge</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104216/87193648/87179872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31.  Ukraine National Police Posted An Image Of This Strangely Textured Object, They Call It Dangerous To Health And Even Life... But What Is It?  Answer: Butterfly mines. An anti-personnel weapon manufactured by the Soviet / Russian military.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104220/87193649/87179877.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Biscuits And gravy. Nothing even comes close. A good buttermilk biscuit with a proper sausage gravy is heaven on earth. Because by the end, your heart stops beating anyway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044508/87193013/americanfoods20.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -498,57 +488,49 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Normal Things That Look SUS At Night</a><br>
+## <a href="#linky9" id="linky8">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
 
-<span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Sun bathing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191166.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Cleaning the windows of the girls dorm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191167.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Digging a deep hole in the ground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191168.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “That one time Bart flew a kite at night, there was something unwholesome about it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191169.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I tend to be nocturnal, and I also love to garden. This often means I forget to water until 2 am. I let my neighbors know that I might be out there watering in the middle of the night, because they are elderly, and I dont want to give anyone a heart attack.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191170.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Parking in the middle of an empty parking lot in the dark. Ive done this so many times on long road trips and 50% of the time a cop or local will knock on my window. So I now have tape and a laminated piece of paper in my car that says: I am not: A drug dealer or buyer, A burglar watching a store, Homeless, High or drunk.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191171.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Playing Pokemon Go outdoors. Just standing at a spot, then slowly walking, then stopping again. Probably at a park since theres more activity there.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191172.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Taking a suitcase to the trash, but I’ve done it. I’ve done everything at 3am.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191173.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Getting a Knock on the door, if it’s that late it’s never for good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191174.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Asking your neighbor if they have some sugar because youre out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191175.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Taking out multiple trash bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191176.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “A kid Swinging on a swing at a playground singing a nursery rhyme.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191177.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “mowing the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191178.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I have a relative who just likes to look out their living room window. so I’m gonna say that.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191179.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Washing the car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191180.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “I just took the cat poo out around 3am. To be blunt the cat poo bag is a hefty fella, so me, a six foot four-ish chunky dood hauling a big ass heavy trash bag across a parking lot, audibly struggling, and hefting the damn thing over into a dumpster looks pretty suspicious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191181.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Going to the bank.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191182.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Playing tag or paintball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191183.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Laughing hysterically after watching a funny video. Bonus points if youre at a park. The idea that you cant easily be seen looking at your phone is what might be weird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191184.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Checking the mailbox.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Cleaning the swimming pool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Parking a U-Haul van in front of the Russian embassy and walkkng away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Obviously, distributing balloons to passers-by. Bonus point if they are red and you are dressed as a clown.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Taking a kid to a playground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191189.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -606,7 +588,73 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
+## <a href="#linky11" id="linky10">31 Odd and Intriguing Items With Simple Explanations</a><br>
+
+<span style="font-size:4em">1. “Found this in a kitchen drawer. It’s stiff but still bends a little. What is this thing?”Answer: It’s a connector to a measuring cup set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “What is this thing? A metal spoon with a spout-like end.”Answer: It’s a saucier spoon, a mini sauce ladle. They sometimes have spouts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “A scissors-like device I bought years ago at a flea market”Answer: They are tongs for sugar cubes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “A keyring-sized thingy, made of metal (quite heavy)”Answer: It’s a tent platform anchor. This is used instead of a traditional stake when camping on a wood platform. You would slide one end between the floor planks and turn it halfway to lock it in place. The spring is there, so it doesn’t fall completely through the floorboards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Today we found a large (bigger than a beach ball) white wooden spheric structure at the beach along the Baltic Sea.”Answer: It’s an anchor ball. Day signals are used by ships when anchored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “A gray roller-like thing, it is made from iron, the spiral part rolls, saw it in a store, nothing written on it, weighs about 150 g.”Answer: It’s a grill scrubber for cleaning grill grates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “A microphone-shaped object with a transparent globe spotted on the London Underground, what is it?”Answer: That’s a light stick for the K-pop group, ATEEZ.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Hard, round, white sphere with ’hot or cold’ words and pictures”Answer: It’s a Mentos limited edition “This or That.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “About 3 feet tall, gold-colored, but silver inside — it’s hollow like a bucket, pretty lightweight.”Answer: It’s a grape hod. It was used for collecting the harvest from the vines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “What is this? I was at the zoo today and saw these in the giraffe exhibit. They appear to be made of dirt and are about 7-10 feet in height.”Answer: These are feeding/enrichment stations made to look like termite mounds. I’m a former zookeeper and have made these.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “This is a steel wire frame with 2 glass marbles. It was found in an old garage among various stuff. The marbles can turn inside the frame.”Answer: It’s a razor blade sharpener.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Found at a used bookstore. All parts rotate and the markings/months make me think it could be for mapping.”Answer: It’s an astrolabe, the ancient-times GPS. Used usually for navigation, also for time measurement and other scientific uses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “One of my neighbors has this ceramic stirring cabbage. It has a wooden stirrer with a notch that it fits in, it was purchased in 1958.”Answer: It’s a coleslaw mixer. Put the shredded cabbage in there. Put dressing in there. Mix it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “3 pieces, around 150 grams, greasy but solid substance in the bottom part”Answer: It’s a perfume bottle. The top would be liquid perfume and below would be a solid perfume that you could apply to your wrists or wherever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Bought scissors from a yard sale, but one of the blades is doubled with a gap in between them. Are these scissors for something specific?”Answer: These are template scissors used for cutting out paper patterns for stained-glass. The portion in the middle allows for the seam between the glass panels where the glass is soldered together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Found this unusual egg shaped metal container, turns out, it’s an old kit for storing sewing supplies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104047/87193634/87165117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Plastic and hollow, size of a big SUV, the tide never reach it, attached to the ground.  Answer: Large Ship bumper/fender. The are Used to keep huge ships from smashing in the pier.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104059/87193635/87174443.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.   Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104110/87193636/87174450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.  Answer: This is a Victorian folding clamshell biscuit box. In essence it’s just a very elaborate cookie jar however they can be quite expensive especially if this one is made of Sterling silver.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104118/87193637/87174446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.  Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104122/87193638/87174454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.  Answer: It’s a prime factorization chart.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104130/87193639/87174457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Found this while cleaning out the attic. It’s wood, looks handmade, and measures 20 cm, but I have no idea what it is or does! Answer: It’s a double spoon — a symbol of hospitality in traditional African art. It represents 2 very distinct universes that are opposite.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104133/87193640/87174456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.  Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104135/87193641/87174459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Just moved to a new apartment, and found this in the living room. What is it?  Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104142/87193642/87174461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I found this metal object. No text or numbers. Can retract to be the size of a bracelet.  Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104146/87193643/87174462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Purchased in Africa, was told something about ancient sailing.  Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104153/87193644/87174463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. What Is This Ice Phenomenon I Found On The Forest Floor Today?  Answer: The term for it is frost flower and has to do with moisture freezing as it escapes plant tissue.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104158/87193645/87179852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Toilet With A U-Shaped Divot In The Front  Answer: Its a type of handicap toilet, more common in Europe than in the US. Its supposed to have an open-front seat, too. That allows a person to slide straight onto and off of the seat (such as from a wheelchair), without their genitals ever touching the seat or the bowl. This is more comfortable and decreases the spread of disease.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104204/87193646/87179863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. What Is This Type Of Clamp Used? Only Says China On It.  Answer: That’s a gang lock for lockout/Tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104209/87193647/87179866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Heavy And Small. Found In Southern Germany.  Answer: Medieval pilgrim’s badge</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104216/87193648/87179872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31.  Ukraine National Police Posted An Image Of This Strangely Textured Object, They Call It Dangerous To Health And Even Life... But What Is It?  Answer: Butterfly mines. An anti-personnel weapon manufactured by the Soviet / Russian military.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104220/87193649/87179877.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192243.jpg" style="width:100%"><br>
 
@@ -658,119 +706,167 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">32 Adult Themed Memes for Your Deranged Sense of Humor</a><br>
+## <a href="#linky13" id="linky12">25 Normal Things That Look SUS At Night</a><br>
 
-<span style="font-size:4em">1. Random dic pics, GO!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105412/87192686/87188775.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Give her a little something something to snack on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105511/87192697/87189593.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Sun bathing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Finally, I have the power!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105407/87192685/87188774.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Cleaning the windows of the girls dorm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Datass.  They dont call him woody for nothing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105348/87192682/87188762.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Digging a deep hole in the ground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Thats it, now hold that pose, now switch, okay right there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105322/87192677/87188752.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “That one time Bart flew a kite at night, there was something unwholesome about it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105450/87192693/87189579.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I tend to be nocturnal, and I also love to garden. This often means I forget to water until 2 am. I let my neighbors know that I might be out there watering in the middle of the night, because they are elderly, and I dont want to give anyone a heart attack.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188813.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Parking in the middle of an empty parking lot in the dark. Ive done this so many times on long road trips and 50% of the time a cop or local will knock on my window. So I now have tape and a laminated piece of paper in my car that says: I am not: A drug dealer or buyer, A burglar watching a store, Homeless, High or drunk.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188828.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Playing Pokemon Go outdoors. Just standing at a spot, then slowly walking, then stopping again. Probably at a park since theres more activity there.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105508/87192696/87189591.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Taking a suitcase to the trash, but I’ve done it. I’ve done everything at 3am.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105250/87192672/87188742.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Getting a Knock on the door, if it’s that late it’s never for good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188805.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Asking your neighbor if they have some sugar because youre out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105257/87192673/87188733.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Taking out multiple trash bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105302/87192674/87188745.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “A kid Swinging on a swing at a playground singing a nursery rhyme.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105310/87192675/87188746.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “mowing the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105314/87192676/87188749.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I have a relative who just likes to look out their living room window. so I’m gonna say that.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105333/87192679/87188758.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Washing the car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105337/87192680/87188761.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “I just took the cat poo out around 3am. To be blunt the cat poo bag is a hefty fella, so me, a six foot four-ish chunky dood hauling a big ass heavy trash bag across a parking lot, audibly struggling, and hefting the damn thing over into a dumpster looks pretty suspicious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105355/87192683/87188769.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Going to the bank.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105400/87192684/87188771.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Playing tag or paintball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105418/87192687/87188776.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Laughing hysterically after watching a funny video. Bonus points if youre at a park. The idea that you cant easily be seen looking at your phone is what might be weird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105423/87192688/87189572.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Checking the mailbox.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105429/87192689/87189573.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “Cleaning the swimming pool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105434/87192690/87189576.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “Parking a U-Haul van in front of the Russian embassy and walkkng away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105440/87192691/87189578.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Obviously, distributing balloons to passers-by. Bonus point if they are red and you are dressed as a clown.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105445/87192692/87189583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105457/87192694/87189587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105344/87192681/87188766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105501/87192695/87189590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87188795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105326/87192678/87188754.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Taking a kid to a playground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191189.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">The Best American Foods As Chosen By Non-Americans</a><br>
+## <a href="#linky14" id="linky13">24 Terrifying Facts That Help Put History into Perspective </a><br>
 
-<span style="font-size:4em">1. I’ve tried many things so far but SMORES MAN, wow it’s perfection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044316/87192983/americanfoods2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The dancing plague of 1518, or dance epidemic of 1518, was a case of dancing mania that occurred in Strasbourg, Alsace (modern-day France), in the Holy Roman Empire from July 1518 to September 1518. Somewhere between 50 and 400 people took to dancing for weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I really like Reuben sandwiches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044318/87192984/americanfoods3.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “When the USSR collapsed, multiple nuclear weapons and boxes full of vials of smallpox were lost” - mypenisisveryerect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I had a friend from France here for nearly 6 months, and took him around the Mid-Atlantic and NYC. All he wanted to do was keep going back to Arbys for the Beef n Cheddar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044327/87192987/americanfoods1.png" style="width:100%"><br>
+<span style="font-size:4em">3. “A lot of sailors survived the bombing of Pearl Harbor, but were trapped in their sunken ships. There was no way to rescue them. People had to listen helplessly to the men banging on the inside of the hulls for days until they gradually went quiet.” - heatherbyism</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Buffalo wings. Because thats modern day Ambrosia.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044329/87192988/americanfoods4.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “When the Khmer Rouge was mass killing its citizens bullets were expensive, so when they were slaughtering babies they would grab them by the ankles and bash their heads open on a particular tree. That tree is still there by the way. Its just sitting there with a little sign on it that says baby killing tree. So many people were killed in the fields that when you look down there you see these little white flecks everywhere in the soil, and at some point you realize theyre bone.” - Matt01123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Key Lime Pie. I think I ate a whole one by myself when I was in Miami.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192991/americanfoods5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “In Bridgeton, Missouri, near where I live, there is an underground fire through the years slowly nearing nuclear waste that was dumped in the 70s, it was dumped illegally, and would cost hundreds of millions to fix” - freethedamnsel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Baked cheesecake, Boston chowder, pecan pie and BBQ ribs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192992/americanfoods6.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “During the paraguayan war, paraguay sent 3500 poorly armed children between 9 to 15 yo, wounded soldiers and old men to face brazilian army (20 thousand men), because most of paraguayan combatants were killed. the date of this battle is now childrens day in paraguay.” - anylifeonmars_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Gumbo. I’m talking cooked by somebody raised south of I-10.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044351/87192995/americanfoods7.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Near Mt St Helens, in the Gifford Pinchot National Forest, and before the volcano erupted in 1980, there were areas where you were not allowed off the footpaths. This was because Douglas Firs, which can reach 200ft, were buried in ash in prior eruptions, then rotted away. So you could step on a relatively thin layer of old ash, break through, and fall any number of feet into what amounted to a crevasse or a well.” - quikdogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Lobster Rolls. OMG these would be soooo popular back home. They are the perfect seafood sandwich!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044401/87192998/americanfoods9.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Agent Orange is nowadays still a viral toxin in Vietnam, still deforming children with parents / grandparents who were exposed to the drops in the 70’s.” - blemip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Oof, I love Philly cheesesteaks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044412/87193001/americanfoods11.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “The radium girls were the women who worked in clock and aviation dial factories, painting the dials with radioactive paint that they applied by licking the brushes to point them. The long term effects of radium ingestion were known by the inventor of the paint, who was also the owner of the largest factory. He eventually died from his own creations in the same horrific ways as the women. Their struggle for justice directly lead to the creation of OSHA.” - Langstarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I lived in Asia and when I visited the USA for 10 days my entire diet was basically Texas BBQ with all the sides. All the Pies - Apple, Peach, Pecan, Key Lime.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044421/87193002/americanfoods8.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “In the warsaw ghettos they would pile up body’s of people that might have not even been dead. someone who collapsed could have been tossed to the side and be covered with other bodies, slowly crushing them and suffocating them. until they did actually die.” - Wise_Stock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Cornbread. As a guy who moved here, Americans have got cornbread down to a T. Combined with some soul food ? Makes me smile on the inside. Gives me high blood pressure, but smile on the inside too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044423/87193003/americanfoods12.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Dutch Whalers and the like would raid Australian Aboriginal villages and kidnap the women, the would take them off shore and rape them in their rowboat, when the aboriginal men would try and swim out to rescue them they would wait until they reached the boats and hack off their hands with machetes. They would then kill and dump the women and sail away.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Those potatoes with cheese in it you make for thanksgiving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044432/87193004/americanfoods10.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “22 Australian nurses where captured on Bangka Island by the Japanese, they where all raped, tortured, and then marched out into the sea and gunned down. Except for one who was allowed to survive. She was later gagged from saying anything and was disbarred from speaking at the Tokyo War Crimes tribunal after world war 2 ended, because the Australian government didnt want to look bad.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I have a friend who lived in Japan and China for a total of 6 years. The thing she missed most about American food was cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044433/87193005/americanfoods13.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “In 1859 the largest known coronal mass ejection from the sun hit earth. If it hit us today, the nations affected would be without power for 6-18 months, most major technologies and infrastructure would be badly degraded, the cost would be upwards of $2trillion and there is every chance of those affected moving toward a social collapse.” - rohankent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191542.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Smoked brisket. Wow! I tried this in some small Texas town and that place deserves a Michelin star!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044434/87193006/americanfoods14.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Richard Nixon has written a special speech in case Neil Armstrong dies during the moon landing expedition.” - OctogoatYTofficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191543.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Anything fried: mozza sticks, onion rings, fried chicken etc…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044444/87193007/americanfoods15.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “During the Polish Operation of the Great Purge, the Soviet NKVD shot 111,091 Poles between August of 1937 and November of 1938. That’s 7,406 Poles every month for 15 months. 246 Poles being shot in the back of the head every single day or 10 Poles being murdered by the Soviets every hour. The vast majority of these Poles were of course, completely innocent of the imaginary crimes the Soviets accused them of.” - PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Given the level of Mexican food in Europe generally, Tex Mex is insane compared to what we get over here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044445/87193008/americanfoods16.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “During WW2, the Nazis head doctor in Auschwiz did so many inhumane experiments he was named the ‘Angel of Death.’ In his office, he had a wall of eyeballs from everybody he killed in those experiments. The CRAZIEST thing, he was able to escape and ended up living in Brazil, where he died from drowning at a resort.” - Welp_shit02</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191545.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Call me basic, but I could die for New York pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044454/87193010/americanfoods17.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “There are cases where the Vatican actively worked to prevent kids orphaned by the Holocaust from being reunited with their remaining families after the war.  - OwnPsychology8943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Crab cakes!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044457/87193011/americanfoods19.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. ‘In 1945 the USS Indianapolis sank between Guam and the Philippines due to a Japanese submarine. Out of nearly 1200 crew members, only 316 survived. The worst part? Only 300 went down with the ship in the initial event. The other 900 crew members were trapped in the open ocean for four days before they were spotted and rescued. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191547.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. An average diner with bottomless filter coffee, pancakes, bacon and syrup was my favorite part of the day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044506/87193012/americanfoods18.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+That means that around 600 men died due to exposure, dehydration, salt water poisoning and shark attacks by oceanic white tip sharks. We tend to believe that great white sharks, bull sharks, and tiger sharks are responsible for the majority of shark attacks on humans, but oceanic white tip sharks have likely killed far more humans due to ships/planes sinking and the deaths not being recorded as shark attacks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191548.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Biscuits And gravy. Nothing even comes close. A good buttermilk biscuit with a proper sausage gravy is heaven on earth. Because by the end, your heart stops beating anyway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044508/87193013/americanfoods20.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+They are known to commonly follow ships and can form big groups when finding food, and are pretty aggressive, but most of their victims are unrecorded in shark bite records since these attacks dont happen close to the shore.” - JulesLovesYou1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “8% of all Asian men have a particular Y chromosome haplogroup. This equates to 0.5% of the worlds population. It is a very specific male to male chromosome. And occurs everywhere that Gengis Kahn and his descendants conquered. This means that 8% of Asian men can trace their lineage directly back (father to son) to Gengis Kahn. There was a lot of rape.” - newsfromplanetmike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “King Leopold and his colony in, what is now, the Congo. It was brutal. Ante Pavelic and the crimes of the Ustaše during WWII. Brutal enough that he was asked to tone it down by his Nazi Allies. He was protected by the Papacy during the war.” - Drulock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “George Washington never got to know that dinosaurs existed.” - WatchTheBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The Childrens Crusade around 1200 started in France and Germany. They were convinced that God would allow them to take Jerusalem and convert the Muslims to Christianity. Somewhere in the neighborhood of 30000 set out for the Mediterranean Sea, which they believed God would part for them and allow them to walk to Jerusalem. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191553.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Fresh Memes and Funny Pics of the Dank Variety </a><br>
+## <a href="#linky15" id="linky14">23 Stalin Facts Your Teachers Never Told You</a><br>
+
+<span style="font-size:4em">1. Joseph Stalin was covered in scars from smallpox that he’d survived at the age of seven and had official photos portraying his face as smooth and fresh with well-maintained hair by heavily editing and retouching photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191228.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. In 1952, Stalin proposed German reunification under a neutral and democratic government, but was turned down by the West. It is still debated whether the offer was a bluff, a trick, or a genuine missed opportunity for reunification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191229.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Stalin struggled with depression and summoned renowned Russian psychiatrist Vladimir Bekhterev to examine him. After the examination, Bekhterev said only one word - paranoiac. He died on the very next day from what most believed was poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In 1967, Stalins only daughter Svetlana Alliluyeva defected to the US and lived in a small Wisconsin town until her death in 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Stalin, the historic leader of the USSR, was a pen name meaning man of steel. His real name was Ioseb Besarionis dzе Jughashvili.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191232.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. In 1952, Stalin offered West German Chancellor Konrad Adenauer reunification of Germany in return for permanent neutrality. Adenauer said No.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Boris Pasternak (the author of Doctor Zhivago) was almost killed in the great purge, 20 years before he wrote his famous novel. He was only saved at the last moment when Stalin himself crossed his name off the list with the note, leave that fool alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. When Truman told Stalin about the Manhattan project in July of 1945, Stalin displayed little reaction, since Stalin had known about the project for almost 4 years before Truman, and he arguably knew more about it than Truman himself did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. When Joseph Stalin was dying, his private physician was not available because he was already being tortured in the basement of the KGB headquarters for suggesting the Soviet leader required more bed rest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Genrich Altshuller, a Soviet engineer, was given a 25-year prison sentence for sending Joseph Stalin a letter explaining a desire to improve Soviet engineering. He later went on to write science fiction books and founded a famous engineering school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ivan Evgrafovich Fedorov was rewarded by Hitler and Stalin during World War 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In 1937, nearly 172,000 Koreans in the Soviet Far East were forcibly deported to unpopulated areas of Central Asia on the orders of Soviet leader Joseph Stalin. It marked the precedent of the first Soviet ethnic deportation of an entire nationality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The first president of Mongolia, Peljidiin Genden, allegedly slapped and broke Stalins pipe after Stalin pressured him to destroy Mongolias Buddhist clergies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Stalin loved Charlie Chaplin movies and even cried at the last scene of City Lights, but he banned The Great Dictator from screening in the USSR. Stalin apparently was afraid that the image of the dictator Adenoid Hynkel would bring up an unwanted comparison – not to Hitler, but to himself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Due to Chinese espionage and infiltration in Nazi Germany in WWII, the Chinese under Chiang Kai-sheks government were able to warn Stalin that Germany was planning to attack the Soviet Union in the spring of 1941, several months before the commencement of Operation Barbarossa on June 22, 1941.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Stalin’s granddaughter is a punk hippie Buddhist who runs an antique shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Stalin had his photographs edited to remove people he didnt like from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191244.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. After Joseph Stalins death, his successor embarked on a program of De-Stalinization - systematically reversing most of Stalins policies while in office, to end the era of the cult of personality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. When Joseph Stalins first wife died, he was so overcome with grief he threw himself into her grave during the funeral. Later, secret policemen arrived at the funeral, looking for Stalin (at the time a wanted fugitive); he was forced to flee the service early by jumping the graveyards fence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Joseph Stalin had a relationship with a 13 year-old and got her pregnant. Twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Joseph Stalin was highly suspicious of doctors and had many Kremlin doctors arrested and tortured. So few doctors were available that after Stalin suffered a stroke, one imprisoned doctor claimed he was mid-interrogation when his captors suddenly started asking for medical advice instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. In Stalin’s Russia, some people who were late to work three times were sent to a hard labor camp for three years as punishment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Stalin had a son who he hated and who was later captured by the nazis. Hitler offered to trade him for Friedrich Paulus, a field marshal who led the 6th army into Stalingrad. When Stalin heard of this, he allegedly said, I will not trade a Marshal for a Lieutenant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191251.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">Fresh Memes and Funny Pics of the Dank Variety </a><br>
 
 <span style="font-size:4em">1. Remember when we all got that U2 album dropped onto our phones? That was cool, not! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192403.jpg" style="width:100%"><br>
 
@@ -829,102 +925,6 @@ I remember the first couple of slips of paper said stuff like “you will have g
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192430.png" style="width:100%"><br>
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192431.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">23 Stalin Facts Your Teachers Never Told You</a><br>
-
-<span style="font-size:4em">1. Joseph Stalin was covered in scars from smallpox that he’d survived at the age of seven and had official photos portraying his face as smooth and fresh with well-maintained hair by heavily editing and retouching photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191228.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. In 1952, Stalin proposed German reunification under a neutral and democratic government, but was turned down by the West. It is still debated whether the offer was a bluff, a trick, or a genuine missed opportunity for reunification.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191229.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Stalin struggled with depression and summoned renowned Russian psychiatrist Vladimir Bekhterev to examine him. After the examination, Bekhterev said only one word - paranoiac. He died on the very next day from what most believed was poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 1967, Stalins only daughter Svetlana Alliluyeva defected to the US and lived in a small Wisconsin town until her death in 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Stalin, the historic leader of the USSR, was a pen name meaning man of steel. His real name was Ioseb Besarionis dzе Jughashvili.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191232.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. In 1952, Stalin offered West German Chancellor Konrad Adenauer reunification of Germany in return for permanent neutrality. Adenauer said No.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Boris Pasternak (the author of Doctor Zhivago) was almost killed in the great purge, 20 years before he wrote his famous novel. He was only saved at the last moment when Stalin himself crossed his name off the list with the note, leave that fool alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. When Truman told Stalin about the Manhattan project in July of 1945, Stalin displayed little reaction, since Stalin had known about the project for almost 4 years before Truman, and he arguably knew more about it than Truman himself did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. When Joseph Stalin was dying, his private physician was not available because he was already being tortured in the basement of the KGB headquarters for suggesting the Soviet leader required more bed rest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Genrich Altshuller, a Soviet engineer, was given a 25-year prison sentence for sending Joseph Stalin a letter explaining a desire to improve Soviet engineering. He later went on to write science fiction books and founded a famous engineering school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ivan Evgrafovich Fedorov was rewarded by Hitler and Stalin during World War 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In 1937, nearly 172,000 Koreans in the Soviet Far East were forcibly deported to unpopulated areas of Central Asia on the orders of Soviet leader Joseph Stalin. It marked the precedent of the first Soviet ethnic deportation of an entire nationality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The first president of Mongolia, Peljidiin Genden, allegedly slapped and broke Stalins pipe after Stalin pressured him to destroy Mongolias Buddhist clergies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Stalin loved Charlie Chaplin movies and even cried at the last scene of City Lights, but he banned The Great Dictator from screening in the USSR. Stalin apparently was afraid that the image of the dictator Adenoid Hynkel would bring up an unwanted comparison – not to Hitler, but to himself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Due to Chinese espionage and infiltration in Nazi Germany in WWII, the Chinese under Chiang Kai-sheks government were able to warn Stalin that Germany was planning to attack the Soviet Union in the spring of 1941, several months before the commencement of Operation Barbarossa on June 22, 1941.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Stalin’s granddaughter is a punk hippie Buddhist who runs an antique shop in Portland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Stalin had his photographs edited to remove people he didnt like from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191244.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. After Joseph Stalins death, his successor embarked on a program of De-Stalinization - systematically reversing most of Stalins policies while in office, to end the era of the cult of personality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. When Joseph Stalins first wife died, he was so overcome with grief he threw himself into her grave during the funeral. Later, secret policemen arrived at the funeral, looking for Stalin (at the time a wanted fugitive); he was forced to flee the service early by jumping the graveyards fence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Joseph Stalin had a relationship with a 13 year-old and got her pregnant. Twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Joseph Stalin was highly suspicious of doctors and had many Kremlin doctors arrested and tortured. So few doctors were available that after Stalin suffered a stroke, one imprisoned doctor claimed he was mid-interrogation when his captors suddenly started asking for medical advice instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. In Stalin’s Russia, some people who were late to work three times were sent to a hard labor camp for three years as punishment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Stalin had a son who he hated and who was later captured by the nazis. Hitler offered to trade him for Friedrich Paulus, a field marshal who led the 6th army into Stalingrad. When Stalin heard of this, he allegedly said, I will not trade a Marshal for a Lieutenant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191251.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
