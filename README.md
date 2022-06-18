@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/18/2022-15:47:18
+Last updated: 06/18/2022-16:47:18
 <br>
 ## <a href="#linky2" id="linky1">34 Truly Wholesome Pics that Might Move You</a><br>
 
@@ -73,107 +73,7 @@ Last updated: 06/18/2022-15:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100418/87193579/87098949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100322/87193569/87063866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100430/87193581/Ineb.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100314/87193568/87063857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094031/87193515/87191318.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193170.gif" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193179.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193180.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093855/87193503/87191285.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093906/87193504/87191286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093915/87193505/87191283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093918/87193506/87191288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093931/87193507/87191289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093932/87193508/87191306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093944/87193509/87191307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093954/87193510/87191309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094007/87193511/87191310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094014/87193512/87191308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094019/87193513/87191312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094027/87193514/87191315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100311/87193567/87063840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100325/87193570/87063859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100333/87193571/87073812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100337/87193572/87073827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100344/87193573/87073833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100348/87193574/87091984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100356/87193575/87091989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100400/87193576/87093750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100407/87193577/87093766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100411/87193578/87098940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100423/87193580/87098959.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">Fresh Memes and Funny Pics of the Dank Variety </a><br>
+## <a href="#linky3" id="linky2">Fresh Memes and Funny Pics of the Dank Variety </a><br>
 
 <span style="font-size:4em">1. Remember when we all got that U2 album dropped onto our phones? That was cool, not! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192403.jpg" style="width:100%"><br>
 
@@ -235,55 +135,148 @@ Last updated: 06/18/2022-15:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
+## <a href="#linky4" id="linky3">Scary Things Kids Have Said Proving They’re Absolute Creeps</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192243.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Him: too bad the babysitter died. Me: no she didn’t bud, she’s just not here today. Him: or she’s in the freezer (while staring at the freezer) Me: you’re pretty creepy sometimes bud Him: just smiles.
+
+-u/jvac23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192226.gif" style="width:100%"><br>
+<span style="font-size:4em">2. My son tells me stories of scary uncle Michael in his bedroom at night. He says hes a grey man that looks like his uncle and he climbs on walls and calls out to him and one night he tried to eat him. Yep, nightmare fuel.
+
+-u/steaky_bake_92</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192235.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. My 3-year-old granddaughter said, Grandma, I just saw a man with no eyes go upstairs.
+
+-u/auntshooey1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192227.gif" style="width:100%"><br>
+<span style="font-size:4em">4. My little sister had some creepy moments when we were younger. She often claimed that “people” were in her bathroom at night talking, and watching her. She called them “Po and the Tape Monster”. There are a couple of stories regarding them, both funny and creepy.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192228.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193096.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192229.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+One night she woke up scared and went to my parents’ room to sleep with them. Before she went back to sleep, she used their bathroom, and when she came out she said “Why are there people in your bathroom mommy?” Dad was out of town, mom still swears this was the scariest thing any of my siblings ever did. -u/TheKrazyKrab23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192230.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. While I was driving my four-year-old nephew around he spent a solid few minutes telling me about the dead body he stashed in my trunk. This was a long time ago and as far as I know, he isn’t a serial killer.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192231.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Creepy and funny. My youngest once said to me: “I could make three baby hands out of your hand meat.”
+
+-u/Captainfreshness</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192232.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Definitely thought it was more funny than creepy, but when my kid was 2 he was scribbling on a piece of paper and quietly sang (to the tune of Row, Row, Row Your Boat) Scrape, scrape, scrape your eyes, scrape your eyes today.
+
+-u/Zanarkandite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192233.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. My kid keeps talking about the babies in the walls of his bedroom. Very off-putting.
+
+-u/JohnnyLett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192234.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. My mom loves telling me this story about the time I discovered hypnotism. When I was four, I found out about hypnotism. I don’t remember how, but apparently, I became fascinated by the idea of having mind control abilities. One day, my mom says my grandpa loaded me into the car for one of our normal grocery store outings only for him to return an hour later “furious.” 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192236.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192237.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+After he calmed down, he told my mom that I refused to stop staring him down in the rear view mirror with a very serious look on my face. He had asked me to stop on several occasions but said I never really replied. I just kept staring menacingly. Then, he said all of a sudden I looked into his eyes and said, “Papa…. I’m going to hippo-tize you…. I’m going to put my toe… in your mouth.” My mom said she thought it was funny at the time, but couldn’t laugh because my grandfather was seriously so enraged.
+-u/_dwelf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192238.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. We were at a crowded funeral home for his great-grandpa’s service when my son announced he was “here to see the corpse.”
+
+-u/Catflappy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192239.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My ex-father-in-law died a couple of years before my daughter was born so she never met him. He was known as a pretty funny guy, always quick with a one-liner. As strange as it sounds, there were no pictures of him around until my daughter was about 4 years old and my ex-mother-in-law set one next to the urn where his ashes were kept. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192240.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192241.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+The first time my daughter saw the picture she pointed to it and said, “That’s grandpa! I like when he looks in my window and makes me laugh. I don’t like his friends, though.” She had never mentioned this. When I tried to ask her about it, she seemed nonchalant. She’s older now and says she doesn’t remember it. I’ll never forget it.
+
+-u/lolochi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193107.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192242.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. My youngest (was 4) was on the carpet playing with his cars.
+Son: I can’t wait to get a new house when this house explodes
+Me: (half listening) Uh-huh, sure that sounds… wait, what??
+Son: yeah when our house explodes, be ready and we’ll just run out real fast (and then he turned back to playing with cars like nothing was said)
+Thankfully that was 5 years ago, and my house has not exploded.
+
+-u/MrsSmith07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193108.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192244.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Just after my little brother was born my mom, 3 y.o. sister and I were talking about what not to do around the baby. Things like not leaving small toys out or throwing balls around the baby. After a few minutes my sister chimed in and said, and you dont cut off babies lips with a sharp knife.
+
+-u/bucnasty303</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192245.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Do you like burning?” -The new little girl neighbor.
+
+-u/Deverouxe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192246.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. How come youre not waking up tomorrow?
+
+-u/Emergency-Hyena5134</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192247.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. My son was around 3 at the time. Kept refusing to go downstairs as that’s where angel man was, and angel man wanted to hurt the family.
+
+-u/New_journey868</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192248.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. When I was about six or seven, the house we were renting was going to be sold. My parents instructed us to keep our rooms tidy because people may be walking through the house during showings. I had the idea to take a little box and write “fortunes” on it. Inside were little slips of paper with “fortunes”. The idea was that prospective buyers could take a slip of paper to get their fortune, kind of like a fortune cookie. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192249.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I remember the first couple of slips of paper said stuff like “you will have good luck”. Then the rest of them had some pretty morbid stuff like “you’re going to die”. My parents read the slips of paper beforehand, then sat me down and sternly told me the fortune box was a no-go. I was a pretty serious child, it didn’t occur to me that a fortune box should be light-hearted. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193110.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -403,105 +396,67 @@ Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
+## <a href="#linky8" id="linky7">The Funniest and Most Savage Tweets of the Week </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. What does that one dentist know that the rest of us dont? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
+<span style="font-size:4em">2. That is one big avocado. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
+<span style="font-size:4em">3. He watches over me, my Shaquille ONeal angel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
+<span style="font-size:4em">4. That man is in for the long haul. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
+<span style="font-size:4em">5. Its not a bug its a feature, people! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193784.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193782.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
+<span style="font-size:4em">7. Her loss bro, dont fret it champ. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193787.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
+<span style="font-size:4em">8. Lmao</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193788.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193789.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
+<span style="font-size:4em">10. Is the woman dead or what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
+<span style="font-size:4em">14. Its banana time baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193794.gif" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
+<span style="font-size:4em">15. Now that would have been a good troll. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
+<span style="font-size:4em">20. Time for a bath. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Some of these were kinda dumb, but this, this is genuis. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193802.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193803.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">24 Insane Facts About World War I</a><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Smarties candy was originally made with machines that were built to make gunpowder pellets for ammunition during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193064.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The watch made its migration from the pocket to the wrist during World War I, when soldiers were obligated to attach them to their arms for coordinated attacks, instead of fumbling in their pockets. Before then, the bracelet watch had mostly been regarded as a joke and silly fad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193065.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In World War I, California’s schoolchildren were enlisted in a war on squirrels with one-sided casualties exceeding 100,000 ground squirrels.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193066.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Humphrey Bogart was a veteran of World War I, serving in the U.S. Navy aboard the USS Leviathan. Too old to reenlist in the Navy during World War II, he volunteered for the Coast Guard Temporary Reserve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193067.png" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In World War I, 2 damaged Destroyers, the Nubian and the Zulu, were joined together to create the Zubian.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The 1919 Tour de France featured the lowest number of participants finishing in the races history, due to the damage caused to French roads during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193069.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Henry Gunther was an American soldier who charged a German machine gun nest trying to regain his rank after being demoted. He was reluctantly killed by them at 10:59 am on November 11th, 1918. One minute before the Armistice took effect. Making him the last soldier killed in World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Veterans Day occurs on November 11 every year in the United States in honor of the “eleventh hour of the eleventh day of the eleventh month of 1918 that signaled the end of World War I, known as Armistice Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. During World War I, the German government carried out a census of Jews to prove that German Jews werent pulling their weight in the war effort. What they found out instead was that Jews were overrepresented on the front lines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Australians developed Vegemite because they couldnt wait for Marmite supplies to resume after World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. During World War I, Germany attempted to preclusively purchase every hydraulic press in the US for the next two years to limit artillery shell production.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Mercy dogs were trained during World War I to comfort mortally wounded soldiers as they died in no mans land.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When Germany invaded Belgium in World War I, King Albert I took personal command of the Belgian Army. He led his army for 4 years, fighting alongside his troops, while his wife, Queen Elisabeth, worked as a nurse at the front. His 12 year-old son, the Crown Prince, also fought in the ranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Theodore Roosevelts youngest son Quentin Roosevelt I was a pilot in World War I and was killed in France during combat. He is the only child of a US President to die in combat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Mustard gas, which was used heavily during World War I, is not just a skin irritant but damages DNA by corrupting molecules in the strand. If the victim survives, the DNA damage can lead to the development of cancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Full-length audiobooks were originally introduced in the 1930s for people with visual disabilities, such as war-blinded World War I veterans and civilians who couldnt read braille. The average novel fit on 10 gramophone records.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The most skilled sniper in all of World War I was a Canadian Indigenous man, Francis Pegahmagabow. He had 378 confirmed kills, captured over 300 enemy soldiers, and spent his post-war life fighting for Indigenous rights. He remains the most decorated Indigenous soldier in Canadian history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. World War I boosted the modern bra market when the U.S. War Industries Board asked American women in 1917 to stop buying corsets because corset frames were mostly made of metal, which was needed for ammunition and other military supplies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193081.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. McDonalds founder Ray Kroc and Walt Disney both served as ambulance drivers in the same unit in World War I, and both had lied about their age to enlist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Archduke Franz Ferdinand, the heir to the Austro-Hungarian Empire, repeatedly warned Viennas hardline Chief of Staff that continued harsh oppression of the Serbians would eventually draw Austria into a war with Russia and spell the doom of both empires. Neither empire survived World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. In 1932, a group of World War I veterans gathered in Washington, DC to demand early payment of their service bonuses. President Hoover called in the Army to disperse the protestors. With a force of 500 infantrymen, 500 cavalry, and 6 tanks, the Army succeeded, and two veterans were killed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. People started wearing pajamas, originally spelled “pyjamas,” instead of nightgowns so they’d be prepared to run outside in public during World War I air raids in England.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The beginnings of the modern era of cancer chemotherapy can be traced directly to the German introduction of chemical warfare during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The 369th Infantry Regiment (better known as the Harlem Hellfighters) served on the front lines for 191 days during World War I, longer than any other American unit. In that time they never gave up any ground they captured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193087.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193810.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">20 Bits Of Knowledge That Feel Illegal To Know</a><br>
+## <a href="#linky9" id="linky8">20 Bits Of Knowledge That Feel Illegal To Know</a><br>
 
 <span style="font-size:4em">1. Police are allowed to lie to you. So are military recruiters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190221.jpg" style="width:100%"><br>
 
@@ -547,7 +502,7 @@ You’ll never be able to remove the information about yourself off the internet
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">24 Dull Edges Who Elementary Facts They Learned Late In Life</a><br>
+## <a href="#linky10" id="linky9">24 Dull Edges Who Elementary Facts They Learned Late In Life</a><br>
 
 <span style="font-size:4em">1. “I was baking a cake in my dorm for my 19th birthday. My friends were running around and being loud so I yelled at them to stop because I didn’t want them to ruin the cake. They looked at me like I had two heads so I had to explain that my siblings and I were always taught that making loud noises or running around a kitchen when something was baking would make it fall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191687.jpg" style="width:100%"><br>
 
@@ -605,7 +560,7 @@ Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">The Best American Foods As Chosen By Non-Americans</a><br>
+## <a href="#linky11" id="linky10">The Best American Foods As Chosen By Non-Americans</a><br>
 
 <span style="font-size:4em">1. I’ve tried many things so far but SMORES MAN, wow it’s perfection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044316/87192983/americanfoods2.jpg" style="width:100%"><br>
 
@@ -646,6 +601,106 @@ Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I
 <span style="font-size:4em">19. An average diner with bottomless filter coffee, pancakes, bacon and syrup was my favorite part of the day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044506/87193012/americanfoods18.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. Biscuits And gravy. Nothing even comes close. A good buttermilk biscuit with a proper sausage gravy is heaven on earth. Because by the end, your heart stops beating anyway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044508/87193013/americanfoods20.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100418/87193579/87098949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100322/87193569/87063866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100430/87193581/Ineb.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100314/87193568/87063857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094031/87193515/87191318.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193170.gif" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193179.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193180.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093855/87193503/87191285.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093906/87193504/87191286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093915/87193505/87191283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093918/87193506/87191288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093931/87193507/87191289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093932/87193508/87191306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093944/87193509/87191307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093954/87193510/87191309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094007/87193511/87191310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094014/87193512/87191308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094019/87193513/87191312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094027/87193514/87191315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100311/87193567/87063840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100325/87193570/87063859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100333/87193571/87073812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100337/87193572/87073827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100344/87193573/87073833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100348/87193574/87091984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100356/87193575/87091989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100400/87193576/87093750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100407/87193577/87093766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100411/87193578/87098940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100423/87193580/87098959.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -715,7 +770,59 @@ Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">29 History Memes That Are Surprisingly Accurate</a><br>
+## <a href="#linky14" id="linky13">24 Insane Facts About World War I</a><br>
+
+<span style="font-size:4em">1. Smarties candy was originally made with machines that were built to make gunpowder pellets for ammunition during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The watch made its migration from the pocket to the wrist during World War I, when soldiers were obligated to attach them to their arms for coordinated attacks, instead of fumbling in their pockets. Before then, the bracelet watch had mostly been regarded as a joke and silly fad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In World War I, California’s schoolchildren were enlisted in a war on squirrels with one-sided casualties exceeding 100,000 ground squirrels.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Humphrey Bogart was a veteran of World War I, serving in the U.S. Navy aboard the USS Leviathan. Too old to reenlist in the Navy during World War II, he volunteered for the Coast Guard Temporary Reserve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193067.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. In World War I, 2 damaged Destroyers, the Nubian and the Zulu, were joined together to create the Zubian.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The 1919 Tour de France featured the lowest number of participants finishing in the races history, due to the damage caused to French roads during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193069.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Henry Gunther was an American soldier who charged a German machine gun nest trying to regain his rank after being demoted. He was reluctantly killed by them at 10:59 am on November 11th, 1918. One minute before the Armistice took effect. Making him the last soldier killed in World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Veterans Day occurs on November 11 every year in the United States in honor of the “eleventh hour of the eleventh day of the eleventh month of 1918 that signaled the end of World War I, known as Armistice Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. During World War I, the German government carried out a census of Jews to prove that German Jews werent pulling their weight in the war effort. What they found out instead was that Jews were overrepresented on the front lines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Australians developed Vegemite because they couldnt wait for Marmite supplies to resume after World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. During World War I, Germany attempted to preclusively purchase every hydraulic press in the US for the next two years to limit artillery shell production.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Mercy dogs were trained during World War I to comfort mortally wounded soldiers as they died in no mans land.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When Germany invaded Belgium in World War I, King Albert I took personal command of the Belgian Army. He led his army for 4 years, fighting alongside his troops, while his wife, Queen Elisabeth, worked as a nurse at the front. His 12 year-old son, the Crown Prince, also fought in the ranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Theodore Roosevelts youngest son Quentin Roosevelt I was a pilot in World War I and was killed in France during combat. He is the only child of a US President to die in combat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Mustard gas, which was used heavily during World War I, is not just a skin irritant but damages DNA by corrupting molecules in the strand. If the victim survives, the DNA damage can lead to the development of cancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Full-length audiobooks were originally introduced in the 1930s for people with visual disabilities, such as war-blinded World War I veterans and civilians who couldnt read braille. The average novel fit on 10 gramophone records.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The most skilled sniper in all of World War I was a Canadian Indigenous man, Francis Pegahmagabow. He had 378 confirmed kills, captured over 300 enemy soldiers, and spent his post-war life fighting for Indigenous rights. He remains the most decorated Indigenous soldier in Canadian history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. World War I boosted the modern bra market when the U.S. War Industries Board asked American women in 1917 to stop buying corsets because corset frames were mostly made of metal, which was needed for ammunition and other military supplies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193081.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. McDonalds founder Ray Kroc and Walt Disney both served as ambulance drivers in the same unit in World War I, and both had lied about their age to enlist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Archduke Franz Ferdinand, the heir to the Austro-Hungarian Empire, repeatedly warned Viennas hardline Chief of Staff that continued harsh oppression of the Serbians would eventually draw Austria into a war with Russia and spell the doom of both empires. Neither empire survived World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. In 1932, a group of World War I veterans gathered in Washington, DC to demand early payment of their service bonuses. President Hoover called in the Army to disperse the protestors. With a force of 500 infantrymen, 500 cavalry, and 6 tanks, the Army succeeded, and two veterans were killed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. People started wearing pajamas, originally spelled “pyjamas,” instead of nightgowns so they’d be prepared to run outside in public during World War I air raids in England.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The beginnings of the modern era of cancer chemotherapy can be traced directly to the German introduction of chemical warfare during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The 369th Infantry Regiment (better known as the Harlem Hellfighters) served on the front lines for 191 days during World War I, longer than any other American unit. In that time they never gave up any ground they captured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193087.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">29 History Memes That Are Surprisingly Accurate</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193492.jpg" style="width:100%"><br>
 
@@ -777,162 +884,55 @@ Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">Scary Things Kids Have Said Proving They’re Absolute Creeps</a><br>
+## <a href="#linky16" id="linky15">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
 
-<span style="font-size:4em">1. Him: too bad the babysitter died. Me: no she didn’t bud, she’s just not here today. Him: or she’s in the freezer (while staring at the freezer) Me: you’re pretty creepy sometimes bud Him: just smiles.
-
--u/jvac23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193092.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. My son tells me stories of scary uncle Michael in his bedroom at night. He says hes a grey man that looks like his uncle and he climbs on walls and calls out to him and one night he tried to eat him. Yep, nightmare fuel.
-
--u/steaky_bake_92</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193093.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192226.gif" style="width:100%"><br>
 
-<span style="font-size:4em">3. My 3-year-old granddaughter said, Grandma, I just saw a man with no eyes go upstairs.
-
--u/auntshooey1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193094.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My little sister had some creepy moments when we were younger. She often claimed that “people” were in her bathroom at night talking, and watching her. She called them “Po and the Tape Monster”. There are a couple of stories regarding them, both funny and creepy.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193095.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192227.gif" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193096.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-One night she woke up scared and went to my parents’ room to sleep with them. Before she went back to sleep, she used their bathroom, and when she came out she said “Why are there people in your bathroom mommy?” Dad was out of town, mom still swears this was the scariest thing any of my siblings ever did. -u/TheKrazyKrab23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193097.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192229.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. While I was driving my four-year-old nephew around he spent a solid few minutes telling me about the dead body he stashed in my trunk. This was a long time ago and as far as I know, he isn’t a serial killer.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193101.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Creepy and funny. My youngest once said to me: “I could make three baby hands out of your hand meat.”
-
--u/Captainfreshness</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193098.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Definitely thought it was more funny than creepy, but when my kid was 2 he was scribbling on a piece of paper and quietly sang (to the tune of Row, Row, Row Your Boat) Scrape, scrape, scrape your eyes, scrape your eyes today.
-
--u/Zanarkandite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193099.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My kid keeps talking about the babies in the walls of his bedroom. Very off-putting.
-
--u/JohnnyLett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193100.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. My mom loves telling me this story about the time I discovered hypnotism. When I was four, I found out about hypnotism. I don’t remember how, but apparently, I became fascinated by the idea of having mind control abilities. One day, my mom says my grandpa loaded me into the car for one of our normal grocery store outings only for him to return an hour later “furious.” 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193102.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193103.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-After he calmed down, he told my mom that I refused to stop staring him down in the rear view mirror with a very serious look on my face. He had asked me to stop on several occasions but said I never really replied. I just kept staring menacingly. Then, he said all of a sudden I looked into his eyes and said, “Papa…. I’m going to hippo-tize you…. I’m going to put my toe… in your mouth.” My mom said she thought it was funny at the time, but couldn’t laugh because my grandfather was seriously so enraged.
--u/_dwelf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193104.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. We were at a crowded funeral home for his great-grandpa’s service when my son announced he was “here to see the corpse.”
-
--u/Catflappy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193105.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. My ex-father-in-law died a couple of years before my daughter was born so she never met him. He was known as a pretty funny guy, always quick with a one-liner. As strange as it sounds, there were no pictures of him around until my daughter was about 4 years old and my ex-mother-in-law set one next to the urn where his ashes were kept. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193091.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193106.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-The first time my daughter saw the picture she pointed to it and said, “That’s grandpa! I like when he looks in my window and makes me laugh. I don’t like his friends, though.” She had never mentioned this. When I tried to ask her about it, she seemed nonchalant. She’s older now and says she doesn’t remember it. I’ll never forget it.
-
--u/lolochi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193107.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. My youngest (was 4) was on the carpet playing with his cars.
-Son: I can’t wait to get a new house when this house explodes
-Me: (half listening) Uh-huh, sure that sounds… wait, what??
-Son: yeah when our house explodes, be ready and we’ll just run out real fast (and then he turned back to playing with cars like nothing was said)
-Thankfully that was 5 years ago, and my house has not exploded.
-
--u/MrsSmith07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193108.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Just after my little brother was born my mom, 3 y.o. sister and I were talking about what not to do around the baby. Things like not leaving small toys out or throwing balls around the baby. After a few minutes my sister chimed in and said, and you dont cut off babies lips with a sharp knife.
-
--u/bucnasty303</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193109.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Do you like burning?” -The new little girl neighbor.
-
--u/Deverouxe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193111.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. How come youre not waking up tomorrow?
-
--u/Emergency-Hyena5134</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193112.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. My son was around 3 at the time. Kept refusing to go downstairs as that’s where angel man was, and angel man wanted to hurt the family.
-
--u/New_journey868</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193113.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192247.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. When I was about six or seven, the house we were renting was going to be sold. My parents instructed us to keep our rooms tidy because people may be walking through the house during showings. I had the idea to take a little box and write “fortunes” on it. Inside were little slips of paper with “fortunes”. The idea was that prospective buyers could take a slip of paper to get their fortune, kind of like a fortune cookie. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193114.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I remember the first couple of slips of paper said stuff like “you will have good luck”. Then the rest of them had some pretty morbid stuff like “you’re going to die”. My parents read the slips of paper beforehand, then sat me down and sternly told me the fortune box was a no-go. I was a pretty serious child, it didn’t occur to me that a fortune box should be light-hearted. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193110.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">The Funniest and Most Savage Tweets of the Week </a><br>
-
-<span style="font-size:4em">1. What does that one dentist know that the rest of us dont? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. That is one big avocado. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. He watches over me, my Shaquille ONeal angel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. That man is in for the long haul. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Its not a bug its a feature, people! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Her loss bro, dont fret it champ. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Lmao</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Is the woman dead or what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Its banana time baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193794.gif" style="width:100%"><br>
-
-<span style="font-size:4em">15. Now that would have been a good troll. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Time for a bath. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Some of these were kinda dumb, but this, this is genuis. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193810.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192249.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
