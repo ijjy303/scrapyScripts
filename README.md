@@ -1,7 +1,117 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/18/2022-02:47:18
+Last updated: 06/18/2022-03:47:18
 <br>
-## <a href="#linky2" id="linky1">25 Greatest 'F**k You's' Throughout History</a><br>
+## <a href="#linky2" id="linky1">53 Boredom Bashing Pics That Are the Enemy of Mundane</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024840/87192889/87191327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024845/87192890/87191334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024851/87192891/87191330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024856/87192892/87191335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024902/87192893/87191339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024907/87192894/87191346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024915/87192895/87191365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024918/87192896/87192317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024926/87192897/87192321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024929/87192898/87192322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024939/87192899/87192326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024940/87192900/87192327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024950/87192901/87192332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024952/87192902/87192335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025001/87192903/87192338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025003/87192904/87192352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025012/87192905/87192353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025014/87192906/87192357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025023/87192907/87192605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025025/87192908/87192607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025034/87192909/87192619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025036/87192910/87192626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025046/87192911/87192636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025048/87192912/87192642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025057/87192913/87192637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025059/87192914/87192644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025108/87192915/87192647.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">25 Greatest 'F**k You's' Throughout History</a><br>
 
 <span style="font-size:4em">1. “Well, there is always that time when Amsterdam sold cannons to the Spanish army during the 80 years war, only for the Spanish to fire those cannons at the city.” - Mike_for_all </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191462.jpg" style="width:100%"><br>
 
@@ -63,7 +173,7 @@ Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Fresh Memes and Funny Pics of the Dank Variety </a><br>
+## <a href="#linky4" id="linky3">Fresh Memes and Funny Pics of the Dank Variety </a><br>
 
 <span style="font-size:4em">1. Remember when we all got that U2 album dropped onto our phones? That was cool, not! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87192403.jpg" style="width:100%"><br>
 
@@ -125,7 +235,7 @@ Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
+## <a href="#linky5" id="linky4">24 Handy Charts to Make Knowledge (Fun Again)</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192243.jpg" style="width:100%"><br>
 
@@ -177,159 +287,69 @@ Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
+## <a href="#linky6" id="linky5">31 Odd and Intriguing Items With Simple Explanations</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100418/87193579/87098949.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Found this in a kitchen drawer. It’s stiff but still bends a little. What is this thing?”Answer: It’s a connector to a measuring cup set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193151.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “What is this thing? A metal spoon with a spout-like end.”Answer: It’s a saucier spoon, a mini sauce ladle. They sometimes have spouts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193152.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “A scissors-like device I bought years ago at a flea market”Answer: They are tongs for sugar cubes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100322/87193569/87063866.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “A keyring-sized thingy, made of metal (quite heavy)”Answer: It’s a tent platform anchor. This is used instead of a traditional stake when camping on a wood platform. You would slide one end between the floor planks and turn it halfway to lock it in place. The spring is there, so it doesn’t fall completely through the floorboards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193154.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Today we found a large (bigger than a beach ball) white wooden spheric structure at the beach along the Baltic Sea.”Answer: It’s an anchor ball. Day signals are used by ships when anchored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100430/87193581/Ineb.png" style="width:100%"><br>
+<span style="font-size:4em">6. “A gray roller-like thing, it is made from iron, the spiral part rolls, saw it in a store, nothing written on it, weighs about 150 g.”Answer: It’s a grill scrubber for cleaning grill grates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100314/87193568/87063857.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “A microphone-shaped object with a transparent globe spotted on the London Underground, what is it?”Answer: That’s a light stick for the K-pop group, ATEEZ.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193155.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Hard, round, white sphere with ’hot or cold’ words and pictures”Answer: It’s a Mentos limited edition “This or That.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193156.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “About 3 feet tall, gold-colored, but silver inside — it’s hollow like a bucket, pretty lightweight.”Answer: It’s a grape hod. It was used for collecting the harvest from the vines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094031/87193515/87191318.png" style="width:100%"><br>
+<span style="font-size:4em">10. “What is this? I was at the zoo today and saw these in the giraffe exhibit. They appear to be made of dirt and are about 7-10 feet in height.”Answer: These are feeding/enrichment stations made to look like termite mounds. I’m a former zookeeper and have made these.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193158.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “This is a steel wire frame with 2 glass marbles. It was found in an old garage among various stuff. The marbles can turn inside the frame.”Answer: It’s a razor blade sharpener.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193162.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Found at a used bookstore. All parts rotate and the markings/months make me think it could be for mapping.”Answer: It’s an astrolabe, the ancient-times GPS. Used usually for navigation, also for time measurement and other scientific uses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193163.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “One of my neighbors has this ceramic stirring cabbage. It has a wooden stirrer with a notch that it fits in, it was purchased in 1958.”Answer: It’s a coleslaw mixer. Put the shredded cabbage in there. Put dressing in there. Mix it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193165.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “3 pieces, around 150 grams, greasy but solid substance in the bottom part”Answer: It’s a perfume bottle. The top would be liquid perfume and below would be a solid perfume that you could apply to your wrists or wherever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193168.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Bought scissors from a yard sale, but one of the blades is doubled with a gap in between them. Are these scissors for something specific?”Answer: These are template scissors used for cutting out paper patterns for stained-glass. The portion in the middle allows for the seam between the glass panels where the glass is soldered together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193170.gif" style="width:100%"><br>
+<span style="font-size:4em">16. Found this unusual egg shaped metal container, turns out, it’s an old kit for storing sewing supplies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104047/87193634/87165117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193172.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Plastic and hollow, size of a big SUV, the tide never reach it, attached to the ground.  Answer: Large Ship bumper/fender. The are Used to keep huge ships from smashing in the pier.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104059/87193635/87174443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193175.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.   Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104110/87193636/87174450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193176.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.  Answer: This is a Victorian folding clamshell biscuit box. In essence it’s just a very elaborate cookie jar however they can be quite expensive especially if this one is made of Sterling silver.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104118/87193637/87174446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193177.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.  Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104122/87193638/87174454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193179.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.  Answer: It’s a prime factorization chart.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104130/87193639/87174457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193180.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. Found this while cleaning out the attic. It’s wood, looks handmade, and measures 20 cm, but I have no idea what it is or does! Answer: It’s a double spoon — a symbol of hospitality in traditional African art. It represents 2 very distinct universes that are opposite.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104133/87193640/87174456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193187.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.  Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104135/87193641/87174459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193189.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Just moved to a new apartment, and found this in the living room. What is it?  Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104142/87193642/87174461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193192.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I found this metal object. No text or numbers. Can retract to be the size of a bracelet.  Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104146/87193643/87174462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093855/87193503/87191285.png" style="width:100%"><br>
+<span style="font-size:4em">26. Purchased in Africa, was told something about ancient sailing.  Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104153/87193644/87174463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093906/87193504/87191286.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. What Is This Ice Phenomenon I Found On The Forest Floor Today?  Answer: The term for it is frost flower and has to do with moisture freezing as it escapes plant tissue.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104158/87193645/87179852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093915/87193505/87191283.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Toilet With A U-Shaped Divot In The Front  Answer: Its a type of handicap toilet, more common in Europe than in the US. Its supposed to have an open-front seat, too. That allows a person to slide straight onto and off of the seat (such as from a wheelchair), without their genitals ever touching the seat or the bowl. This is more comfortable and decreases the spread of disease.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104204/87193646/87179863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093918/87193506/87191288.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. What Is This Type Of Clamp Used? Only Says China On It.  Answer: That’s a gang lock for lockout/Tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104209/87193647/87179866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093931/87193507/87191289.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Heavy And Small. Found In Southern Germany.  Answer: Medieval pilgrim’s badge</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104216/87193648/87179872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093932/87193508/87191306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093944/87193509/87191307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093954/87193510/87191309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094007/87193511/87191310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094014/87193512/87191308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094019/87193513/87191312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094027/87193514/87191315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100311/87193567/87063840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100325/87193570/87063859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100333/87193571/87073812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100337/87193572/87073827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100344/87193573/87073833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100348/87193574/87091984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100356/87193575/87091989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100400/87193576/87093750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100407/87193577/87093766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100411/87193578/87098940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100423/87193580/87098959.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">24 Terrifying Facts That Help Put History into Perspective </a><br>
-
-<span style="font-size:4em">1. “The dancing plague of 1518, or dance epidemic of 1518, was a case of dancing mania that occurred in Strasbourg, Alsace (modern-day France), in the Holy Roman Empire from July 1518 to September 1518. Somewhere between 50 and 400 people took to dancing for weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “When the USSR collapsed, multiple nuclear weapons and boxes full of vials of smallpox were lost” - mypenisisveryerect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “A lot of sailors survived the bombing of Pearl Harbor, but were trapped in their sunken ships. There was no way to rescue them. People had to listen helplessly to the men banging on the inside of the hulls for days until they gradually went quiet.” - heatherbyism</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “When the Khmer Rouge was mass killing its citizens bullets were expensive, so when they were slaughtering babies they would grab them by the ankles and bash their heads open on a particular tree. That tree is still there by the way. Its just sitting there with a little sign on it that says baby killing tree. So many people were killed in the fields that when you look down there you see these little white flecks everywhere in the soil, and at some point you realize theyre bone.” - Matt01123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “In Bridgeton, Missouri, near where I live, there is an underground fire through the years slowly nearing nuclear waste that was dumped in the 70s, it was dumped illegally, and would cost hundreds of millions to fix” - freethedamnsel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “During the paraguayan war, paraguay sent 3500 poorly armed children between 9 to 15 yo, wounded soldiers and old men to face brazilian army (20 thousand men), because most of paraguayan combatants were killed. the date of this battle is now childrens day in paraguay.” - anylifeonmars_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Near Mt St Helens, in the Gifford Pinchot National Forest, and before the volcano erupted in 1980, there were areas where you were not allowed off the footpaths. This was because Douglas Firs, which can reach 200ft, were buried in ash in prior eruptions, then rotted away. So you could step on a relatively thin layer of old ash, break through, and fall any number of feet into what amounted to a crevasse or a well.” - quikdogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Agent Orange is nowadays still a viral toxin in Vietnam, still deforming children with parents / grandparents who were exposed to the drops in the 70’s.” - blemip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The radium girls were the women who worked in clock and aviation dial factories, painting the dials with radioactive paint that they applied by licking the brushes to point them. The long term effects of radium ingestion were known by the inventor of the paint, who was also the owner of the largest factory. He eventually died from his own creations in the same horrific ways as the women. Their struggle for justice directly lead to the creation of OSHA.” - Langstarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “In the warsaw ghettos they would pile up body’s of people that might have not even been dead. someone who collapsed could have been tossed to the side and be covered with other bodies, slowly crushing them and suffocating them. until they did actually die.” - Wise_Stock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Dutch Whalers and the like would raid Australian Aboriginal villages and kidnap the women, the would take them off shore and rape them in their rowboat, when the aboriginal men would try and swim out to rescue them they would wait until they reached the boats and hack off their hands with machetes. They would then kill and dump the women and sail away.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “22 Australian nurses where captured on Bangka Island by the Japanese, they where all raped, tortured, and then marched out into the sea and gunned down. Except for one who was allowed to survive. She was later gagged from saying anything and was disbarred from speaking at the Tokyo War Crimes tribunal after world war 2 ended, because the Australian government didnt want to look bad.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “In 1859 the largest known coronal mass ejection from the sun hit earth. If it hit us today, the nations affected would be without power for 6-18 months, most major technologies and infrastructure would be badly degraded, the cost would be upwards of $2trillion and there is every chance of those affected moving toward a social collapse.” - rohankent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Richard Nixon has written a special speech in case Neil Armstrong dies during the moon landing expedition.” - OctogoatYTofficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “During the Polish Operation of the Great Purge, the Soviet NKVD shot 111,091 Poles between August of 1937 and November of 1938. That’s 7,406 Poles every month for 15 months. 246 Poles being shot in the back of the head every single day or 10 Poles being murdered by the Soviets every hour. The vast majority of these Poles were of course, completely innocent of the imaginary crimes the Soviets accused them of.” - PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “During WW2, the Nazis head doctor in Auschwiz did so many inhumane experiments he was named the ‘Angel of Death.’ In his office, he had a wall of eyeballs from everybody he killed in those experiments. The CRAZIEST thing, he was able to escape and ended up living in Brazil, where he died from drowning at a resort.” - Welp_shit02</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “There are cases where the Vatican actively worked to prevent kids orphaned by the Holocaust from being reunited with their remaining families after the war.  - OwnPsychology8943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. ‘In 1945 the USS Indianapolis sank between Guam and the Philippines due to a Japanese submarine. Out of nearly 1200 crew members, only 316 survived. The worst part? Only 300 went down with the ship in the initial event. The other 900 crew members were trapped in the open ocean for four days before they were spotted and rescued. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-That means that around 600 men died due to exposure, dehydration, salt water poisoning and shark attacks by oceanic white tip sharks. We tend to believe that great white sharks, bull sharks, and tiger sharks are responsible for the majority of shark attacks on humans, but oceanic white tip sharks have likely killed far more humans due to ships/planes sinking and the deaths not being recorded as shark attacks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-They are known to commonly follow ships and can form big groups when finding food, and are pretty aggressive, but most of their victims are unrecorded in shark bite records since these attacks dont happen close to the shore.” - JulesLovesYou1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “8% of all Asian men have a particular Y chromosome haplogroup. This equates to 0.5% of the worlds population. It is a very specific male to male chromosome. And occurs everywhere that Gengis Kahn and his descendants conquered. This means that 8% of Asian men can trace their lineage directly back (father to son) to Gengis Kahn. There was a lot of rape.” - newsfromplanetmike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “King Leopold and his colony in, what is now, the Congo. It was brutal. Ante Pavelic and the crimes of the Ustaše during WWII. Brutal enough that he was asked to tone it down by his Nazi Allies. He was protected by the Papacy during the war.” - Drulock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “George Washington never got to know that dinosaurs existed.” - WatchTheBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “The Childrens Crusade around 1200 started in France and Germany. They were convinced that God would allow them to take Jerusalem and convert the Muslims to Christianity. Somewhere in the neighborhood of 30000 set out for the Mediterranean Sea, which they believed God would part for them and allow them to walk to Jerusalem. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191553.jpg" style="width:100%"><br>
+<span style="font-size:4em">31.  Ukraine National Police Posted An Image Of This Strangely Textured Object, They Call It Dangerous To Health And Even Life... But What Is It?  Answer: Butterfly mines. An anti-personnel weapon manufactured by the Soviet / Russian military.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104220/87193649/87179877.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -592,57 +612,57 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">25 Normal Things That Look SUS At Night</a><br>
+## <a href="#linky11" id="linky10">25 Most Horrifying Movies Scenes Of All Time</a><br>
 
-<span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The Not a lot of people have basements in California scene in Zodiac.” - haloarh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Sun bathing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191166.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “A movie called ‘Threads’ about nuclear war in Britain, where there’s a scene when the nukes first hit Sheffield. Genuinely one of the scariest scenes I’ve ever seen. You can see a f**king cat literally melting in it.” - Manchman67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Cleaning the windows of the girls dorm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191167.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “The end of Carrie (1976) where Sue is laying the flowers on Carries grave and the hand grabs her wrist. A friend of mine was an usher at the theater and at just that moment the rat b*stard grabbed my neck. He had snuck up behind me and waited for just the right moment.” - rogerkjones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Digging a deep hole in the ground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191168.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “The Grudge (2004) - Most scenes but the one that always scares me is the scene where an office woman is heading home and the vengeful spirit of Kayako begins following her. The woman manages to escape her office and get home but is shaken by her encounter with Kayako and hides in her bed. The sheets begin to rise up and down and when the woman peaks under, Kayako greets her with that scary death rattle noise she makes and pulls the woman under the covers where the woman disappears.” - Soggy_Willingness_65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “That one time Bart flew a kite at night, there was something unwholesome about it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191169.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Large Marge from Pee-Wees Big Adventure.” - SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I tend to be nocturnal, and I also love to garden. This often means I forget to water until 2 am. I let my neighbors know that I might be out there watering in the middle of the night, because they are elderly, and I dont want to give anyone a heart attack.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191170.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Basically the start of Ghost Ship where the wire cuts everyone dancing in half…” - Jorge_k3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Parking in the middle of an empty parking lot in the dark. Ive done this so many times on long road trips and 50% of the time a cop or local will knock on my window. So I now have tape and a laminated piece of paper in my car that says: I am not: A drug dealer or buyer, A burglar watching a store, Homeless, High or drunk.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191171.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “The very beginning of the original IT. The clown is hiding behind the clothes flapping in the wind on the clothesline. The clothes are blown apart and you see the evil fucking clown. And then the little girl on her trike is gone.” - Fit_Tumbleweed_5904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Playing Pokemon Go outdoors. Just standing at a spot, then slowly walking, then stopping again. Probably at a park since theres more activity there.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191172.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “The Shinings old lady in the bathtub. Im pretty relaxed with movie classifications, but thats probably something a 6yo shouldnt have seen…” - AneausSylvius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Taking a suitcase to the trash, but I’ve done it. I’ve done everything at 3am.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191173.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Signs - the scene where the kid hears the aliens chittering over the walkie talkie. Dont know why, but as a child I was horrified.” - BillFukngMurray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Getting a Knock on the door, if it’s that late it’s never for good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191174.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “That baby from Trainspotting.” - Senggama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Asking your neighbor if they have some sugar because youre out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191175.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “The Brave Little Toaster, that damn scene where the AC unit explodes after a raging cynical outburst of hopelessness and anger. Also the flower scene where it realizes its alone and so it literally wilts and dies and the screen pulls away to black. Or the toasters nightmare with the evil fireman clown whos smiling while he catches on fire.. OR better yet, the entire god damned movie start to finish.” - Birds_Might_Be_Real</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Taking out multiple trash bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191176.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “The last scene in The Blair Witch Project. Guy standing facing the wall in the basement.” - Markk31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “A kid Swinging on a swing at a playground singing a nursery rhyme.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191177.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Who Framed Roger Rabbit when the Doc turned around with those eyes. That f**ked my nightmares up so bad. - deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “mowing the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191178.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “The log truck scene from Final Destination 2.” - smokyporkbelly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I have a relative who just likes to look out their living room window. so I’m gonna say that.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191179.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “When the cute little squeaky animated shoe was dipped. Seriously. Haunted for years by Who Framed Roger Rabbit.” - omgitsmoki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Washing the car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191180.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “That damn boat scene from the original Willy Wonka... theres no earthly way of know-ingggg. As a kid that was nuts.” - samuuus74</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “I just took the cat poo out around 3am. To be blunt the cat poo bag is a hefty fella, so me, a six foot four-ish chunky dood hauling a big ass heavy trash bag across a parking lot, audibly struggling, and hefting the damn thing over into a dumpster looks pretty suspicious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191181.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “The Witches opening scene where the little girl is grabbed by a witch when walking down an alley, then has to live out her life in a painting.” - SeaworthinessNo5209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Going to the bank.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191182.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “The ending of The Mist still f**ks with me.” - Mike011235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Playing tag or paintball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191183.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “When Bilbo Baggins goes for the ring while its around Frodos neck.” - enderman54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Laughing hysterically after watching a funny video. Bonus points if youre at a park. The idea that you cant easily be seen looking at your phone is what might be weird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191184.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “The closet scene in The Ring where they showed the dead girl. Another one would be the gas chamber scene in The Boy In the Striped Pajamas. It made me nauseous and I will never watch it again.” - Quick-Jellyfish-8323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Checking the mailbox.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191185.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “That scene from The Road where they open the basement and find the larder full of you know what.” - Ihatecurtainrings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Cleaning the swimming pool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191186.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “On the spaceship/abduction scene from Fire in the Sky.” - Cooper_brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Parking a U-Haul van in front of the Russian embassy and walkkng away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191187.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “Pet Sematary, when Rachels sister dies.” - Fantasy_Assassin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Obviously, distributing balloons to passers-by. Bonus point if they are red and you are dressed as a clown.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191188.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Oh my God theres one scene thats f**ked me up. The Autopsy of Jane Doe. The two men are in the morgue and performing the autopsy but the radio keeps suddenly turning on to this old song that goes open up your heart.. things start to get creepier and creepier and then suddenly they realize theyre trapped in the morgue with this haunted body. The doors are locked in some way and suddenly they hear what sounds like a police officer or a guard of some sort. He keeps yelling from the outside Open up! Open up! The one mortician is trying but he cant and yells Im trying Im trying! All the sudden the man on the outside starts singing open up your heart.... GODDAMN Ive never had my blood turn cold like that.” - AwayPineapple8074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Taking a kid to a playground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191189.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “The scene from signs when the alien runs across that kid’s birthday party.” - bags-o-salad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191452.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -690,7 +710,163 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">23 Stalin Facts Your Teachers Never Told You</a><br>
+## <a href="#linky13" id="linky12">24 Terrifying Facts That Help Put History into Perspective </a><br>
+
+<span style="font-size:4em">1. “The dancing plague of 1518, or dance epidemic of 1518, was a case of dancing mania that occurred in Strasbourg, Alsace (modern-day France), in the Holy Roman Empire from July 1518 to September 1518. Somewhere between 50 and 400 people took to dancing for weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “When the USSR collapsed, multiple nuclear weapons and boxes full of vials of smallpox were lost” - mypenisisveryerect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “A lot of sailors survived the bombing of Pearl Harbor, but were trapped in their sunken ships. There was no way to rescue them. People had to listen helplessly to the men banging on the inside of the hulls for days until they gradually went quiet.” - heatherbyism</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “When the Khmer Rouge was mass killing its citizens bullets were expensive, so when they were slaughtering babies they would grab them by the ankles and bash their heads open on a particular tree. That tree is still there by the way. Its just sitting there with a little sign on it that says baby killing tree. So many people were killed in the fields that when you look down there you see these little white flecks everywhere in the soil, and at some point you realize theyre bone.” - Matt01123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “In Bridgeton, Missouri, near where I live, there is an underground fire through the years slowly nearing nuclear waste that was dumped in the 70s, it was dumped illegally, and would cost hundreds of millions to fix” - freethedamnsel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “During the paraguayan war, paraguay sent 3500 poorly armed children between 9 to 15 yo, wounded soldiers and old men to face brazilian army (20 thousand men), because most of paraguayan combatants were killed. the date of this battle is now childrens day in paraguay.” - anylifeonmars_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Near Mt St Helens, in the Gifford Pinchot National Forest, and before the volcano erupted in 1980, there were areas where you were not allowed off the footpaths. This was because Douglas Firs, which can reach 200ft, were buried in ash in prior eruptions, then rotted away. So you could step on a relatively thin layer of old ash, break through, and fall any number of feet into what amounted to a crevasse or a well.” - quikdogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Agent Orange is nowadays still a viral toxin in Vietnam, still deforming children with parents / grandparents who were exposed to the drops in the 70’s.” - blemip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The radium girls were the women who worked in clock and aviation dial factories, painting the dials with radioactive paint that they applied by licking the brushes to point them. The long term effects of radium ingestion were known by the inventor of the paint, who was also the owner of the largest factory. He eventually died from his own creations in the same horrific ways as the women. Their struggle for justice directly lead to the creation of OSHA.” - Langstarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “In the warsaw ghettos they would pile up body’s of people that might have not even been dead. someone who collapsed could have been tossed to the side and be covered with other bodies, slowly crushing them and suffocating them. until they did actually die.” - Wise_Stock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Dutch Whalers and the like would raid Australian Aboriginal villages and kidnap the women, the would take them off shore and rape them in their rowboat, when the aboriginal men would try and swim out to rescue them they would wait until they reached the boats and hack off their hands with machetes. They would then kill and dump the women and sail away.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “22 Australian nurses where captured on Bangka Island by the Japanese, they where all raped, tortured, and then marched out into the sea and gunned down. Except for one who was allowed to survive. She was later gagged from saying anything and was disbarred from speaking at the Tokyo War Crimes tribunal after world war 2 ended, because the Australian government didnt want to look bad.” - WanderingMinotaur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “In 1859 the largest known coronal mass ejection from the sun hit earth. If it hit us today, the nations affected would be without power for 6-18 months, most major technologies and infrastructure would be badly degraded, the cost would be upwards of $2trillion and there is every chance of those affected moving toward a social collapse.” - rohankent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Richard Nixon has written a special speech in case Neil Armstrong dies during the moon landing expedition.” - OctogoatYTofficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “During the Polish Operation of the Great Purge, the Soviet NKVD shot 111,091 Poles between August of 1937 and November of 1938. That’s 7,406 Poles every month for 15 months. 246 Poles being shot in the back of the head every single day or 10 Poles being murdered by the Soviets every hour. The vast majority of these Poles were of course, completely innocent of the imaginary crimes the Soviets accused them of.” - PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “During WW2, the Nazis head doctor in Auschwiz did so many inhumane experiments he was named the ‘Angel of Death.’ In his office, he had a wall of eyeballs from everybody he killed in those experiments. The CRAZIEST thing, he was able to escape and ended up living in Brazil, where he died from drowning at a resort.” - Welp_shit02</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “There are cases where the Vatican actively worked to prevent kids orphaned by the Holocaust from being reunited with their remaining families after the war.  - OwnPsychology8943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. ‘In 1945 the USS Indianapolis sank between Guam and the Philippines due to a Japanese submarine. Out of nearly 1200 crew members, only 316 survived. The worst part? Only 300 went down with the ship in the initial event. The other 900 crew members were trapped in the open ocean for four days before they were spotted and rescued. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+That means that around 600 men died due to exposure, dehydration, salt water poisoning and shark attacks by oceanic white tip sharks. We tend to believe that great white sharks, bull sharks, and tiger sharks are responsible for the majority of shark attacks on humans, but oceanic white tip sharks have likely killed far more humans due to ships/planes sinking and the deaths not being recorded as shark attacks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+They are known to commonly follow ships and can form big groups when finding food, and are pretty aggressive, but most of their victims are unrecorded in shark bite records since these attacks dont happen close to the shore.” - JulesLovesYou1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “8% of all Asian men have a particular Y chromosome haplogroup. This equates to 0.5% of the worlds population. It is a very specific male to male chromosome. And occurs everywhere that Gengis Kahn and his descendants conquered. This means that 8% of Asian men can trace their lineage directly back (father to son) to Gengis Kahn. There was a lot of rape.” - newsfromplanetmike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “King Leopold and his colony in, what is now, the Congo. It was brutal. Ante Pavelic and the crimes of the Ustaše during WWII. Brutal enough that he was asked to tone it down by his Nazi Allies. He was protected by the Papacy during the war.” - Drulock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “George Washington never got to know that dinosaurs existed.” - WatchTheBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The Childrens Crusade around 1200 started in France and Germany. They were convinced that God would allow them to take Jerusalem and convert the Muslims to Christianity. Somewhere in the neighborhood of 30000 set out for the Mediterranean Sea, which they believed God would part for them and allow them to walk to Jerusalem. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191553.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100418/87193579/87098949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100322/87193569/87063866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100430/87193581/Ineb.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100314/87193568/87063857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094031/87193515/87191318.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193170.gif" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193179.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193180.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87193192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093855/87193503/87191285.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093906/87193504/87191286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093915/87193505/87191283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093918/87193506/87191288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093931/87193507/87191289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093932/87193508/87191306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093944/87193509/87191307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/093954/87193510/87191309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094007/87193511/87191310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094014/87193512/87191308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094019/87193513/87191312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/094027/87193514/87191315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100311/87193567/87063840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100325/87193570/87063859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100333/87193571/87073812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100337/87193572/87073827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100344/87193573/87073833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100348/87193574/87091984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100356/87193575/87091989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100400/87193576/87093750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100407/87193577/87093766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100411/87193578/87098940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100423/87193580/87098959.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">23 Stalin Facts Your Teachers Never Told You</a><br>
 
 <span style="font-size:4em">1. Joseph Stalin was covered in scars from smallpox that he’d survived at the age of seven and had official photos portraying his face as smooth and fresh with well-maintained hair by heavily editing and retouching photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87191228.png" style="width:100%"><br>
 
@@ -740,117 +916,7 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">53 Boredom Bashing Pics That Are the Enemy of Mundane</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87191938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024840/87192889/87191327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024845/87192890/87191334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024851/87192891/87191330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024856/87192892/87191335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024902/87192893/87191339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024907/87192894/87191346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024915/87192895/87191365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024918/87192896/87192317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024926/87192897/87192321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024929/87192898/87192322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024939/87192899/87192326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024940/87192900/87192327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024950/87192901/87192332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/024952/87192902/87192335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025001/87192903/87192338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025003/87192904/87192352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025012/87192905/87192353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025014/87192906/87192357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025023/87192907/87192605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025025/87192908/87192607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025034/87192909/87192619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025036/87192910/87192626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025046/87192911/87192636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025048/87192912/87192642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025057/87192913/87192637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025059/87192914/87192644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/025108/87192915/87192647.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">32 Adult Themed Memes for Your Deranged Sense of Humor</a><br>
+## <a href="#linky16" id="linky15">32 Adult Themed Memes for Your Deranged Sense of Humor</a><br>
 
 <span style="font-size:4em">1. Random dic pics, GO!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/105412/87192686/87188775.jpg" style="width:100%"><br>
 
@@ -918,123 +984,57 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">25 Most Horrifying Movies Scenes Of All Time</a><br>
+## <a href="#linky17" id="linky16">25 Normal Things That Look SUS At Night</a><br>
 
-<span style="font-size:4em">1. “The Not a lot of people have basements in California scene in Zodiac.” - haloarh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191433.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Moving rugs into a van.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “A movie called ‘Threads’ about nuclear war in Britain, where there’s a scene when the nukes first hit Sheffield. Genuinely one of the scariest scenes I’ve ever seen. You can see a f**king cat literally melting in it.” - Manchman67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191434.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Sun bathing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “The end of Carrie (1976) where Sue is laying the flowers on Carries grave and the hand grabs her wrist. A friend of mine was an usher at the theater and at just that moment the rat b*stard grabbed my neck. He had snuck up behind me and waited for just the right moment.” - rogerkjones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191435.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Cleaning the windows of the girls dorm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “The Grudge (2004) - Most scenes but the one that always scares me is the scene where an office woman is heading home and the vengeful spirit of Kayako begins following her. The woman manages to escape her office and get home but is shaken by her encounter with Kayako and hides in her bed. The sheets begin to rise up and down and when the woman peaks under, Kayako greets her with that scary death rattle noise she makes and pulls the woman under the covers where the woman disappears.” - Soggy_Willingness_65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191436.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Digging a deep hole in the ground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Large Marge from Pee-Wees Big Adventure.” - SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191439.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “That one time Bart flew a kite at night, there was something unwholesome about it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Basically the start of Ghost Ship where the wire cuts everyone dancing in half…” - Jorge_k3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191440.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I tend to be nocturnal, and I also love to garden. This often means I forget to water until 2 am. I let my neighbors know that I might be out there watering in the middle of the night, because they are elderly, and I dont want to give anyone a heart attack.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “The very beginning of the original IT. The clown is hiding behind the clothes flapping in the wind on the clothesline. The clothes are blown apart and you see the evil fucking clown. And then the little girl on her trike is gone.” - Fit_Tumbleweed_5904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191437.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Parking in the middle of an empty parking lot in the dark. Ive done this so many times on long road trips and 50% of the time a cop or local will knock on my window. So I now have tape and a laminated piece of paper in my car that says: I am not: A drug dealer or buyer, A burglar watching a store, Homeless, High or drunk.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “The Shinings old lady in the bathtub. Im pretty relaxed with movie classifications, but thats probably something a 6yo shouldnt have seen…” - AneausSylvius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191441.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Playing Pokemon Go outdoors. Just standing at a spot, then slowly walking, then stopping again. Probably at a park since theres more activity there.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Signs - the scene where the kid hears the aliens chittering over the walkie talkie. Dont know why, but as a child I was horrified.” - BillFukngMurray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191442.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Taking a suitcase to the trash, but I’ve done it. I’ve done everything at 3am.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “That baby from Trainspotting.” - Senggama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191443.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Getting a Knock on the door, if it’s that late it’s never for good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “The Brave Little Toaster, that damn scene where the AC unit explodes after a raging cynical outburst of hopelessness and anger. Also the flower scene where it realizes its alone and so it literally wilts and dies and the screen pulls away to black. Or the toasters nightmare with the evil fireman clown whos smiling while he catches on fire.. OR better yet, the entire god damned movie start to finish.” - Birds_Might_Be_Real</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191444.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Asking your neighbor if they have some sugar because youre out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “The last scene in The Blair Witch Project. Guy standing facing the wall in the basement.” - Markk31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191445.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Taking out multiple trash bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Who Framed Roger Rabbit when the Doc turned around with those eyes. That f**ked my nightmares up so bad. - deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191446.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “A kid Swinging on a swing at a playground singing a nursery rhyme.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “The log truck scene from Final Destination 2.” - smokyporkbelly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191438.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “mowing the lawn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “When the cute little squeaky animated shoe was dipped. Seriously. Haunted for years by Who Framed Roger Rabbit.” - omgitsmoki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191447.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I have a relative who just likes to look out their living room window. so I’m gonna say that.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “That damn boat scene from the original Willy Wonka... theres no earthly way of know-ingggg. As a kid that was nuts.” - samuuus74</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191453.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Washing the car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “The Witches opening scene where the little girl is grabbed by a witch when walking down an alley, then has to live out her life in a painting.” - SeaworthinessNo5209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191448.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “I just took the cat poo out around 3am. To be blunt the cat poo bag is a hefty fella, so me, a six foot four-ish chunky dood hauling a big ass heavy trash bag across a parking lot, audibly struggling, and hefting the damn thing over into a dumpster looks pretty suspicious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “The ending of The Mist still f**ks with me.” - Mike011235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191451.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Going to the bank.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “When Bilbo Baggins goes for the ring while its around Frodos neck.” - enderman54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191456.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Playing tag or paintball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “The closet scene in The Ring where they showed the dead girl. Another one would be the gas chamber scene in The Boy In the Striped Pajamas. It made me nauseous and I will never watch it again.” - Quick-Jellyfish-8323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191449.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Laughing hysterically after watching a funny video. Bonus points if youre at a park. The idea that you cant easily be seen looking at your phone is what might be weird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “That scene from The Road where they open the basement and find the larder full of you know what.” - Ihatecurtainrings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191457.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Checking the mailbox.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “On the spaceship/abduction scene from Fire in the Sky.” - Cooper_brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191450.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “Cleaning the swimming pool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Pet Sematary, when Rachels sister dies.” - Fantasy_Assassin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191454.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “Parking a U-Haul van in front of the Russian embassy and walkkng away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Oh my God theres one scene thats f**ked me up. The Autopsy of Jane Doe. The two men are in the morgue and performing the autopsy but the radio keeps suddenly turning on to this old song that goes open up your heart.. things start to get creepier and creepier and then suddenly they realize theyre trapped in the morgue with this haunted body. The doors are locked in some way and suddenly they hear what sounds like a police officer or a guard of some sort. He keeps yelling from the outside Open up! Open up! The one mortician is trying but he cant and yells Im trying Im trying! All the sudden the man on the outside starts singing open up your heart.... GODDAMN Ive never had my blood turn cold like that.” - AwayPineapple8074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191455.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Obviously, distributing balloons to passers-by. Bonus point if they are red and you are dressed as a clown.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “The scene from signs when the alien runs across that kid’s birthday party.” - bags-o-salad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191452.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">31 Odd and Intriguing Items With Simple Explanations</a><br>
-
-<span style="font-size:4em">1. “Found this in a kitchen drawer. It’s stiff but still bends a little. What is this thing?”Answer: It’s a connector to a measuring cup set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “What is this thing? A metal spoon with a spout-like end.”Answer: It’s a saucier spoon, a mini sauce ladle. They sometimes have spouts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “A scissors-like device I bought years ago at a flea market”Answer: They are tongs for sugar cubes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “A keyring-sized thingy, made of metal (quite heavy)”Answer: It’s a tent platform anchor. This is used instead of a traditional stake when camping on a wood platform. You would slide one end between the floor planks and turn it halfway to lock it in place. The spring is there, so it doesn’t fall completely through the floorboards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Today we found a large (bigger than a beach ball) white wooden spheric structure at the beach along the Baltic Sea.”Answer: It’s an anchor ball. Day signals are used by ships when anchored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “A gray roller-like thing, it is made from iron, the spiral part rolls, saw it in a store, nothing written on it, weighs about 150 g.”Answer: It’s a grill scrubber for cleaning grill grates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “A microphone-shaped object with a transparent globe spotted on the London Underground, what is it?”Answer: That’s a light stick for the K-pop group, ATEEZ.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Hard, round, white sphere with ’hot or cold’ words and pictures”Answer: It’s a Mentos limited edition “This or That.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “About 3 feet tall, gold-colored, but silver inside — it’s hollow like a bucket, pretty lightweight.”Answer: It’s a grape hod. It was used for collecting the harvest from the vines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “What is this? I was at the zoo today and saw these in the giraffe exhibit. They appear to be made of dirt and are about 7-10 feet in height.”Answer: These are feeding/enrichment stations made to look like termite mounds. I’m a former zookeeper and have made these.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “This is a steel wire frame with 2 glass marbles. It was found in an old garage among various stuff. The marbles can turn inside the frame.”Answer: It’s a razor blade sharpener.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Found at a used bookstore. All parts rotate and the markings/months make me think it could be for mapping.”Answer: It’s an astrolabe, the ancient-times GPS. Used usually for navigation, also for time measurement and other scientific uses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “One of my neighbors has this ceramic stirring cabbage. It has a wooden stirrer with a notch that it fits in, it was purchased in 1958.”Answer: It’s a coleslaw mixer. Put the shredded cabbage in there. Put dressing in there. Mix it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “3 pieces, around 150 grams, greasy but solid substance in the bottom part”Answer: It’s a perfume bottle. The top would be liquid perfume and below would be a solid perfume that you could apply to your wrists or wherever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Bought scissors from a yard sale, but one of the blades is doubled with a gap in between them. Are these scissors for something specific?”Answer: These are template scissors used for cutting out paper patterns for stained-glass. The portion in the middle allows for the seam between the glass panels where the glass is soldered together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Found this unusual egg shaped metal container, turns out, it’s an old kit for storing sewing supplies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104047/87193634/87165117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Plastic and hollow, size of a big SUV, the tide never reach it, attached to the ground.  Answer: Large Ship bumper/fender. The are Used to keep huge ships from smashing in the pier.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104059/87193635/87174443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.   Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104110/87193636/87174450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.  Answer: This is a Victorian folding clamshell biscuit box. In essence it’s just a very elaborate cookie jar however they can be quite expensive especially if this one is made of Sterling silver.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104118/87193637/87174446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.  Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104122/87193638/87174454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.  Answer: It’s a prime factorization chart.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104130/87193639/87174457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Found this while cleaning out the attic. It’s wood, looks handmade, and measures 20 cm, but I have no idea what it is or does! Answer: It’s a double spoon — a symbol of hospitality in traditional African art. It represents 2 very distinct universes that are opposite.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104133/87193640/87174456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.  Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104135/87193641/87174459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just moved to a new apartment, and found this in the living room. What is it?  Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104142/87193642/87174461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I found this metal object. No text or numbers. Can retract to be the size of a bracelet.  Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104146/87193643/87174462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Purchased in Africa, was told something about ancient sailing.  Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104153/87193644/87174463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. What Is This Ice Phenomenon I Found On The Forest Floor Today?  Answer: The term for it is frost flower and has to do with moisture freezing as it escapes plant tissue.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104158/87193645/87179852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Toilet With A U-Shaped Divot In The Front  Answer: Its a type of handicap toilet, more common in Europe than in the US. Its supposed to have an open-front seat, too. That allows a person to slide straight onto and off of the seat (such as from a wheelchair), without their genitals ever touching the seat or the bowl. This is more comfortable and decreases the spread of disease.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104204/87193646/87179863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. What Is This Type Of Clamp Used? Only Says China On It.  Answer: That’s a gang lock for lockout/Tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104209/87193647/87179866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Heavy And Small. Found In Southern Germany.  Answer: Medieval pilgrim’s badge</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104216/87193648/87179872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31.  Ukraine National Police Posted An Image Of This Strangely Textured Object, They Call It Dangerous To Health And Even Life... But What Is It?  Answer: Butterfly mines. An anti-personnel weapon manufactured by the Soviet / Russian military.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104220/87193649/87179877.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Taking a kid to a playground.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191189.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
