@@ -1,169 +1,117 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/18/2022-21:47:18
+Last updated: 06/18/2022-22:47:18
 <br>
-## <a href="#linky2" id="linky1">24 Insane Facts About World War I</a><br>
+## <a href="#linky2" id="linky1">The Best American Foods As Chosen By Non-Americans</a><br>
 
-<span style="font-size:4em">1. Smarties candy was originally made with machines that were built to make gunpowder pellets for ammunition during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193064.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I’ve tried many things so far but SMORES MAN, wow it’s perfection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044316/87192983/americanfoods2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The watch made its migration from the pocket to the wrist during World War I, when soldiers were obligated to attach them to their arms for coordinated attacks, instead of fumbling in their pockets. Before then, the bracelet watch had mostly been regarded as a joke and silly fad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193065.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I really like Reuben sandwiches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044318/87192984/americanfoods3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In World War I, California’s schoolchildren were enlisted in a war on squirrels with one-sided casualties exceeding 100,000 ground squirrels.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193066.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I had a friend from France here for nearly 6 months, and took him around the Mid-Atlantic and NYC. All he wanted to do was keep going back to Arbys for the Beef n Cheddar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044327/87192987/americanfoods1.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Humphrey Bogart was a veteran of World War I, serving in the U.S. Navy aboard the USS Leviathan. Too old to reenlist in the Navy during World War II, he volunteered for the Coast Guard Temporary Reserve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193067.png" style="width:100%"><br>
+<span style="font-size:4em">4. Buffalo wings. Because thats modern day Ambrosia.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044329/87192988/americanfoods4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In World War I, 2 damaged Destroyers, the Nubian and the Zulu, were joined together to create the Zubian.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193068.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Key Lime Pie. I think I ate a whole one by myself when I was in Miami.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192991/americanfoods5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The 1919 Tour de France featured the lowest number of participants finishing in the races history, due to the damage caused to French roads during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193069.png" style="width:100%"><br>
+<span style="font-size:4em">6. Baked cheesecake, Boston chowder, pecan pie and BBQ ribs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192992/americanfoods6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Henry Gunther was an American soldier who charged a German machine gun nest trying to regain his rank after being demoted. He was reluctantly killed by them at 10:59 am on November 11th, 1918. One minute before the Armistice took effect. Making him the last soldier killed in World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193070.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Gumbo. I’m talking cooked by somebody raised south of I-10.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044351/87192995/americanfoods7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Veterans Day occurs on November 11 every year in the United States in honor of the “eleventh hour of the eleventh day of the eleventh month of 1918 that signaled the end of World War I, known as Armistice Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193071.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Lobster Rolls. OMG these would be soooo popular back home. They are the perfect seafood sandwich!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044401/87192998/americanfoods9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. During World War I, the German government carried out a census of Jews to prove that German Jews werent pulling their weight in the war effort. What they found out instead was that Jews were overrepresented on the front lines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193072.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Oof, I love Philly cheesesteaks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044412/87193001/americanfoods11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Australians developed Vegemite because they couldnt wait for Marmite supplies to resume after World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193073.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I lived in Asia and when I visited the USA for 10 days my entire diet was basically Texas BBQ with all the sides. All the Pies - Apple, Peach, Pecan, Key Lime.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044421/87193002/americanfoods8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. During World War I, Germany attempted to preclusively purchase every hydraulic press in the US for the next two years to limit artillery shell production.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193074.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Cornbread. As a guy who moved here, Americans have got cornbread down to a T. Combined with some soul food ? Makes me smile on the inside. Gives me high blood pressure, but smile on the inside too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044423/87193003/americanfoods12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Mercy dogs were trained during World War I to comfort mortally wounded soldiers as they died in no mans land.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193075.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Those potatoes with cheese in it you make for thanksgiving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044432/87193004/americanfoods10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When Germany invaded Belgium in World War I, King Albert I took personal command of the Belgian Army. He led his army for 4 years, fighting alongside his troops, while his wife, Queen Elisabeth, worked as a nurse at the front. His 12 year-old son, the Crown Prince, also fought in the ranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193076.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I have a friend who lived in Japan and China for a total of 6 years. The thing she missed most about American food was cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044433/87193005/americanfoods13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Theodore Roosevelts youngest son Quentin Roosevelt I was a pilot in World War I and was killed in France during combat. He is the only child of a US President to die in combat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193077.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Smoked brisket. Wow! I tried this in some small Texas town and that place deserves a Michelin star!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044434/87193006/americanfoods14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Mustard gas, which was used heavily during World War I, is not just a skin irritant but damages DNA by corrupting molecules in the strand. If the victim survives, the DNA damage can lead to the development of cancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193078.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Anything fried: mozza sticks, onion rings, fried chicken etc…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044444/87193007/americanfoods15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Full-length audiobooks were originally introduced in the 1930s for people with visual disabilities, such as war-blinded World War I veterans and civilians who couldnt read braille. The average novel fit on 10 gramophone records.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193079.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Given the level of Mexican food in Europe generally, Tex Mex is insane compared to what we get over here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044445/87193008/americanfoods16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The most skilled sniper in all of World War I was a Canadian Indigenous man, Francis Pegahmagabow. He had 378 confirmed kills, captured over 300 enemy soldiers, and spent his post-war life fighting for Indigenous rights. He remains the most decorated Indigenous soldier in Canadian history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193080.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Call me basic, but I could die for New York pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044454/87193010/americanfoods17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. World War I boosted the modern bra market when the U.S. War Industries Board asked American women in 1917 to stop buying corsets because corset frames were mostly made of metal, which was needed for ammunition and other military supplies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193081.png" style="width:100%"><br>
+<span style="font-size:4em">18. Crab cakes!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044457/87193011/americanfoods19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. McDonalds founder Ray Kroc and Walt Disney both served as ambulance drivers in the same unit in World War I, and both had lied about their age to enlist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193082.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. An average diner with bottomless filter coffee, pancakes, bacon and syrup was my favorite part of the day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044506/87193012/americanfoods18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Archduke Franz Ferdinand, the heir to the Austro-Hungarian Empire, repeatedly warned Viennas hardline Chief of Staff that continued harsh oppression of the Serbians would eventually draw Austria into a war with Russia and spell the doom of both empires. Neither empire survived World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. In 1932, a group of World War I veterans gathered in Washington, DC to demand early payment of their service bonuses. President Hoover called in the Army to disperse the protestors. With a force of 500 infantrymen, 500 cavalry, and 6 tanks, the Army succeeded, and two veterans were killed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. People started wearing pajamas, originally spelled “pyjamas,” instead of nightgowns so they’d be prepared to run outside in public during World War I air raids in England.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The beginnings of the modern era of cancer chemotherapy can be traced directly to the German introduction of chemical warfare during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The 369th Infantry Regiment (better known as the Harlem Hellfighters) served on the front lines for 191 days during World War I, longer than any other American unit. In that time they never gave up any ground they captured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193087.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Biscuits And gravy. Nothing even comes close. A good buttermilk biscuit with a proper sausage gravy is heaven on earth. Because by the end, your heart stops beating anyway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044508/87193013/americanfoods20.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 People Life Gave a Big 'F - You' To</a><br>
+## <a href="#linky3" id="linky2">31 Odd and Intriguing Items With Simple Explanations</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192479.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Found this in a kitchen drawer. It’s stiff but still bends a little. What is this thing?”Answer: It’s a connector to a measuring cup set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192477.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “What is this thing? A metal spoon with a spout-like end.”Answer: It’s a saucier spoon, a mini sauce ladle. They sometimes have spouts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192478.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “A scissors-like device I bought years ago at a flea market”Answer: They are tongs for sugar cubes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192480.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “A keyring-sized thingy, made of metal (quite heavy)”Answer: It’s a tent platform anchor. This is used instead of a traditional stake when camping on a wood platform. You would slide one end between the floor planks and turn it halfway to lock it in place. The spring is there, so it doesn’t fall completely through the floorboards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192481.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Today we found a large (bigger than a beach ball) white wooden spheric structure at the beach along the Baltic Sea.”Answer: It’s an anchor ball. Day signals are used by ships when anchored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192482.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “A gray roller-like thing, it is made from iron, the spiral part rolls, saw it in a store, nothing written on it, weighs about 150 g.”Answer: It’s a grill scrubber for cleaning grill grates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192483.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “A microphone-shaped object with a transparent globe spotted on the London Underground, what is it?”Answer: That’s a light stick for the K-pop group, ATEEZ.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192484.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Hard, round, white sphere with ’hot or cold’ words and pictures”Answer: It’s a Mentos limited edition “This or That.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192485.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “About 3 feet tall, gold-colored, but silver inside — it’s hollow like a bucket, pretty lightweight.”Answer: It’s a grape hod. It was used for collecting the harvest from the vines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192486.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “What is this? I was at the zoo today and saw these in the giraffe exhibit. They appear to be made of dirt and are about 7-10 feet in height.”Answer: These are feeding/enrichment stations made to look like termite mounds. I’m a former zookeeper and have made these.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192487.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “This is a steel wire frame with 2 glass marbles. It was found in an old garage among various stuff. The marbles can turn inside the frame.”Answer: It’s a razor blade sharpener.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192488.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Found at a used bookstore. All parts rotate and the markings/months make me think it could be for mapping.”Answer: It’s an astrolabe, the ancient-times GPS. Used usually for navigation, also for time measurement and other scientific uses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192490.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “One of my neighbors has this ceramic stirring cabbage. It has a wooden stirrer with a notch that it fits in, it was purchased in 1958.”Answer: It’s a coleslaw mixer. Put the shredded cabbage in there. Put dressing in there. Mix it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192493.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “3 pieces, around 150 grams, greasy but solid substance in the bottom part”Answer: It’s a perfume bottle. The top would be liquid perfume and below would be a solid perfume that you could apply to your wrists or wherever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192494.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Bought scissors from a yard sale, but one of the blades is doubled with a gap in between them. Are these scissors for something specific?”Answer: These are template scissors used for cutting out paper patterns for stained-glass. The portion in the middle allows for the seam between the glass panels where the glass is soldered together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192495.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Found this unusual egg shaped metal container, turns out, it’s an old kit for storing sewing supplies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104047/87193634/87165117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192499.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Plastic and hollow, size of a big SUV, the tide never reach it, attached to the ground.  Answer: Large Ship bumper/fender. The are Used to keep huge ships from smashing in the pier.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104059/87193635/87174443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192500.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.   Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104110/87193636/87174450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192501.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.  Answer: This is a Victorian folding clamshell biscuit box. In essence it’s just a very elaborate cookie jar however they can be quite expensive especially if this one is made of Sterling silver.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104118/87193637/87174446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122535/87193730/87192581.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.  Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104122/87193638/87174454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122546/87193731/87192583.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.  Answer: It’s a prime factorization chart.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104130/87193639/87174457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122557/87193732/87192584.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Found this while cleaning out the attic. It’s wood, looks handmade, and measures 20 cm, but I have no idea what it is or does! Answer: It’s a double spoon — a symbol of hospitality in traditional African art. It represents 2 very distinct universes that are opposite.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104133/87193640/87174456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122608/87193733/87192590.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.  Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104135/87193641/87174459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122620/87193734/87192593.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Just moved to a new apartment, and found this in the living room. What is it?  Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104142/87193642/87174461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122629/87193735/87192592.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I found this metal object. No text or numbers. Can retract to be the size of a bracelet.  Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104146/87193643/87174462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122631/87193736/87192597.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Purchased in Africa, was told something about ancient sailing.  Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104153/87193644/87174463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122641/87193737/87192602.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. What Is This Ice Phenomenon I Found On The Forest Floor Today?  Answer: The term for it is frost flower and has to do with moisture freezing as it escapes plant tissue.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104158/87193645/87179852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122857/87193738/87165435.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Toilet With A U-Shaped Divot In The Front  Answer: Its a type of handicap toilet, more common in Europe than in the US. Its supposed to have an open-front seat, too. That allows a person to slide straight onto and off of the seat (such as from a wheelchair), without their genitals ever touching the seat or the bowl. This is more comfortable and decreases the spread of disease.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104204/87193646/87179863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122900/87193739/87165438.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. What Is This Type Of Clamp Used? Only Says China On It.  Answer: That’s a gang lock for lockout/Tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104209/87193647/87179866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122909/87193740/87165434.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Heavy And Small. Found In Southern Germany.  Answer: Medieval pilgrim’s badge</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104216/87193648/87179872.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
+<span style="font-size:4em">31.  Ukraine National Police Posted An Image Of This Strangely Textured Object, They Call It Dangerous To Health And Even Life... But What Is It?  Answer: Butterfly mines. An anti-personnel weapon manufactured by the Soviet / Russian military.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104220/87193649/87179877.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Scary Things Kids Have Said Proving They’re Absolute Creeps</a><br>
+## <a href="#linky4" id="linky3">Scary Things Kids Have Said Proving They’re Absolute Creeps</a><br>
 
 <span style="font-size:4em">1. Him: too bad the babysitter died. Me: no she didn’t bud, she’s just not here today. Him: or she’s in the freezer (while staring at the freezer) Me: you’re pretty creepy sometimes bud Him: just smiles.
 
@@ -259,6 +207,60 @@ Thankfully that was 5 years ago, and my house has not exploded.
 
 <span style="font-size:4em">
 I remember the first couple of slips of paper said stuff like “you will have good luck”. Then the rest of them had some pretty morbid stuff like “you’re going to die”. My parents read the slips of paper beforehand, then sat me down and sternly told me the fortune box was a no-go. I was a pretty serious child, it didn’t occur to me that a fortune box should be light-hearted. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193110.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">25 Most Horrifying Movies Scenes Of All Time</a><br>
+
+<span style="font-size:4em">1. “The Not a lot of people have basements in California scene in Zodiac.” - haloarh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “A movie called ‘Threads’ about nuclear war in Britain, where there’s a scene when the nukes first hit Sheffield. Genuinely one of the scariest scenes I’ve ever seen. You can see a f**king cat literally melting in it.” - Manchman67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “The end of Carrie (1976) where Sue is laying the flowers on Carries grave and the hand grabs her wrist. A friend of mine was an usher at the theater and at just that moment the rat b*stard grabbed my neck. He had snuck up behind me and waited for just the right moment.” - rogerkjones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “The Grudge (2004) - Most scenes but the one that always scares me is the scene where an office woman is heading home and the vengeful spirit of Kayako begins following her. The woman manages to escape her office and get home but is shaken by her encounter with Kayako and hides in her bed. The sheets begin to rise up and down and when the woman peaks under, Kayako greets her with that scary death rattle noise she makes and pulls the woman under the covers where the woman disappears.” - Soggy_Willingness_65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Large Marge from Pee-Wees Big Adventure.” - SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Basically the start of Ghost Ship where the wire cuts everyone dancing in half…” - Jorge_k3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “The very beginning of the original IT. The clown is hiding behind the clothes flapping in the wind on the clothesline. The clothes are blown apart and you see the evil fucking clown. And then the little girl on her trike is gone.” - Fit_Tumbleweed_5904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “The Shinings old lady in the bathtub. Im pretty relaxed with movie classifications, but thats probably something a 6yo shouldnt have seen…” - AneausSylvius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191441.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Signs - the scene where the kid hears the aliens chittering over the walkie talkie. Dont know why, but as a child I was horrified.” - BillFukngMurray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “That baby from Trainspotting.” - Senggama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191443.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The Brave Little Toaster, that damn scene where the AC unit explodes after a raging cynical outburst of hopelessness and anger. Also the flower scene where it realizes its alone and so it literally wilts and dies and the screen pulls away to black. Or the toasters nightmare with the evil fireman clown whos smiling while he catches on fire.. OR better yet, the entire god damned movie start to finish.” - Birds_Might_Be_Real</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “The last scene in The Blair Witch Project. Guy standing facing the wall in the basement.” - Markk31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Who Framed Roger Rabbit when the Doc turned around with those eyes. That f**ked my nightmares up so bad. - deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “The log truck scene from Final Destination 2.” - smokyporkbelly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “When the cute little squeaky animated shoe was dipped. Seriously. Haunted for years by Who Framed Roger Rabbit.” - omgitsmoki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “That damn boat scene from the original Willy Wonka... theres no earthly way of know-ingggg. As a kid that was nuts.” - samuuus74</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “The Witches opening scene where the little girl is grabbed by a witch when walking down an alley, then has to live out her life in a painting.” - SeaworthinessNo5209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “The ending of The Mist still f**ks with me.” - Mike011235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “When Bilbo Baggins goes for the ring while its around Frodos neck.” - enderman54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “The closet scene in The Ring where they showed the dead girl. Another one would be the gas chamber scene in The Boy In the Striped Pajamas. It made me nauseous and I will never watch it again.” - Quick-Jellyfish-8323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “That scene from The Road where they open the basement and find the larder full of you know what.” - Ihatecurtainrings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “On the spaceship/abduction scene from Fire in the Sky.” - Cooper_brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Pet Sematary, when Rachels sister dies.” - Fantasy_Assassin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Oh my God theres one scene thats f**ked me up. The Autopsy of Jane Doe. The two men are in the morgue and performing the autopsy but the radio keeps suddenly turning on to this old song that goes open up your heart.. things start to get creepier and creepier and then suddenly they realize theyre trapped in the morgue with this haunted body. The doors are locked in some way and suddenly they hear what sounds like a police officer or a guard of some sort. He keeps yelling from the outside Open up! Open up! The one mortician is trying but he cant and yells Im trying Im trying! All the sudden the man on the outside starts singing open up your heart.... GODDAMN Ive never had my blood turn cold like that.” - AwayPineapple8074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “The scene from signs when the alien runs across that kid’s birthday party.” - bags-o-salad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191452.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -558,7 +560,193 @@ Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
+## <a href="#linky11" id="linky10">34 Bizarre Reasons People Were Searched By TSA Agents</a><br>
+
+<span style="font-size:4em">1. When I was a kid, I had a broken arm and they needed to inspect my cast… cut a piece off of it and put it in some sort of machine.Also, my dad and oldest brother’s names popped up on the do not fly list because of men with the same name being a part of the IRA. For years when ever my dad and oldest brother went to fly they had to bring all sorts of ID with them to prove that they aren’t the same dudes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Glass jellyfishLike those blown glass ones that are super cool at art galleries.I got pulled aside into a small room because they thought I was smuggling sea life. Was an interesting time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Crotch anomaly. I was wearing normal joggers, nothing in my pockets. The lady behind me loudly said yeah its called a d**k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My mom passed away unexpectedly in California. I flew out to pick up her ashes and there was a terror alert at LAX. It was unreal; the military was in the airport with what looked like machine guns. I was out of my mind with grief and drugged to the gills. I was dealing with a bad back, and had to fly from California to a small town in Virginia for the memorial service. Security was heightened and everyone was being searched. I only had a small carry-on and my mom’s ashes.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> When I got to the TSA, the agent wanted me to open my mother’s box of ashes! I refused and insisted they x-ray the box instead. It showed nothing inside ( duh- ashes) which convinced the TSA agent that it had some sort of cloaking device and was hiding a bomb. Again he insisted that I open the box that held my mom’s ashes. I was beginning to lose my s**t. I called my husband who works in nuclear power and explained what was going on. He told me to tell the TSA agent to place a coin under the box and send it through the X-ray again. He did and thank goodness he saw the coin. Otherwise, I would have been arrested for assaulting a stupid TSA agent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. One time my dad had a few rocks of petrified wood in a bag, and had his phone charger right next to it.They almost went DEFCON 1 and did radio people to show up and act if it went down. But they opened the bag and saw it was rocks and a charger. They told him that it looked absolutely identical to what they had been taught a bomb looked like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. They thought my insulin pump was a bomb. I was tackled by TSA immediately. I was 14 at the time, still traumatized. Now any time I see any law enforcement I get anxious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I had a nutcracker in my carry-on. Like a legit, festive Christmas soldier nutcracker - it was a gift for my moms birthday (she collects them). I was only flying in for 2 days for my grandmas funeral so didnt check any luggage. They stopped me and questioned me for 30 minutes. Kept insinuating I was going to use it as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Not in the USA but in France, I got stopped on the way through customs by an agent who said something fast and aggressive-sounding in French. My French isnt great, so I just looked puzzled and said I didnt understand. The guy quickly beckoned another guy over and explained to him in rapid-fire French what was going on. The second guy turned to me and said He says your T-shirt is really cool and can you tell him where you got it?. It was a Star Wars T-shirt that I got as a birthday present, so I couldnt even tell him where it came from. Luckily, he didnt arrest me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I have maintained a decent beard and have a darker skin complexion for a white dude. I am randomly selected for a search or shoe swab every single time I fly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My niece has a teddy bear. She has had this teddy bear essentially since she was born. The doggo has bitten a hole into its belly, so we sew onto it like a lion head sticker, to keep its guts inside. One time we were on holiday visiting family, and she left it there, luckily I was staying a bit longer so I could grab it on my way back.An adult man with a teddy bear that had its guts torn open and fixed with a lion bandaid apparently looks pretty suspicious, so they shoved the poor guy into x-ray 3-4 times. She is still in ownership of the teddy bear and it is still in decent shape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. They searched me when I was 18 and flying alone and said it was because my ID was only a permit. When I went to my connection airport, I told a black TSA women Do you need to pat me down again because i Have a permit like the last airport? She looked at me and sighed No honey. Thats not a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My son was too tall for his age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I had a sample size (0.1oz) bottle of perfume in my book bag. They confiscated it in Detroit without explanation.I got to Germany and they discovered a full size pair of scissors in the front pocket of that same book bag. I wasn’t aware it was there. Both I, and American security, had missed the scissors.German security was much more polite over confiscating the scissors than American was over the perfume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Not TSA but the land border, they detected nuclear material. It was because another passenger in my car had some heart surgery or something where they used radioactive material, and apparently it could still be detected. Border patrol pretty much knew what it was but had to check anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. When the Andrew Garfield Spidermans first came out they did some amazing merch for them.My Stepdad is a HUGE Spidey fan, so I picked him up the corniest Spiderman film merch when in the US, one of those being like a whirling cement truck thing? It was a big tonka sized thing and the only bag it would fit in was my carry-on. They stopped me and said Is that a spiderman toy? and I took it out and showed them. They said it was the best thing theyd seen all day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Not TSA but at a land border crossing once they pulled us aside because they thought my partner was Trafficking me?!?!? We were the same age, same race (so racism wasn’t a factor,) and we were both dressed fairly nice (coming back from a wedding) with no obvious signs of like… distress? [Illegal substances]? Gunpoint? Nothing. They pulled us aside and grilled him on all of our relationship things like where we met and how old I am and my mom’s middle name and…?!?!??? Trying to trio him up. Then the guard hit on me?!?!?! Weeeeirdest experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Got pulled to the side at Fort Myers airport. One TSA guy with gloves, two TSA guys standing right behind me. Officer says, is there anything you want to tell me before I open this bag?I am horribly confused. Wrapped right on top between a few t-shirts is an large Avocado.TSA guy starts laughing. I love Avocados, my 76 yo father has a tree in his yard... he slipped one in my bag before leaving. Apparently it doesnt look the best going through the x-ray machine, they thought it may be a home-made bomb or grenade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Tampon showed up on the body scan thingy and I had to have my crotch patted down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My friend worked for the TSA. I was at my local airport and saw him while on line. I waved and he looked over. He says something to another agent and when I get to front of the line I get pulled over for extra searching. I never talked to that guy again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Arranging my two laptops and a tablet after taking them out of my bag for faster / easier scanning.I got yelled at and detained because I have Pre-Check.It took demanding for the scanning agent to join the conversation before I was allowed to leave.Had I left them all in the bag, I would have gotten stopped for secondary screening.The TSA is so damn frustrating. They serve no useful purpose except to provide security theater. They miss well over 90% of what they are tested against.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I have bad knees and occasionally bring a cane with me when I travel. I have one called a hurry-cane, basically a full-size cane that folds into three for easy packing. TSA requires me to still walk through w/o the cane if possible, so I folded it up and laid it on my checked luggage for the x-ray. This obviously new TSA agent has me pulled aside to wait for a supervisor because he said that he is familiar with it and it was a kind of weapon that his character uses in a video game. Was convinced I was trying to hide it as a cane, but that I was openly carrying a Chinese martial arts weapon. Took all of two seconds once the supervisor connected the cane to make the kid realize he was wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">  But had me chuckling. On another trip at the same airport, I was pulled aside because they said the x-ray showed something suspicious in my carry-on. Emptied the whole bag, opened all zippers and checked all pockets, patted down each pocket, checked seams for hidden pockets, etc. then had me repack everything. Not a word was said to me about what they thought they saw. On the return trip, at the other airport, pulled over by TSA for exact same reason. Found nothing again. Havent used that carry-on since. Im guessing its just something weird looking in the frame but isnt worth the hassle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Pulled me aside after my backpack went through the scanner. I was just sitting there while they searched every pocket four times, running it back through the scanner in between each one. Every time they didn’t find anything they’d bring more people over.At that point I was starting to get nervous and asked what they were looking for. Guy number 5 searching my bag looks at me and says super accusingly, “we’re looking for the butterfly knife you have hidden in there,” to which I just laughed since butterfly knives are for edgy 14 year olds. I insisted I didn’t have one, they didn’t believe me.Eventually they found the “knife” it was an old mini-stapler that I had forgotten in there from when I was in school. They seemed embarrassed enough that I just left before they could come up with an excuse to take it out on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My friend spent most of a day being checked out/questioned because he has the same first, middle, and last name (all common American names) of a guy who allegedly went to the Middle East to join ISIS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Im 64, broad shouldered, and bald.I dont even know who is doing the stopping, because I dont give a s**t at this point, but I have never successfully made it through an airport without being pulled aside to have my s**t searched through, even when all I pack is clothes. I bake in the extra 30 minutes into any flight itinerary I have for this exact reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Last name is AHMED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I had a razor in my bag. Like old school razor with a two sided blade deal. They made me take the blade out... But didnt care about the 50 pack of blades that was right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. A company I did some contract work for in a different state was giving away a free monitor arm. I was stoked, put it in my bag, and didn’t think anything of it. I later moved it to my carry-on, and as I was going through security, TSA pulled me aside saying, “uhh, we need to look in your bag.” I thought that was weird, but whatever.I happened to get a glance at the X-ray that came up, and I knew the F-up right away. The monitor arm contorted in a way that the scan looked like a small rifle.I chuckled a bit and explained to the agent what it was. When the TSA lady saw it she had the biggest sigh of relief (I’m lucky she was a good sport about it). I wanted to take a photo of the X-ray, but she said I wasn’t allowed to :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Actually pre-TSA days. Had a s***ty laptop that had a dead battery so I just plugged it in when I used it. Whatever. Security didnt believe it was a laptop. Told me I had to turn it on to prove it. Of course the battery was dead. Had to search for a power outlet. Sitting on the floor booting my s**t laptop while security hovers over me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Got held back for 20 mins, on the depart and return, because I had magic decks in my bag. It apparently sets off something like crazy, they had to swab between EVERY single card for multiple 100 card decks. I check them now when I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. My then-two month old was flagged by TSA in 2003. They took one look and realized the only bomb was in his diaper. The same season, his grandfather was subject to additional screening. They had the exact same Irish name: first, middle, and last. I surmised that there might have been an IRA person on an interpol list or something with the same name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. There was a rock in one of my army bags leaving Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. I had a brand new, unopened bag of seasoned salt that I bought in Hawaii. They made me open it so they could make sure it wasn’t [illegal substances]. Also, I have big curly hair and they always stop me to pat my head down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192046.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">25 Greatest 'F**k You's' Throughout History</a><br>
+
+<span style="font-size:4em">1. “Well, there is always that time when Amsterdam sold cannons to the Spanish army during the 80 years war, only for the Spanish to fire those cannons at the city.” - Mike_for_all </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Where Abe Lincoln criticized James Shield to the point where Shield challenged Lincoln to a duel. Lincoln 6’4” vs Shield 5’9” Lincoln being the challenged party got to pick weapons. Lincoln picked broad swords ⚔️ seeing the huge disadvantage Shield had to suck up his pride and forfeit the duel.” - Stripes003</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Frank Zappa was interviewed by an abrasive radio host named Joe Pyne. 
+
+Pyne commented to Zappa, “So I guess your long hair makes you a woman.” 
+
+Zappa replied, “So I guess your wooden leg makes you a table.” 
+
+Pyne had lost his leg serving in WW2.” - argtri</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Saint Olga of Kyiv. Her husband was killed by the drevlians if I remember correctly. Their king was like maybe we should get married and consolidate our power. Which was a very bad call. She said we need to discuss this in person send your best troops to escort me to you and we can do the planning. The best troops show up and are immediately buried alive. So next she is like I guess your troops never showed up have your army meet mine outside of your city and we will celebrate our soon to be union. They agree and are like this all seems legit let’s get real drunk. Olgas troops stay sober and kill everyone of their troops when they’re too drunk to do anything about it. At this point the drevlians figure out they no longer have a military, and they are begging her for peace. They’re like name your terms and she says I want 2 pidgeons and 3 sparrows from each house. They all had thatched roofs, so they brought her the birds and said thank you leave now. She then had her men tie a little burning sulfur to each of the birds feet and set them free to fly home and burn down every single home. All as a f**k you for killing my husband.” - themightythor2024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “One general in WWII wrote to gen. Patton: you cant take Trier wtih less then 3 divisions Patton wrote back: I took it with two, should I give it back? - QiyanasStoriesYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “More on the tame end, but in the 70s Rush’s record label was pressuring them to not make any more albums with long rock operas because it would kill sales. They went ahead and made another album where one side of the vinyl was a 20 minute song and it ended up being their biggest seller at that point in time.” - Entr3_Nou5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Although Im sure he wouldnt have called it a f**k you because he had way too much class, Im going to say Mr. Rogers sharing a wading pool with a black man while people were fighting to keep blacks out of public pools.” - evilplantosaveworld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Upon being handed his death warrant, the Marquis de Favras quipped, I see that you have made three spelling mistakes. - hablomuchoingles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “That time Julius was taken as a prisoner and he was offended that his captors asked for so little hostage money so demanded that they ask for more. They did. They got it. Upon being released Caesar then proceeded to catch them and crucify them.” - HippoKingOfOld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “50 Cent bought 200 front row tickets to one of Ja Rules concerts in 2018 and left the seats empty in response to something Ja said on Twitter.” - Blindman630</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Pete Best - whom the Beatles dismissed in favor of Ringo Starr just before they began recording their first album - released an album of his own in 1966 titled Best of the Beatles. Buyers were disappointed to find out it wasnt a Beatles compilation.” - GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Calvin Coolidge, one of our late American presidents, was nicknamed “silent cal” because he was a man of very few words. A person once seated next to him at a dinner said to him, I made a bet today that I could get more than two words out of you. Silent Cal replied, You lose. - Chaoticqueen19</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Bette Davis, who had a decades-long feud with Joan Crawford that lasted right up to the bitter end, was quoted upon first hearing of her rival’s death: ”You should never say bad things about the dead, you should only say good…Joan Crawford is dead. Good.” - VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I will forever love that in ancient Greece they had to make a law against prisoners stripping naked at trial because one woman managed to acquit herself of blasphemy by way of being too attractive. After all, if she had truly blasphemed against the gods they would revoke the gift of her beauty? I have to imagine that the session where they made that law was the saltiest runback.” - SkinkRugby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “When France was invaded during WW2 they cut the lines to the elevator up the Eiffel Tower so when the nazis went to put their flag on top they had to take the stairs all the way up.” - CopperMinotaur9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I forget the details, but one of Gengis Khans enemies p*ssed him off so much that it wasnt enough to defeat his army and kill him. Khan also diverted a river in order to destroy the guys birthplace.” - Altoid_Addict</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Sara Bareilles was pressured to add a catchy love song to her debut album. Im Not Gonna Write You A Love Song was written as a f**k you, I quit message for the label... except it backfired: They actually liked it and they put it on the radio.” - amadeus2490</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “When that dude on Who Wants to Be a Millionaire? used his only lifeline on the final question to call his dad… Not to ask for help, but to let him know he was about to win because he already knew the answer.” - sp_40</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Minnesota took a flag from Virginia during the Battle of Gettysburg in the American Civil War. Since then, Virginia keeps asking for it back, saying that its their heritage. This is my favorite rebuttal: In 2000, when Virginia legislators requested the Southern Cross flag once again, Gov. Jesse Ventura said: “Why? We won. … We took it. That makes it our heritage.” - YourGrammarIsBad25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Ive always been fond of the exchange between John Montagu and John Wilkes, both British politicians in the 18th century (Montagu was also the 4th Earl of Sandwich, the namesake and possibly inventor of the sandwich). During one of their many verbal battles, Montagu reportedly spat at Wilkes and said, Upon my soul, Wilkes, I do not know whether you will die on the gallows or of the pox. Wilkes replied, That depends, my lord, on whether I embrace your principles or your mistress. - cerebus19</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “King Philip II of Macedon sent a note to Ancient Sparta saying: 
+“You are advised to submit without further delay, for if I bring my army into your land, I will destroy your farms, slay your people, and raze your city.”
+Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A personal favorite of mine has to do with Dante Alighieri (writer of the Devine Comedy, the first part of which is Dante’s inferno) Aside from the fact his poem the Inferno itself is a self insert fan fiction where Dante gets to say “f**k you” to the people he didn’t like, one of the best stories actually happened following his death. His hometown of Florence kicked him out years earlier but eventually learned of his fame and influence and decided to claim him back from the city of Ravenna where he lived his last days, and they were like “No! Our famous poet!” So Florence got the Pope himself involved and forced them to give the remains back so Ravenna relented but instead they sent the monks an empty coffin. The monks actually looked in and found nothing but couldn’t exactly let everyone know that they committed a bit of a major taboo so they just let the matter go and Dante remains buried in Ravenna to this day (far as I know.) I can just imagine Dante’s spirit rolling with laughter at even in death he bested the city he once loved and grew to resent.” - Story-Enchantress16</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “In 1962, a wealthy Italian businessman met with Enzo Ferrari to discuss his displeasure with the famous luxury sports cars. His chief complaint was that the clutches didnt seem to hold up well. Ferrari responded, The clutch is not the problem. The problem is you don’t know how to drive a Ferrari and you break the clutch.” The businessman happened to have founded and owned a successful tractor manufacturing company, so he knew a thing or two about vehicles. He was incensed at the reply, and not only vowed to never buy another Ferrari, but to begin building his own supercars to show Ferrari how it was done. And today, the cars of Ferruccio Lamborghini are famous worldwide.” - FlashpointJ24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Joan of Arc’s trial was known to be tedious as the Church tried their hardest to find grounds for a conviction. In an attempt to trick her, she was asked whether she knew if she was in God’s grace. Since the Church believed no one was able to know if they were truly in God’s grace, either a yes or no could be condemnable. She responded by saying, “If I am not, may God put me there; and if I am, may God so keep me”. Reports on the trial say that the court was stupefied by her deft answer. It was basically a mic drop in the face of the Church at the hands of what they saw as an illiterate and heretic farm girl.” - bluewolfgirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “When the Royal Navy had finally cornered and were engaging the German warship Bismarck, one of the ships in the task force was actually made up of Polish navy crewmen who had escaped the country after the occupation. As the crew fired upon Bismarck they used their lights to signal the message I am a Pole for the Bismarcks crew to see.” - TehBigD97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191485.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">24 Insane Facts About World War I</a><br>
+
+<span style="font-size:4em">1. Smarties candy was originally made with machines that were built to make gunpowder pellets for ammunition during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The watch made its migration from the pocket to the wrist during World War I, when soldiers were obligated to attach them to their arms for coordinated attacks, instead of fumbling in their pockets. Before then, the bracelet watch had mostly been regarded as a joke and silly fad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In World War I, California’s schoolchildren were enlisted in a war on squirrels with one-sided casualties exceeding 100,000 ground squirrels.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Humphrey Bogart was a veteran of World War I, serving in the U.S. Navy aboard the USS Leviathan. Too old to reenlist in the Navy during World War II, he volunteered for the Coast Guard Temporary Reserve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193067.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. In World War I, 2 damaged Destroyers, the Nubian and the Zulu, were joined together to create the Zubian.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The 1919 Tour de France featured the lowest number of participants finishing in the races history, due to the damage caused to French roads during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193069.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Henry Gunther was an American soldier who charged a German machine gun nest trying to regain his rank after being demoted. He was reluctantly killed by them at 10:59 am on November 11th, 1918. One minute before the Armistice took effect. Making him the last soldier killed in World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Veterans Day occurs on November 11 every year in the United States in honor of the “eleventh hour of the eleventh day of the eleventh month of 1918 that signaled the end of World War I, known as Armistice Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. During World War I, the German government carried out a census of Jews to prove that German Jews werent pulling their weight in the war effort. What they found out instead was that Jews were overrepresented on the front lines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Australians developed Vegemite because they couldnt wait for Marmite supplies to resume after World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. During World War I, Germany attempted to preclusively purchase every hydraulic press in the US for the next two years to limit artillery shell production.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Mercy dogs were trained during World War I to comfort mortally wounded soldiers as they died in no mans land.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When Germany invaded Belgium in World War I, King Albert I took personal command of the Belgian Army. He led his army for 4 years, fighting alongside his troops, while his wife, Queen Elisabeth, worked as a nurse at the front. His 12 year-old son, the Crown Prince, also fought in the ranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Theodore Roosevelts youngest son Quentin Roosevelt I was a pilot in World War I and was killed in France during combat. He is the only child of a US President to die in combat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Mustard gas, which was used heavily during World War I, is not just a skin irritant but damages DNA by corrupting molecules in the strand. If the victim survives, the DNA damage can lead to the development of cancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Full-length audiobooks were originally introduced in the 1930s for people with visual disabilities, such as war-blinded World War I veterans and civilians who couldnt read braille. The average novel fit on 10 gramophone records.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The most skilled sniper in all of World War I was a Canadian Indigenous man, Francis Pegahmagabow. He had 378 confirmed kills, captured over 300 enemy soldiers, and spent his post-war life fighting for Indigenous rights. He remains the most decorated Indigenous soldier in Canadian history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. World War I boosted the modern bra market when the U.S. War Industries Board asked American women in 1917 to stop buying corsets because corset frames were mostly made of metal, which was needed for ammunition and other military supplies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193081.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. McDonalds founder Ray Kroc and Walt Disney both served as ambulance drivers in the same unit in World War I, and both had lied about their age to enlist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Archduke Franz Ferdinand, the heir to the Austro-Hungarian Empire, repeatedly warned Viennas hardline Chief of Staff that continued harsh oppression of the Serbians would eventually draw Austria into a war with Russia and spell the doom of both empires. Neither empire survived World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. In 1932, a group of World War I veterans gathered in Washington, DC to demand early payment of their service bonuses. President Hoover called in the Army to disperse the protestors. With a force of 500 infantrymen, 500 cavalry, and 6 tanks, the Army succeeded, and two veterans were killed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. People started wearing pajamas, originally spelled “pyjamas,” instead of nightgowns so they’d be prepared to run outside in public during World War I air raids in England.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The beginnings of the modern era of cancer chemotherapy can be traced directly to the German introduction of chemical warfare during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The 369th Infantry Regiment (better known as the Harlem Hellfighters) served on the front lines for 191 days during World War I, longer than any other American unit. In that time they never gave up any ground they captured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193087.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">48 Great Pics and Funny Memes to Cruise Through the Day With</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/100418/87193579/87098949.jpg" style="width:100%"><br>
 
@@ -658,251 +846,7 @@ Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">34 Bizarre Reasons People Were Searched By TSA Agents</a><br>
-
-<span style="font-size:4em">1. When I was a kid, I had a broken arm and they needed to inspect my cast… cut a piece off of it and put it in some sort of machine.Also, my dad and oldest brother’s names popped up on the do not fly list because of men with the same name being a part of the IRA. For years when ever my dad and oldest brother went to fly they had to bring all sorts of ID with them to prove that they aren’t the same dudes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Glass jellyfishLike those blown glass ones that are super cool at art galleries.I got pulled aside into a small room because they thought I was smuggling sea life. Was an interesting time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Crotch anomaly. I was wearing normal joggers, nothing in my pockets. The lady behind me loudly said yeah its called a d**k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My mom passed away unexpectedly in California. I flew out to pick up her ashes and there was a terror alert at LAX. It was unreal; the military was in the airport with what looked like machine guns. I was out of my mind with grief and drugged to the gills. I was dealing with a bad back, and had to fly from California to a small town in Virginia for the memorial service. Security was heightened and everyone was being searched. I only had a small carry-on and my mom’s ashes.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> When I got to the TSA, the agent wanted me to open my mother’s box of ashes! I refused and insisted they x-ray the box instead. It showed nothing inside ( duh- ashes) which convinced the TSA agent that it had some sort of cloaking device and was hiding a bomb. Again he insisted that I open the box that held my mom’s ashes. I was beginning to lose my s**t. I called my husband who works in nuclear power and explained what was going on. He told me to tell the TSA agent to place a coin under the box and send it through the X-ray again. He did and thank goodness he saw the coin. Otherwise, I would have been arrested for assaulting a stupid TSA agent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. One time my dad had a few rocks of petrified wood in a bag, and had his phone charger right next to it.They almost went DEFCON 1 and did radio people to show up and act if it went down. But they opened the bag and saw it was rocks and a charger. They told him that it looked absolutely identical to what they had been taught a bomb looked like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. They thought my insulin pump was a bomb. I was tackled by TSA immediately. I was 14 at the time, still traumatized. Now any time I see any law enforcement I get anxious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I had a nutcracker in my carry-on. Like a legit, festive Christmas soldier nutcracker - it was a gift for my moms birthday (she collects them). I was only flying in for 2 days for my grandmas funeral so didnt check any luggage. They stopped me and questioned me for 30 minutes. Kept insinuating I was going to use it as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Not in the USA but in France, I got stopped on the way through customs by an agent who said something fast and aggressive-sounding in French. My French isnt great, so I just looked puzzled and said I didnt understand. The guy quickly beckoned another guy over and explained to him in rapid-fire French what was going on. The second guy turned to me and said He says your T-shirt is really cool and can you tell him where you got it?. It was a Star Wars T-shirt that I got as a birthday present, so I couldnt even tell him where it came from. Luckily, he didnt arrest me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I have maintained a decent beard and have a darker skin complexion for a white dude. I am randomly selected for a search or shoe swab every single time I fly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My niece has a teddy bear. She has had this teddy bear essentially since she was born. The doggo has bitten a hole into its belly, so we sew onto it like a lion head sticker, to keep its guts inside. One time we were on holiday visiting family, and she left it there, luckily I was staying a bit longer so I could grab it on my way back.An adult man with a teddy bear that had its guts torn open and fixed with a lion bandaid apparently looks pretty suspicious, so they shoved the poor guy into x-ray 3-4 times. She is still in ownership of the teddy bear and it is still in decent shape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. They searched me when I was 18 and flying alone and said it was because my ID was only a permit. When I went to my connection airport, I told a black TSA women Do you need to pat me down again because i Have a permit like the last airport? She looked at me and sighed No honey. Thats not a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My son was too tall for his age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I had a sample size (0.1oz) bottle of perfume in my book bag. They confiscated it in Detroit without explanation.I got to Germany and they discovered a full size pair of scissors in the front pocket of that same book bag. I wasn’t aware it was there. Both I, and American security, had missed the scissors.German security was much more polite over confiscating the scissors than American was over the perfume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Not TSA but the land border, they detected nuclear material. It was because another passenger in my car had some heart surgery or something where they used radioactive material, and apparently it could still be detected. Border patrol pretty much knew what it was but had to check anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. When the Andrew Garfield Spidermans first came out they did some amazing merch for them.My Stepdad is a HUGE Spidey fan, so I picked him up the corniest Spiderman film merch when in the US, one of those being like a whirling cement truck thing? It was a big tonka sized thing and the only bag it would fit in was my carry-on. They stopped me and said Is that a spiderman toy? and I took it out and showed them. They said it was the best thing theyd seen all day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Not TSA but at a land border crossing once they pulled us aside because they thought my partner was Trafficking me?!?!? We were the same age, same race (so racism wasn’t a factor,) and we were both dressed fairly nice (coming back from a wedding) with no obvious signs of like… distress? [Illegal substances]? Gunpoint? Nothing. They pulled us aside and grilled him on all of our relationship things like where we met and how old I am and my mom’s middle name and…?!?!??? Trying to trio him up. Then the guard hit on me?!?!?! Weeeeirdest experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Got pulled to the side at Fort Myers airport. One TSA guy with gloves, two TSA guys standing right behind me. Officer says, is there anything you want to tell me before I open this bag?I am horribly confused. Wrapped right on top between a few t-shirts is an large Avocado.TSA guy starts laughing. I love Avocados, my 76 yo father has a tree in his yard... he slipped one in my bag before leaving. Apparently it doesnt look the best going through the x-ray machine, they thought it may be a home-made bomb or grenade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Tampon showed up on the body scan thingy and I had to have my crotch patted down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My friend worked for the TSA. I was at my local airport and saw him while on line. I waved and he looked over. He says something to another agent and when I get to front of the line I get pulled over for extra searching. I never talked to that guy again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Arranging my two laptops and a tablet after taking them out of my bag for faster / easier scanning.I got yelled at and detained because I have Pre-Check.It took demanding for the scanning agent to join the conversation before I was allowed to leave.Had I left them all in the bag, I would have gotten stopped for secondary screening.The TSA is so damn frustrating. They serve no useful purpose except to provide security theater. They miss well over 90% of what they are tested against.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I have bad knees and occasionally bring a cane with me when I travel. I have one called a hurry-cane, basically a full-size cane that folds into three for easy packing. TSA requires me to still walk through w/o the cane if possible, so I folded it up and laid it on my checked luggage for the x-ray. This obviously new TSA agent has me pulled aside to wait for a supervisor because he said that he is familiar with it and it was a kind of weapon that his character uses in a video game. Was convinced I was trying to hide it as a cane, but that I was openly carrying a Chinese martial arts weapon. Took all of two seconds once the supervisor connected the cane to make the kid realize he was wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  But had me chuckling. On another trip at the same airport, I was pulled aside because they said the x-ray showed something suspicious in my carry-on. Emptied the whole bag, opened all zippers and checked all pockets, patted down each pocket, checked seams for hidden pockets, etc. then had me repack everything. Not a word was said to me about what they thought they saw. On the return trip, at the other airport, pulled over by TSA for exact same reason. Found nothing again. Havent used that carry-on since. Im guessing its just something weird looking in the frame but isnt worth the hassle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Pulled me aside after my backpack went through the scanner. I was just sitting there while they searched every pocket four times, running it back through the scanner in between each one. Every time they didn’t find anything they’d bring more people over.At that point I was starting to get nervous and asked what they were looking for. Guy number 5 searching my bag looks at me and says super accusingly, “we’re looking for the butterfly knife you have hidden in there,” to which I just laughed since butterfly knives are for edgy 14 year olds. I insisted I didn’t have one, they didn’t believe me.Eventually they found the “knife” it was an old mini-stapler that I had forgotten in there from when I was in school. They seemed embarrassed enough that I just left before they could come up with an excuse to take it out on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My friend spent most of a day being checked out/questioned because he has the same first, middle, and last name (all common American names) of a guy who allegedly went to the Middle East to join ISIS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Im 64, broad shouldered, and bald.I dont even know who is doing the stopping, because I dont give a s**t at this point, but I have never successfully made it through an airport without being pulled aside to have my s**t searched through, even when all I pack is clothes. I bake in the extra 30 minutes into any flight itinerary I have for this exact reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Last name is AHMED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I had a razor in my bag. Like old school razor with a two sided blade deal. They made me take the blade out... But didnt care about the 50 pack of blades that was right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. A company I did some contract work for in a different state was giving away a free monitor arm. I was stoked, put it in my bag, and didn’t think anything of it. I later moved it to my carry-on, and as I was going through security, TSA pulled me aside saying, “uhh, we need to look in your bag.” I thought that was weird, but whatever.I happened to get a glance at the X-ray that came up, and I knew the F-up right away. The monitor arm contorted in a way that the scan looked like a small rifle.I chuckled a bit and explained to the agent what it was. When the TSA lady saw it she had the biggest sigh of relief (I’m lucky she was a good sport about it). I wanted to take a photo of the X-ray, but she said I wasn’t allowed to :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Actually pre-TSA days. Had a s***ty laptop that had a dead battery so I just plugged it in when I used it. Whatever. Security didnt believe it was a laptop. Told me I had to turn it on to prove it. Of course the battery was dead. Had to search for a power outlet. Sitting on the floor booting my s**t laptop while security hovers over me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Got held back for 20 mins, on the depart and return, because I had magic decks in my bag. It apparently sets off something like crazy, they had to swab between EVERY single card for multiple 100 card decks. I check them now when I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My then-two month old was flagged by TSA in 2003. They took one look and realized the only bomb was in his diaper. The same season, his grandfather was subject to additional screening. They had the exact same Irish name: first, middle, and last. I surmised that there might have been an IRA person on an interpol list or something with the same name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. There was a rock in one of my army bags leaving Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. I had a brand new, unopened bag of seasoned salt that I bought in Hawaii. They made me open it so they could make sure it wasn’t [illegal substances]. Also, I have big curly hair and they always stop me to pat my head down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192046.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Greatest 'F**k You's' Throughout History</a><br>
-
-<span style="font-size:4em">1. “Well, there is always that time when Amsterdam sold cannons to the Spanish army during the 80 years war, only for the Spanish to fire those cannons at the city.” - Mike_for_all </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Where Abe Lincoln criticized James Shield to the point where Shield challenged Lincoln to a duel. Lincoln 6’4” vs Shield 5’9” Lincoln being the challenged party got to pick weapons. Lincoln picked broad swords ⚔️ seeing the huge disadvantage Shield had to suck up his pride and forfeit the duel.” - Stripes003</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Frank Zappa was interviewed by an abrasive radio host named Joe Pyne. 
-
-Pyne commented to Zappa, “So I guess your long hair makes you a woman.” 
-
-Zappa replied, “So I guess your wooden leg makes you a table.” 
-
-Pyne had lost his leg serving in WW2.” - argtri</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Saint Olga of Kyiv. Her husband was killed by the drevlians if I remember correctly. Their king was like maybe we should get married and consolidate our power. Which was a very bad call. She said we need to discuss this in person send your best troops to escort me to you and we can do the planning. The best troops show up and are immediately buried alive. So next she is like I guess your troops never showed up have your army meet mine outside of your city and we will celebrate our soon to be union. They agree and are like this all seems legit let’s get real drunk. Olgas troops stay sober and kill everyone of their troops when they’re too drunk to do anything about it. At this point the drevlians figure out they no longer have a military, and they are begging her for peace. They’re like name your terms and she says I want 2 pidgeons and 3 sparrows from each house. They all had thatched roofs, so they brought her the birds and said thank you leave now. She then had her men tie a little burning sulfur to each of the birds feet and set them free to fly home and burn down every single home. All as a f**k you for killing my husband.” - themightythor2024</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “One general in WWII wrote to gen. Patton: you cant take Trier wtih less then 3 divisions Patton wrote back: I took it with two, should I give it back? - QiyanasStoriesYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “More on the tame end, but in the 70s Rush’s record label was pressuring them to not make any more albums with long rock operas because it would kill sales. They went ahead and made another album where one side of the vinyl was a 20 minute song and it ended up being their biggest seller at that point in time.” - Entr3_Nou5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Although Im sure he wouldnt have called it a f**k you because he had way too much class, Im going to say Mr. Rogers sharing a wading pool with a black man while people were fighting to keep blacks out of public pools.” - evilplantosaveworld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Upon being handed his death warrant, the Marquis de Favras quipped, I see that you have made three spelling mistakes. - hablomuchoingles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “That time Julius was taken as a prisoner and he was offended that his captors asked for so little hostage money so demanded that they ask for more. They did. They got it. Upon being released Caesar then proceeded to catch them and crucify them.” - HippoKingOfOld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “50 Cent bought 200 front row tickets to one of Ja Rules concerts in 2018 and left the seats empty in response to something Ja said on Twitter.” - Blindman630</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Pete Best - whom the Beatles dismissed in favor of Ringo Starr just before they began recording their first album - released an album of his own in 1966 titled Best of the Beatles. Buyers were disappointed to find out it wasnt a Beatles compilation.” - GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Calvin Coolidge, one of our late American presidents, was nicknamed “silent cal” because he was a man of very few words. A person once seated next to him at a dinner said to him, I made a bet today that I could get more than two words out of you. Silent Cal replied, You lose. - Chaoticqueen19</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Bette Davis, who had a decades-long feud with Joan Crawford that lasted right up to the bitter end, was quoted upon first hearing of her rival’s death: ”You should never say bad things about the dead, you should only say good…Joan Crawford is dead. Good.” - VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I will forever love that in ancient Greece they had to make a law against prisoners stripping naked at trial because one woman managed to acquit herself of blasphemy by way of being too attractive. After all, if she had truly blasphemed against the gods they would revoke the gift of her beauty? I have to imagine that the session where they made that law was the saltiest runback.” - SkinkRugby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “When France was invaded during WW2 they cut the lines to the elevator up the Eiffel Tower so when the nazis went to put their flag on top they had to take the stairs all the way up.” - CopperMinotaur9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I forget the details, but one of Gengis Khans enemies p*ssed him off so much that it wasnt enough to defeat his army and kill him. Khan also diverted a river in order to destroy the guys birthplace.” - Altoid_Addict</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Sara Bareilles was pressured to add a catchy love song to her debut album. Im Not Gonna Write You A Love Song was written as a f**k you, I quit message for the label... except it backfired: They actually liked it and they put it on the radio.” - amadeus2490</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “When that dude on Who Wants to Be a Millionaire? used his only lifeline on the final question to call his dad… Not to ask for help, but to let him know he was about to win because he already knew the answer.” - sp_40</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Minnesota took a flag from Virginia during the Battle of Gettysburg in the American Civil War. Since then, Virginia keeps asking for it back, saying that its their heritage. This is my favorite rebuttal: In 2000, when Virginia legislators requested the Southern Cross flag once again, Gov. Jesse Ventura said: “Why? We won. … We took it. That makes it our heritage.” - YourGrammarIsBad25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Ive always been fond of the exchange between John Montagu and John Wilkes, both British politicians in the 18th century (Montagu was also the 4th Earl of Sandwich, the namesake and possibly inventor of the sandwich). During one of their many verbal battles, Montagu reportedly spat at Wilkes and said, Upon my soul, Wilkes, I do not know whether you will die on the gallows or of the pox. Wilkes replied, That depends, my lord, on whether I embrace your principles or your mistress. - cerebus19</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “King Philip II of Macedon sent a note to Ancient Sparta saying: 
-“You are advised to submit without further delay, for if I bring my army into your land, I will destroy your farms, slay your people, and raze your city.”
-Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “A personal favorite of mine has to do with Dante Alighieri (writer of the Devine Comedy, the first part of which is Dante’s inferno) Aside from the fact his poem the Inferno itself is a self insert fan fiction where Dante gets to say “f**k you” to the people he didn’t like, one of the best stories actually happened following his death. His hometown of Florence kicked him out years earlier but eventually learned of his fame and influence and decided to claim him back from the city of Ravenna where he lived his last days, and they were like “No! Our famous poet!” So Florence got the Pope himself involved and forced them to give the remains back so Ravenna relented but instead they sent the monks an empty coffin. The monks actually looked in and found nothing but couldn’t exactly let everyone know that they committed a bit of a major taboo so they just let the matter go and Dante remains buried in Ravenna to this day (far as I know.) I can just imagine Dante’s spirit rolling with laughter at even in death he bested the city he once loved and grew to resent.” - Story-Enchantress16</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “In 1962, a wealthy Italian businessman met with Enzo Ferrari to discuss his displeasure with the famous luxury sports cars. His chief complaint was that the clutches didnt seem to hold up well. Ferrari responded, The clutch is not the problem. The problem is you don’t know how to drive a Ferrari and you break the clutch.” The businessman happened to have founded and owned a successful tractor manufacturing company, so he knew a thing or two about vehicles. He was incensed at the reply, and not only vowed to never buy another Ferrari, but to begin building his own supercars to show Ferrari how it was done. And today, the cars of Ferruccio Lamborghini are famous worldwide.” - FlashpointJ24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Joan of Arc’s trial was known to be tedious as the Church tried their hardest to find grounds for a conviction. In an attempt to trick her, she was asked whether she knew if she was in God’s grace. Since the Church believed no one was able to know if they were truly in God’s grace, either a yes or no could be condemnable. She responded by saying, “If I am not, may God put me there; and if I am, may God so keep me”. Reports on the trial say that the court was stupefied by her deft answer. It was basically a mic drop in the face of the Church at the hands of what they saw as an illiterate and heretic farm girl.” - bluewolfgirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “When the Royal Navy had finally cornered and were engaging the German warship Bismarck, one of the ships in the task force was actually made up of Polish navy crewmen who had escaped the country after the occupation. As the crew fired upon Bismarck they used their lights to signal the message I am a Pole for the Bismarcks crew to see.” - TehBigD97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191485.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">The Best American Foods As Chosen By Non-Americans</a><br>
-
-<span style="font-size:4em">1. I’ve tried many things so far but SMORES MAN, wow it’s perfection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044316/87192983/americanfoods2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I really like Reuben sandwiches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044318/87192984/americanfoods3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I had a friend from France here for nearly 6 months, and took him around the Mid-Atlantic and NYC. All he wanted to do was keep going back to Arbys for the Beef n Cheddar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044327/87192987/americanfoods1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Buffalo wings. Because thats modern day Ambrosia.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044329/87192988/americanfoods4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Key Lime Pie. I think I ate a whole one by myself when I was in Miami.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192991/americanfoods5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Baked cheesecake, Boston chowder, pecan pie and BBQ ribs.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044340/87192992/americanfoods6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Gumbo. I’m talking cooked by somebody raised south of I-10.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044351/87192995/americanfoods7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Lobster Rolls. OMG these would be soooo popular back home. They are the perfect seafood sandwich!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044401/87192998/americanfoods9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oof, I love Philly cheesesteaks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044412/87193001/americanfoods11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I lived in Asia and when I visited the USA for 10 days my entire diet was basically Texas BBQ with all the sides. All the Pies - Apple, Peach, Pecan, Key Lime.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044421/87193002/americanfoods8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Cornbread. As a guy who moved here, Americans have got cornbread down to a T. Combined with some soul food ? Makes me smile on the inside. Gives me high blood pressure, but smile on the inside too.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044423/87193003/americanfoods12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Those potatoes with cheese in it you make for thanksgiving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044432/87193004/americanfoods10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I have a friend who lived in Japan and China for a total of 6 years. The thing she missed most about American food was cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044433/87193005/americanfoods13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Smoked brisket. Wow! I tried this in some small Texas town and that place deserves a Michelin star!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044434/87193006/americanfoods14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Anything fried: mozza sticks, onion rings, fried chicken etc…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044444/87193007/americanfoods15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Given the level of Mexican food in Europe generally, Tex Mex is insane compared to what we get over here.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044445/87193008/americanfoods16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Call me basic, but I could die for New York pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044454/87193010/americanfoods17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Crab cakes!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044457/87193011/americanfoods19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. An average diner with bottomless filter coffee, pancakes, bacon and syrup was my favorite part of the day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044506/87193012/americanfoods18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Biscuits And gravy. Nothing even comes close. A good buttermilk biscuit with a proper sausage gravy is heaven on earth. Because by the end, your heart stops beating anyway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/16/044508/87193013/americanfoods20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">31 Odd and Intriguing Items With Simple Explanations</a><br>
-
-<span style="font-size:4em">1. “Found this in a kitchen drawer. It’s stiff but still bends a little. What is this thing?”Answer: It’s a connector to a measuring cup set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “What is this thing? A metal spoon with a spout-like end.”Answer: It’s a saucier spoon, a mini sauce ladle. They sometimes have spouts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “A scissors-like device I bought years ago at a flea market”Answer: They are tongs for sugar cubes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “A keyring-sized thingy, made of metal (quite heavy)”Answer: It’s a tent platform anchor. This is used instead of a traditional stake when camping on a wood platform. You would slide one end between the floor planks and turn it halfway to lock it in place. The spring is there, so it doesn’t fall completely through the floorboards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Today we found a large (bigger than a beach ball) white wooden spheric structure at the beach along the Baltic Sea.”Answer: It’s an anchor ball. Day signals are used by ships when anchored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “A gray roller-like thing, it is made from iron, the spiral part rolls, saw it in a store, nothing written on it, weighs about 150 g.”Answer: It’s a grill scrubber for cleaning grill grates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “A microphone-shaped object with a transparent globe spotted on the London Underground, what is it?”Answer: That’s a light stick for the K-pop group, ATEEZ.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Hard, round, white sphere with ’hot or cold’ words and pictures”Answer: It’s a Mentos limited edition “This or That.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “About 3 feet tall, gold-colored, but silver inside — it’s hollow like a bucket, pretty lightweight.”Answer: It’s a grape hod. It was used for collecting the harvest from the vines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “What is this? I was at the zoo today and saw these in the giraffe exhibit. They appear to be made of dirt and are about 7-10 feet in height.”Answer: These are feeding/enrichment stations made to look like termite mounds. I’m a former zookeeper and have made these.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “This is a steel wire frame with 2 glass marbles. It was found in an old garage among various stuff. The marbles can turn inside the frame.”Answer: It’s a razor blade sharpener.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Found at a used bookstore. All parts rotate and the markings/months make me think it could be for mapping.”Answer: It’s an astrolabe, the ancient-times GPS. Used usually for navigation, also for time measurement and other scientific uses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “One of my neighbors has this ceramic stirring cabbage. It has a wooden stirrer with a notch that it fits in, it was purchased in 1958.”Answer: It’s a coleslaw mixer. Put the shredded cabbage in there. Put dressing in there. Mix it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “3 pieces, around 150 grams, greasy but solid substance in the bottom part”Answer: It’s a perfume bottle. The top would be liquid perfume and below would be a solid perfume that you could apply to your wrists or wherever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Bought scissors from a yard sale, but one of the blades is doubled with a gap in between them. Are these scissors for something specific?”Answer: These are template scissors used for cutting out paper patterns for stained-glass. The portion in the middle allows for the seam between the glass panels where the glass is soldered together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Found this unusual egg shaped metal container, turns out, it’s an old kit for storing sewing supplies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104047/87193634/87165117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Plastic and hollow, size of a big SUV, the tide never reach it, attached to the ground.  Answer: Large Ship bumper/fender. The are Used to keep huge ships from smashing in the pier.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104059/87193635/87174443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.   Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104110/87193636/87174450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.  Answer: This is a Victorian folding clamshell biscuit box. In essence it’s just a very elaborate cookie jar however they can be quite expensive especially if this one is made of Sterling silver.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104118/87193637/87174446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.  Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104122/87193638/87174454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.  Answer: It’s a prime factorization chart.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104130/87193639/87174457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Found this while cleaning out the attic. It’s wood, looks handmade, and measures 20 cm, but I have no idea what it is or does! Answer: It’s a double spoon — a symbol of hospitality in traditional African art. It represents 2 very distinct universes that are opposite.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104133/87193640/87174456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.  Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104135/87193641/87174459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just moved to a new apartment, and found this in the living room. What is it?  Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104142/87193642/87174461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I found this metal object. No text or numbers. Can retract to be the size of a bracelet.  Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104146/87193643/87174462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Purchased in Africa, was told something about ancient sailing.  Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104153/87193644/87174463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. What Is This Ice Phenomenon I Found On The Forest Floor Today?  Answer: The term for it is frost flower and has to do with moisture freezing as it escapes plant tissue.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104158/87193645/87179852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Toilet With A U-Shaped Divot In The Front  Answer: Its a type of handicap toilet, more common in Europe than in the US. Its supposed to have an open-front seat, too. That allows a person to slide straight onto and off of the seat (such as from a wheelchair), without their genitals ever touching the seat or the bowl. This is more comfortable and decreases the spread of disease.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104204/87193646/87179863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. What Is This Type Of Clamp Used? Only Says China On It.  Answer: That’s a gang lock for lockout/Tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104209/87193647/87179866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Heavy And Small. Found In Southern Germany.  Answer: Medieval pilgrim’s badge</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104216/87193648/87179872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31.  Ukraine National Police Posted An Image Of This Strangely Textured Object, They Call It Dangerous To Health And Even Life... But What Is It?  Answer: Butterfly mines. An anti-personnel weapon manufactured by the Soviet / Russian military.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/104220/87193649/87179877.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">29 History Memes That Are Surprisingly Accurate</a><br>
+## <a href="#linky15" id="linky14">29 History Memes That Are Surprisingly Accurate</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193492.jpg" style="width:100%"><br>
 
@@ -964,57 +908,113 @@ Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">25 Most Horrifying Movies Scenes Of All Time</a><br>
+## <a href="#linky16" id="linky15">30 People Life Gave a Big 'F - You' To</a><br>
 
-<span style="font-size:4em">1. “The Not a lot of people have basements in California scene in Zodiac.” - haloarh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191433.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “A movie called ‘Threads’ about nuclear war in Britain, where there’s a scene when the nukes first hit Sheffield. Genuinely one of the scariest scenes I’ve ever seen. You can see a f**king cat literally melting in it.” - Manchman67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191434.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “The end of Carrie (1976) where Sue is laying the flowers on Carries grave and the hand grabs her wrist. A friend of mine was an usher at the theater and at just that moment the rat b*stard grabbed my neck. He had snuck up behind me and waited for just the right moment.” - rogerkjones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191435.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “The Grudge (2004) - Most scenes but the one that always scares me is the scene where an office woman is heading home and the vengeful spirit of Kayako begins following her. The woman manages to escape her office and get home but is shaken by her encounter with Kayako and hides in her bed. The sheets begin to rise up and down and when the woman peaks under, Kayako greets her with that scary death rattle noise she makes and pulls the woman under the covers where the woman disappears.” - Soggy_Willingness_65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191436.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Large Marge from Pee-Wees Big Adventure.” - SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191439.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Basically the start of Ghost Ship where the wire cuts everyone dancing in half…” - Jorge_k3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191440.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “The very beginning of the original IT. The clown is hiding behind the clothes flapping in the wind on the clothesline. The clothes are blown apart and you see the evil fucking clown. And then the little girl on her trike is gone.” - Fit_Tumbleweed_5904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191437.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “The Shinings old lady in the bathtub. Im pretty relaxed with movie classifications, but thats probably something a 6yo shouldnt have seen…” - AneausSylvius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191441.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Signs - the scene where the kid hears the aliens chittering over the walkie talkie. Dont know why, but as a child I was horrified.” - BillFukngMurray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191442.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “That baby from Trainspotting.” - Senggama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191443.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “The Brave Little Toaster, that damn scene where the AC unit explodes after a raging cynical outburst of hopelessness and anger. Also the flower scene where it realizes its alone and so it literally wilts and dies and the screen pulls away to black. Or the toasters nightmare with the evil fireman clown whos smiling while he catches on fire.. OR better yet, the entire god damned movie start to finish.” - Birds_Might_Be_Real</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191444.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “The last scene in The Blair Witch Project. Guy standing facing the wall in the basement.” - Markk31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191445.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Who Framed Roger Rabbit when the Doc turned around with those eyes. That f**ked my nightmares up so bad. - deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191446.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “The log truck scene from Final Destination 2.” - smokyporkbelly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191438.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “When the cute little squeaky animated shoe was dipped. Seriously. Haunted for years by Who Framed Roger Rabbit.” - omgitsmoki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191447.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “That damn boat scene from the original Willy Wonka... theres no earthly way of know-ingggg. As a kid that was nuts.” - samuuus74</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191453.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “The Witches opening scene where the little girl is grabbed by a witch when walking down an alley, then has to live out her life in a painting.” - SeaworthinessNo5209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191448.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “The ending of The Mist still f**ks with me.” - Mike011235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191451.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “When Bilbo Baggins goes for the ring while its around Frodos neck.” - enderman54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191456.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192501.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “The closet scene in The Ring where they showed the dead girl. Another one would be the gas chamber scene in The Boy In the Striped Pajamas. It made me nauseous and I will never watch it again.” - Quick-Jellyfish-8323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191449.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122535/87193730/87192581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “That scene from The Road where they open the basement and find the larder full of you know what.” - Ihatecurtainrings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191457.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122546/87193731/87192583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “On the spaceship/abduction scene from Fire in the Sky.” - Cooper_brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191450.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122557/87193732/87192584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Pet Sematary, when Rachels sister dies.” - Fantasy_Assassin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191454.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122608/87193733/87192590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Oh my God theres one scene thats f**ked me up. The Autopsy of Jane Doe. The two men are in the morgue and performing the autopsy but the radio keeps suddenly turning on to this old song that goes open up your heart.. things start to get creepier and creepier and then suddenly they realize theyre trapped in the morgue with this haunted body. The doors are locked in some way and suddenly they hear what sounds like a police officer or a guard of some sort. He keeps yelling from the outside Open up! Open up! The one mortician is trying but he cant and yells Im trying Im trying! All the sudden the man on the outside starts singing open up your heart.... GODDAMN Ive never had my blood turn cold like that.” - AwayPineapple8074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191455.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122620/87193734/87192593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “The scene from signs when the alien runs across that kid’s birthday party.” - bags-o-salad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191452.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122629/87193735/87192592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122631/87193736/87192597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122641/87193737/87192602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122857/87193738/87165435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122900/87193739/87165438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122909/87193740/87165434.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
