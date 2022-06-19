@@ -1,121 +1,69 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/19/2022-11:47:18
+Last updated: 06/19/2022-12:47:18
 <br>
-## <a href="#linky2" id="linky1">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
+## <a href="#linky2" id="linky1">29 History Memes That Are Surprisingly Accurate</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193485.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193486.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">32 Dad Jokes For Father's Day</a><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Did you hear about the guy who evaporated? He’ll be mist!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114327/87193675/dadjokes1.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. How do you stop a bull from charging? Cancel its credit card.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114330/87193676/dadjokes3.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. How do you throw a party in outer space? You planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114338/87193677/dadjokes4.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Post Malone has canceled his tour. Does that mean he’s postpone Malone?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114341/87193678/dadjokes2.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Im thinking I should do lunges to stay in shape. That would be a big step forward.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114349/87193679/dadjokes6.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Why is Peter Pan always flying? Because he Neverlands.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114352/87193680/dadjokes7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. People said I’d never get over my Phil Collins obsession, but take a look at me now.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114400/87193681/dadjokes8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I think calendars are trying to kill us. They’re the reason our days are numbered. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114403/87193682/dadjokes5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Which state has the most streets? Rhode Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114413/87193683/dadjokes10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I wish my kids werent offended by my Frozen jokes. They really need to let it go!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114417/87193684/dadjokes9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Why was the stadium so hot after the game? Because all the fans left.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114424/87193685/dadjokes12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Tequila may not fix your life, but it’s worth a shot.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114429/87193686/dadjokes11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. What did the 0 say to the 8? “Nice belt.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114435/87193687/dadjokes14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I could tell a joke about pizza, but its a little cheesy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114440/87193688/dadjokes15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Can someone please tell me what “IDK” means? Every time I ask somebody they say “I don’t know.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114446/87193689/dadjokes13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I’m reading a book in Braille. Something bad is about to happen. I can feel it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114451/87193690/dadjokes17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Why did the man fall down the well? Because he couldn’t see that well!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114458/87193691/dadjokes16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. What did the buffalo say to its son when he left? Bison!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114502/87193692/dadjokes19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Where do math teachers go on vacation? Times Square.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114509/87193693/dadjokes18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I joined a dating site for arsonists. I’ve been getting a lot of matches. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114514/87193694/dadjokes21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. There are two kinds of people in this world. People who can count, and people who can’t.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114520/87193695/dadjokes22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My boss told me to have a good day, so I went home!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114525/87193696/dadjokes23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Why was 6 afraid of 7? Because…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114531/87193697/dadjokes24.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. What did 20 do when it was hungry?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114536/87193698/dadjokes25.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Did you hear the one about the roof? Never mind, its over your head.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114539/87193699/dadjokes20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Why did the picture go to prison? Because it was framed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114543/87193700/dadjokes26.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Why did the golfer bring two pairs of pants? In case he got a hole in one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114547/87193701/dadjokes27.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. What type of tree fits in your hand? A palm tree.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114550/87193702/dadjokes28.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. How does a hurricane see? With one eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114554/87193703/dadjokes29.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I’m the only one my wife has ever dated. All the others were all nines or tens!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114558/87193704/dadjokes30.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Why did the mushroom go to the party? Because he was a fun-gi.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115639/87193706/dadjokes32.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. Why did the fungi leave the party? Because there wasn’t mush-room. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115629/87193705/dadjokes31.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193495.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">25 Greatest 'F**k You's' Throughout History</a><br>
+## <a href="#linky3" id="linky2">25 Greatest 'F**k You's' Throughout History</a><br>
 
 <span style="font-size:4em">1. “Well, there is always that time when Amsterdam sold cannons to the Spanish army during the 80 years war, only for the Spanish to fire those cannons at the city.” - Mike_for_all </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191462.jpg" style="width:100%"><br>
 
@@ -177,49 +125,121 @@ Ancient Sparta replied to King Philip’s threat: “If. - spaycedinvader</span>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Bits Of Knowledge That Feel Illegal To Know</a><br>
+## <a href="#linky4" id="linky3">The Funniest and Most Savage Tweets of the Week </a><br>
 
-<span style="font-size:4em">1. Police are allowed to lie to you. So are military recruiters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190221.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. What does that one dentist know that the rest of us dont? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. It takes three full rotations to remove a human head due to the skin’s elasticity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190204.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. That is one big avocado. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190205.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. He watches over me, my Shaquille ONeal angel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Most large retail employers don’t have a policy against recording your interactions with your bosses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190216.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. That man is in for the long haul. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. You can ask the FBI if they have a file on you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190203.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Its not a bug its a feature, people! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193784.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Totally another route of what everyone else is posting but…. the lion at The Animal Kingdom safari ride isn’t chained (Disney World park). He is fed a huge piece of meat every morning and sits on a rock that is changed to the perfect temperature for him everyday so he has no reason to attack anyone on the safari ride.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190207.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193782.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. When I was a kid, my dad taught me how to pick a lock. I became very interested in different kinds of locks and purchased a lock pick set. I practiced for years and became pretty good at certain types of locks. So over the years every now and then, if a neighbor locks themselves out of the house or a friend loses the key to a padlock or a lock box I’ve been able to help. But the reactions I tend to get from people, even while I’m helping them with their lock is mainly one of mistrust. I’m not a cat burglar. I just like locks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190208.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Her loss bro, dont fret it champ. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193787.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Hospitals have but don’t tell you about a program to reduce your bills depending on how much you make. You can go to their website and find a usually hidden link for financial assistance policies and really cut your bill down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190209.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Lmao</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193788.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. 1284x is a Ford fleet key. Not chipped, can be found on Amazon for $7 and perfectly legal to replicate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190210.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193789.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Well, I gave my 9th grade chemistry class a detailed report on diacetylmorphine (heroin) for a project about organic molecules, including how to make it. It was pretty interesting to do and fun to present, but I feel like I broke the law somehow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190211.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Is the woman dead or what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Aluminum foil can block the thefts detection signals in super markets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190212.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. In Canada you can record any conversation with someone without their knowledge, unless it is in furtherance of an offence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190213.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When companies ask for your name/age/sex/race/occupation/salary/etc. you can just lie.
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Its banana time baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193794.gif" style="width:100%"><br>
+
+<span style="font-size:4em">15. Now that would have been a good troll. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Time for a bath. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Some of these were kinda dumb, but this, this is genuis. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193810.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">24 Dull Edges Who Elementary Facts They Learned Late In Life</a><br>
+
+<span style="font-size:4em">1. “I was baking a cake in my dorm for my 19th birthday. My friends were running around and being loud so I yelled at them to stop because I didn’t want them to ruin the cake. They looked at me like I had two heads so I had to explain that my siblings and I were always taught that making loud noises or running around a kitchen when something was baking would make it fall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
 
-You’ll never be able to remove the information about yourself off the internet, but you can muddy the water quite a bit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190214.jpg" style="width:100%"><br>
+ I was surprised they had never learned that baking rule Yeah turns out that was made up to stop kids from running and being loud for a couple hours when baking was being done. I called my mom up to ask her about it and both she and my grandma were just as shocked as I was to find out it’s a myth, so apparently, at least 3 generations have believed and followed that rule.” - rakedleaves 
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. When you have a debt with a collection agency you can pay the debt and then call back a few weeks later and say, “I was told when I called and paid that you’d remove this from my credit score.” And then you ask for documentation saying they’re gonna do it. Apparently collection agencies don’t keep super good records on stuff like that; they just want your money. It worked for me, and I hope it can work for you if you need it in the future.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190215.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “My mother used to feed me dark green lettuce as salads, I loved it even when I was a kid. I think I was 17 and I had a friend over for dinner, asked my mom for seconds of dark green lettuce. Friend looks at me like Im a fucking idiot, Uh, you mean spinach? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. You can ask scientists for their research paper that you usually have to pay money to view in a journal. They are allowed to just email it to you no questions asked and they like to do it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190217.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Not me, but in college my buddy asked me how to spell smorning because his phone didnt recognize it as a word. He then goes on to say you know, like the smorning. I ask, do you mean this morning??” - InfernoCBR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The tricks doctors use to distract you when they’re trying to check your reflexes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190206.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “I thought Robins (the birds) came out of hibernation at Christmas time because thats when you see them on cards and stuff in the UK. I did not realise for an verrrry long time that you in fact see them all the time, like normal birds.” - bos_well_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. It is illegal for a company to forbid you from discussing your wages with your coworkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190218.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I was in my mid 30s before I realized that the turn your head part of turn your head and cough was so that you didnt cough on the damned doctor. I always thought it mustve flexed some particular muscle or something, I dont know. To my credit, I am a man and I dont think Ive ever had to do that.” - RaceCeeDeeCee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Confidence can open a lot of doors. A lot of times, you can get away with more with some swagger than you otherwise would being meek about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190219.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “One day I had a lightbulb moment. “Pickling is a process! You can pickle anything. SO WHAT ARE PICKLES?!?” I was gonna blow so many minds with this question. Turns out, it’s cucumbers. And everyone on the planet knew that, except me.” - Goatpuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. When you’re on a jury you can vote for someone as innocent even if you think they did it. Most common reasoning for this would be if you just think that they shouldn’t be punished for whatever they did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190220.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “For years I had been removing toast from the toaster by sticking a butter knife in and picking it out. It wasnt until I was 20 that my girlfriend freaked out when I started doing it that I learned metal in toaster = bad. Guess Id been pretty lucky…” - shallowwaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. We can’t see the 4th dimension but the 4th dimension can see us</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190222.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Not me, but my father once stole into the woods during a family camping trip and put marshmallows on a bush, so it looked like they grew on it. My sister made it to post secondary horticulture before she wised up.” - NikthePieEater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I always thought the term, the coast is clear...was, the ghost is clear (transparent).” - Royal_Elderberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My great-grandfather had half a pinkie on his left hand and always said it was because he liked to use it to sop up leftover pancake syrup and had worn it down to a nub. This made sense to me because Id seen him do that plenty of times. I was so embarrassed to be in college before I realized that was ridiculous and finally asked him what really happened. In reality, he and my uncle had been working in their blacksmith shop, and my uncle accidentally brought a sledgehammer down on his pinkie. He didnt want to traumatize me with the truth as a kid, but by the time I asked, I was more than old enough to handle it.” - EducatedOwlAthena</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “That Alaska isn’t an island with a weirdly straight border” - PeachyMazikeen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “It only recently occured to me, I my fifth decade, that Watch where youre going! means Look in the direction you are walking, and its not just something to say to someone who bumps into you.” - wdr1977</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I didn’t realize the handicap sign was a person in a wheelchair for a long time. I had always thought it was just a neat little symbol, kind of like a treble clef.” - karate_jones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “As a kid I used to think the Black Market was an actual place like a bazaar where all the criminals would regularly meet up” - PM_ME_FREE_STUFF_PLS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “When I was 4 or 5 my mother brought me home a balloon one day. Plain blue balloon with helium. I accidentally let it go and it flew away. Being little, I was devastated. Later that night she comes back from somewhere and tells me she was at the gas station and miraculously, my balloon just came floating by. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I’m on a date and we stop to get gas and we see a balloon floating by the gas station. Probably hadn’t thought of that story again in all that time. So I start telling my date the story about how I had a balloon fly away and then my mother found the very same balloon at a gas station and then as I’m saying it out loud I realize (too late to not look like an idiot) that of course, it wasn’t the same freaking balloon. I’ve never seen someone laugh so hard.” - Bonzi777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I truly believed that for the longest time that hair grew from the ends of the strands, not from the scalp. When I was 13 I asked my friend who had dyed her hair what she was going to do when the ends grew her natural colour. Didn’t hear the end of it. My stupidity still pains me to this day.” - oreo_2005</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I thought until the age of about 21 that when companies had Est next to their name, it was estimated that companies were started around that time. It was only when I voiced my disgust profoundly to my then-partner that it was ridiculous that no one knew when these companies were formed, and why were they all estimated?! She just stared at me blankly for a moment and just went: Established Penny dropped real hard.” - Wolfy-1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “That little thing that dangles at the back of your throat isn’t your tonsils.” - spriest14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “I was 23 when I learned I was allergic to apples. Someone was complaining about their throat closing up after smoking, and I responded with “oh yeah like when you eat an apple?” You can imagine how the conversation went from there.” - CaptCapsize</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Depends what you consider a child I suppose. But in my mid 20s I moved up the food chain from server to bartender at the restaurant I worked at. Some one order a Roman Coke. I didnt know what was in a Roman Coke so I told him so and but that I would figure it out. I figured out that what I had been understanding as a Roman Coke my whole drinking life, was in fact a Rum & Coke...that, I knew how to make!” - uuonderlust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “A friend of mine had a mom that would make sure there was an inch of room for his feet to grow whenever he got new shoes as a kid. He was in his twenties and trying on new shoes, and asked the salesperson if there was room at the tip. They looked up at him like he had a dick growing out of his forehead and said, You dont need room, youre done growing. Oof.” - RonanTheBarbarian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A few years ago I was searching for different classical pieces in Spotify, getting frustrated that every version Spotify had of works by composers like Beethoven and Bach were covers performed by modern orchestras. My idiot brain was looking for original recordings from the 18th Century until it finally realized how dumb that was.” - DisraeliEers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191710.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -427,99 +447,53 @@ You’ll never be able to remove the information about yourself off the internet
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">24 Dull Edges Who Elementary Facts They Learned Late In Life</a><br>
+## <a href="#linky9" id="linky8">21 Dad Memes That Woke Us up at 5am on a Saturday</a><br>
 
-<span style="font-size:4em">1. “I was baking a cake in my dorm for my 19th birthday. My friends were running around and being loud so I yelled at them to stop because I didn’t want them to ruin the cake. They looked at me like I had two heads so I had to explain that my siblings and I were always taught that making loud noises or running around a kitchen when something was baking would make it fall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191687.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012934/87193838/acdc.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
- I was surprised they had never learned that baking rule Yeah turns out that was made up to stop kids from running and being loud for a couple hours when baking was being done. I called my mom up to ask her about it and both she and my grandma were just as shocked as I was to find out it’s a myth, so apparently, at least 3 generations have believed and followed that rule.” - rakedleaves 
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191688.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012945/87193839/brews.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “My mother used to feed me dark green lettuce as salads, I loved it even when I was a kid. I think I was 17 and I had a friend over for dinner, asked my mom for seconds of dark green lettuce. Friend looks at me like Im a fucking idiot, Uh, you mean spinach? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191689.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/012956/87193840/am.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Not me, but in college my buddy asked me how to spell smorning because his phone didnt recognize it as a word. He then goes on to say you know, like the smorning. I ask, do you mean this morning??” - InfernoCBR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191690.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013007/87193841/coffee.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I thought Robins (the birds) came out of hibernation at Christmas time because thats when you see them on cards and stuff in the UK. I did not realise for an verrrry long time that you in fact see them all the time, like normal birds.” - bos_well_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191691.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013017/87193842/car.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I was in my mid 30s before I realized that the turn your head part of turn your head and cough was so that you didnt cough on the damned doctor. I always thought it mustve flexed some particular muscle or something, I dont know. To my credit, I am a man and I dont think Ive ever had to do that.” - RaceCeeDeeCee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191692.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013019/87193843/grass.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “One day I had a lightbulb moment. “Pickling is a process! You can pickle anything. SO WHAT ARE PICKLES?!?” I was gonna blow so many minds with this question. Turns out, it’s cucumbers. And everyone on the planet knew that, except me.” - Goatpuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191693.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013028/87193844/grill.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “For years I had been removing toast from the toaster by sticking a butter knife in and picking it out. It wasnt until I was 20 that my girlfriend freaked out when I started doing it that I learned metal in toaster = bad. Guess Id been pretty lucky…” - shallowwaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191694.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013030/87193845/kermit.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Not me, but my father once stole into the woods during a family camping trip and put marshmallows on a bush, so it looked like they grew on it. My sister made it to post secondary horticulture before she wised up.” - NikthePieEater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191695.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013040/87193846/mom.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “I always thought the term, the coast is clear...was, the ghost is clear (transparent).” - Royal_Elderberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191696.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013042/87193847/pit.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “My great-grandfather had half a pinkie on his left hand and always said it was because he liked to use it to sop up leftover pancake syrup and had worn it down to a nub. This made sense to me because Id seen him do that plenty of times. I was so embarrassed to be in college before I realized that was ridiculous and finally asked him what really happened. In reality, he and my uncle had been working in their blacksmith shop, and my uncle accidentally brought a sledgehammer down on his pinkie. He didnt want to traumatize me with the truth as a kid, but by the time I asked, I was more than old enough to handle it.” - EducatedOwlAthena</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191697.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013053/87193849/rain.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “That Alaska isn’t an island with a weirdly straight border” - PeachyMazikeen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191698.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013104/87193851/rock.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “It only recently occured to me, I my fifth decade, that Watch where youre going! means Look in the direction you are walking, and its not just something to say to someone who bumps into you.” - wdr1977</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191699.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013116/87193853/rich.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I didn’t realize the handicap sign was a person in a wheelchair for a long time. I had always thought it was just a neat little symbol, kind of like a treble clef.” - karate_jones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191700.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013127/87193856/sleep.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “As a kid I used to think the Black Market was an actual place like a bazaar where all the criminals would regularly meet up” - PM_ME_FREE_STUFF_PLS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191701.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013136/87193858/sat.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “When I was 4 or 5 my mother brought me home a balloon one day. Plain blue balloon with helium. I accidentally let it go and it flew away. Being little, I was devastated. Later that night she comes back from somewhere and tells me she was at the gas station and miraculously, my balloon just came floating by. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191702.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013138/87193860/smoke.png" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I’m on a date and we stop to get gas and we see a balloon floating by the gas station. Probably hadn’t thought of that story again in all that time. So I start telling my date the story about how I had a balloon fly away and then my mother found the very same balloon at a gas station and then as I’m saying it out loud I realize (too late to not look like an idiot) that of course, it wasn’t the same freaking balloon. I’ve never seen someone laugh so hard.” - Bonzi777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191703.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193862/speed.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “I truly believed that for the longest time that hair grew from the ends of the strands, not from the scalp. When I was 13 I asked my friend who had dyed her hair what she was going to do when the ends grew her natural colour. Didn’t hear the end of it. My stupidity still pains me to this day.” - oreo_2005</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191704.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193864/tiger.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “I thought until the age of about 21 that when companies had Est next to their name, it was estimated that companies were started around that time. It was only when I voiced my disgust profoundly to my then-partner that it was ridiculous that no one knew when these companies were formed, and why were they all estimated?! She just stared at me blankly for a moment and just went: Established Penny dropped real hard.” - Wolfy-1993</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191705.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013200/87193867/time.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “That little thing that dangles at the back of your throat isn’t your tonsils.” - spriest14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191706.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013211/87193870/tool.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “I was 23 when I learned I was allergic to apples. Someone was complaining about their throat closing up after smoking, and I responded with “oh yeah like when you eat an apple?” You can imagine how the conversation went from there.” - CaptCapsize</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Depends what you consider a child I suppose. But in my mid 20s I moved up the food chain from server to bartender at the restaurant I worked at. Some one order a Roman Coke. I didnt know what was in a Roman Coke so I told him so and but that I would figure it out. I figured out that what I had been understanding as a Roman Coke my whole drinking life, was in fact a Rum & Coke...that, I knew how to make!” - uuonderlust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “A friend of mine had a mom that would make sure there was an inch of room for his feet to grow whenever he got new shoes as a kid. He was in his twenties and trying on new shoes, and asked the salesperson if there was room at the tip. They looked up at him like he had a dick growing out of his forehead and said, You dont need room, youre done growing. Oof.” - RonanTheBarbarian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “A few years ago I was searching for different classical pieces in Spotify, getting frustrated that every version Spotify had of works by composers like Beethoven and Bach were covers performed by modern orchestras. My idiot brain was looking for original recordings from the 18th Century until it finally realized how dumb that was.” - DisraeliEers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191710.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013222/87193872/weather.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">15 Times Food Packaging Wasn't Lying</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This pizza is glorious!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Finally, a pre-packaged pasta dish that doesnt look like crap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189852.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">30 People Life Gave a Big 'F - You' To</a><br>
+## <a href="#linky10" id="linky9">30 People Life Gave a Big 'F - You' To</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192479.jpg" style="width:100%"><br>
 
@@ -583,125 +557,137 @@ Being a kid I was thrilled and totally believed it. So fast forward 20+ years. I
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">29 History Memes That Are Surprisingly Accurate</a><br>
+## <a href="#linky11" id="linky10">25 Most Horrifying Movies Scenes Of All Time</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193492.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The Not a lot of people have basements in California scene in Zodiac.” - haloarh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193469.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “A movie called ‘Threads’ about nuclear war in Britain, where there’s a scene when the nukes first hit Sheffield. Genuinely one of the scariest scenes I’ve ever seen. You can see a f**king cat literally melting in it.” - Manchman67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193470.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “The end of Carrie (1976) where Sue is laying the flowers on Carries grave and the hand grabs her wrist. A friend of mine was an usher at the theater and at just that moment the rat b*stard grabbed my neck. He had snuck up behind me and waited for just the right moment.” - rogerkjones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193467.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “The Grudge (2004) - Most scenes but the one that always scares me is the scene where an office woman is heading home and the vengeful spirit of Kayako begins following her. The woman manages to escape her office and get home but is shaken by her encounter with Kayako and hides in her bed. The sheets begin to rise up and down and when the woman peaks under, Kayako greets her with that scary death rattle noise she makes and pulls the woman under the covers where the woman disappears.” - Soggy_Willingness_65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193468.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Large Marge from Pee-Wees Big Adventure.” - SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193471.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Basically the start of Ghost Ship where the wire cuts everyone dancing in half…” - Jorge_k3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193472.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “The very beginning of the original IT. The clown is hiding behind the clothes flapping in the wind on the clothesline. The clothes are blown apart and you see the evil fucking clown. And then the little girl on her trike is gone.” - Fit_Tumbleweed_5904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193473.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “The Shinings old lady in the bathtub. Im pretty relaxed with movie classifications, but thats probably something a 6yo shouldnt have seen…” - AneausSylvius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193474.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Signs - the scene where the kid hears the aliens chittering over the walkie talkie. Dont know why, but as a child I was horrified.” - BillFukngMurray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193475.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “That baby from Trainspotting.” - Senggama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193476.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “The Brave Little Toaster, that damn scene where the AC unit explodes after a raging cynical outburst of hopelessness and anger. Also the flower scene where it realizes its alone and so it literally wilts and dies and the screen pulls away to black. Or the toasters nightmare with the evil fireman clown whos smiling while he catches on fire.. OR better yet, the entire god damned movie start to finish.” - Birds_Might_Be_Real</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193477.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “The last scene in The Blair Witch Project. Guy standing facing the wall in the basement.” - Markk31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193478.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Who Framed Roger Rabbit when the Doc turned around with those eyes. That f**ked my nightmares up so bad. - deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193466.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “The log truck scene from Final Destination 2.” - smokyporkbelly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193479.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “When the cute little squeaky animated shoe was dipped. Seriously. Haunted for years by Who Framed Roger Rabbit.” - omgitsmoki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193480.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “That damn boat scene from the original Willy Wonka... theres no earthly way of know-ingggg. As a kid that was nuts.” - samuuus74</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193481.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “The Witches opening scene where the little girl is grabbed by a witch when walking down an alley, then has to live out her life in a painting.” - SeaworthinessNo5209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193482.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “The ending of The Mist still f**ks with me.” - Mike011235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193483.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “When Bilbo Baggins goes for the ring while its around Frodos neck.” - enderman54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193484.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “The closet scene in The Ring where they showed the dead girl. Another one would be the gas chamber scene in The Boy In the Striped Pajamas. It made me nauseous and I will never watch it again.” - Quick-Jellyfish-8323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193485.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “That scene from The Road where they open the basement and find the larder full of you know what.” - Ihatecurtainrings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193486.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “On the spaceship/abduction scene from Fire in the Sky.” - Cooper_brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193487.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “Pet Sematary, when Rachels sister dies.” - Fantasy_Assassin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193488.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Oh my God theres one scene thats f**ked me up. The Autopsy of Jane Doe. The two men are in the morgue and performing the autopsy but the radio keeps suddenly turning on to this old song that goes open up your heart.. things start to get creepier and creepier and then suddenly they realize theyre trapped in the morgue with this haunted body. The doors are locked in some way and suddenly they hear what sounds like a police officer or a guard of some sort. He keeps yelling from the outside Open up! Open up! The one mortician is trying but he cant and yells Im trying Im trying! All the sudden the man on the outside starts singing open up your heart.... GODDAMN Ive never had my blood turn cold like that.” - AwayPineapple8074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193495.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “The scene from signs when the alien runs across that kid’s birthday party.” - bags-o-salad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191452.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">The Funniest and Most Savage Tweets of the Week </a><br>
+## <a href="#linky12" id="linky11">20 Bits Of Knowledge That Feel Illegal To Know</a><br>
 
-<span style="font-size:4em">1. What does that one dentist know that the rest of us dont? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193801.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Police are allowed to lie to you. So are military recruiters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. That is one big avocado. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193793.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. It takes three full rotations to remove a human head due to the skin’s elasticity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. He watches over me, my Shaquille ONeal angel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193786.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. That man is in for the long haul. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193783.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Most large retail employers don’t have a policy against recording your interactions with your bosses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190216.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Its not a bug its a feature, people! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193784.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. You can ask the FBI if they have a file on you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193782.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Totally another route of what everyone else is posting but…. the lion at The Animal Kingdom safari ride isn’t chained (Disney World park). He is fed a huge piece of meat every morning and sits on a rock that is changed to the perfect temperature for him everyday so he has no reason to attack anyone on the safari ride.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Her loss bro, dont fret it champ. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193787.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. When I was a kid, my dad taught me how to pick a lock. I became very interested in different kinds of locks and purchased a lock pick set. I practiced for years and became pretty good at certain types of locks. So over the years every now and then, if a neighbor locks themselves out of the house or a friend loses the key to a padlock or a lock box I’ve been able to help. But the reactions I tend to get from people, even while I’m helping them with their lock is mainly one of mistrust. I’m not a cat burglar. I just like locks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Lmao</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193788.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Hospitals have but don’t tell you about a program to reduce your bills depending on how much you make. You can go to their website and find a usually hidden link for financial assistance policies and really cut your bill down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193789.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. 1284x is a Ford fleet key. Not chipped, can be found on Amazon for $7 and perfectly legal to replicate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Is the woman dead or what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193790.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Well, I gave my 9th grade chemistry class a detailed report on diacetylmorphine (heroin) for a project about organic molecules, including how to make it. It was pretty interesting to do and fun to present, but I feel like I broke the law somehow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193791.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Aluminum foil can block the thefts detection signals in super markets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193792.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. In Canada you can record any conversation with someone without their knowledge, unless it is in furtherance of an offence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193785.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. When companies ask for your name/age/sex/race/occupation/salary/etc. you can just lie.
+
+You’ll never be able to remove the information about yourself off the internet, but you can muddy the water quite a bit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190214.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Its banana time baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193794.gif" style="width:100%"><br>
+<span style="font-size:4em">14. When you have a debt with a collection agency you can pay the debt and then call back a few weeks later and say, “I was told when I called and paid that you’d remove this from my credit score.” And then you ask for documentation saying they’re gonna do it. Apparently collection agencies don’t keep super good records on stuff like that; they just want your money. It worked for me, and I hope it can work for you if you need it in the future.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190215.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Now that would have been a good troll. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193795.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. You can ask scientists for their research paper that you usually have to pay money to view in a journal. They are allowed to just email it to you no questions asked and they like to do it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193796.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The tricks doctors use to distract you when they’re trying to check your reflexes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193797.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. It is illegal for a company to forbid you from discussing your wages with your coworkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193798.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Confidence can open a lot of doors. A lot of times, you can get away with more with some swagger than you otherwise would being meek about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190219.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193799.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. When you’re on a jury you can vote for someone as innocent even if you think they did it. Most common reasoning for this would be if you just think that they shouldn’t be punished for whatever they did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Time for a bath. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193800.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. We can’t see the 4th dimension but the 4th dimension can see us</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87190222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Some of these were kinda dumb, but this, this is genuis. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193802.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193803.jpg" style="width:100%"><br>
+## <a href="#linky13" id="linky12">15 Times Food Packaging Wasn't Lying</a><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193804.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193805.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This pizza is glorious!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193807.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Finally, a pre-packaged pasta dish that doesnt look like crap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193808.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193809.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87193810.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189852.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -804,7 +790,75 @@ I remember the first couple of slips of paper said stuff like “you will have g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">24 Insane Facts About World War I</a><br>
+## <a href="#linky15" id="linky14">32 Dad Jokes For Father's Day</a><br>
+
+<span style="font-size:4em">1. Did you hear about the guy who evaporated? He’ll be mist!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114327/87193675/dadjokes1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. How do you stop a bull from charging? Cancel its credit card.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114330/87193676/dadjokes3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. How do you throw a party in outer space? You planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114338/87193677/dadjokes4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Post Malone has canceled his tour. Does that mean he’s postpone Malone?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114341/87193678/dadjokes2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Im thinking I should do lunges to stay in shape. That would be a big step forward.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114349/87193679/dadjokes6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Why is Peter Pan always flying? Because he Neverlands.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114352/87193680/dadjokes7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. People said I’d never get over my Phil Collins obsession, but take a look at me now.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114400/87193681/dadjokes8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I think calendars are trying to kill us. They’re the reason our days are numbered. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114403/87193682/dadjokes5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Which state has the most streets? Rhode Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114413/87193683/dadjokes10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I wish my kids werent offended by my Frozen jokes. They really need to let it go!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114417/87193684/dadjokes9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Why was the stadium so hot after the game? Because all the fans left.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114424/87193685/dadjokes12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Tequila may not fix your life, but it’s worth a shot.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114429/87193686/dadjokes11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. What did the 0 say to the 8? “Nice belt.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114435/87193687/dadjokes14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I could tell a joke about pizza, but its a little cheesy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114440/87193688/dadjokes15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Can someone please tell me what “IDK” means? Every time I ask somebody they say “I don’t know.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114446/87193689/dadjokes13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I’m reading a book in Braille. Something bad is about to happen. I can feel it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114451/87193690/dadjokes17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Why did the man fall down the well? Because he couldn’t see that well!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114458/87193691/dadjokes16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. What did the buffalo say to its son when he left? Bison!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114502/87193692/dadjokes19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Where do math teachers go on vacation? Times Square.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114509/87193693/dadjokes18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I joined a dating site for arsonists. I’ve been getting a lot of matches. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114514/87193694/dadjokes21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There are two kinds of people in this world. People who can count, and people who can’t.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114520/87193695/dadjokes22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. My boss told me to have a good day, so I went home!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114525/87193696/dadjokes23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Why was 6 afraid of 7? Because…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114531/87193697/dadjokes24.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. What did 20 do when it was hungry?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114536/87193698/dadjokes25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Did you hear the one about the roof? Never mind, its over your head.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114539/87193699/dadjokes20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Why did the picture go to prison? Because it was framed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114543/87193700/dadjokes26.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Why did the golfer bring two pairs of pants? In case he got a hole in one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114547/87193701/dadjokes27.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. What type of tree fits in your hand? A palm tree.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114550/87193702/dadjokes28.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. How does a hurricane see? With one eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114554/87193703/dadjokes29.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I’m the only one my wife has ever dated. All the others were all nines or tens!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114558/87193704/dadjokes30.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Why did the mushroom go to the party? Because he was a fun-gi.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115639/87193706/dadjokes32.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Why did the fungi leave the party? Because there wasn’t mush-room. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115629/87193705/dadjokes31.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">24 Insane Facts About World War I</a><br>
 
 <span style="font-size:4em">1. Smarties candy was originally made with machines that were built to make gunpowder pellets for ammunition during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193064.jpg" style="width:100%"><br>
 
@@ -853,60 +907,6 @@ I remember the first couple of slips of paper said stuff like “you will have g
 <span style="font-size:4em">23. The beginnings of the modern era of cancer chemotherapy can be traced directly to the German introduction of chemical warfare during World War I.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193086.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">24. The 369th Infantry Regiment (better known as the Harlem Hellfighters) served on the front lines for 191 days during World War I, longer than any other American unit. In that time they never gave up any ground they captured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87193087.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">25 Most Horrifying Movies Scenes Of All Time</a><br>
-
-<span style="font-size:4em">1. “The Not a lot of people have basements in California scene in Zodiac.” - haloarh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “A movie called ‘Threads’ about nuclear war in Britain, where there’s a scene when the nukes first hit Sheffield. Genuinely one of the scariest scenes I’ve ever seen. You can see a f**king cat literally melting in it.” - Manchman67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “The end of Carrie (1976) where Sue is laying the flowers on Carries grave and the hand grabs her wrist. A friend of mine was an usher at the theater and at just that moment the rat b*stard grabbed my neck. He had snuck up behind me and waited for just the right moment.” - rogerkjones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “The Grudge (2004) - Most scenes but the one that always scares me is the scene where an office woman is heading home and the vengeful spirit of Kayako begins following her. The woman manages to escape her office and get home but is shaken by her encounter with Kayako and hides in her bed. The sheets begin to rise up and down and when the woman peaks under, Kayako greets her with that scary death rattle noise she makes and pulls the woman under the covers where the woman disappears.” - Soggy_Willingness_65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Large Marge from Pee-Wees Big Adventure.” - SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Basically the start of Ghost Ship where the wire cuts everyone dancing in half…” - Jorge_k3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “The very beginning of the original IT. The clown is hiding behind the clothes flapping in the wind on the clothesline. The clothes are blown apart and you see the evil fucking clown. And then the little girl on her trike is gone.” - Fit_Tumbleweed_5904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “The Shinings old lady in the bathtub. Im pretty relaxed with movie classifications, but thats probably something a 6yo shouldnt have seen…” - AneausSylvius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Signs - the scene where the kid hears the aliens chittering over the walkie talkie. Dont know why, but as a child I was horrified.” - BillFukngMurray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “That baby from Trainspotting.” - Senggama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The Brave Little Toaster, that damn scene where the AC unit explodes after a raging cynical outburst of hopelessness and anger. Also the flower scene where it realizes its alone and so it literally wilts and dies and the screen pulls away to black. Or the toasters nightmare with the evil fireman clown whos smiling while he catches on fire.. OR better yet, the entire god damned movie start to finish.” - Birds_Might_Be_Real</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “The last scene in The Blair Witch Project. Guy standing facing the wall in the basement.” - Markk31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Who Framed Roger Rabbit when the Doc turned around with those eyes. That f**ked my nightmares up so bad. - deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “The log truck scene from Final Destination 2.” - smokyporkbelly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “When the cute little squeaky animated shoe was dipped. Seriously. Haunted for years by Who Framed Roger Rabbit.” - omgitsmoki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “That damn boat scene from the original Willy Wonka... theres no earthly way of know-ingggg. As a kid that was nuts.” - samuuus74</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “The Witches opening scene where the little girl is grabbed by a witch when walking down an alley, then has to live out her life in a painting.” - SeaworthinessNo5209</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “The ending of The Mist still f**ks with me.” - Mike011235</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “When Bilbo Baggins goes for the ring while its around Frodos neck.” - enderman54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “The closet scene in The Ring where they showed the dead girl. Another one would be the gas chamber scene in The Boy In the Striped Pajamas. It made me nauseous and I will never watch it again.” - Quick-Jellyfish-8323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “That scene from The Road where they open the basement and find the larder full of you know what.” - Ihatecurtainrings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “On the spaceship/abduction scene from Fire in the Sky.” - Cooper_brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Pet Sematary, when Rachels sister dies.” - Fantasy_Assassin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Oh my God theres one scene thats f**ked me up. The Autopsy of Jane Doe. The two men are in the morgue and performing the autopsy but the radio keeps suddenly turning on to this old song that goes open up your heart.. things start to get creepier and creepier and then suddenly they realize theyre trapped in the morgue with this haunted body. The doors are locked in some way and suddenly they hear what sounds like a police officer or a guard of some sort. He keeps yelling from the outside Open up! Open up! The one mortician is trying but he cant and yells Im trying Im trying! All the sudden the man on the outside starts singing open up your heart.... GODDAMN Ive never had my blood turn cold like that.” - AwayPineapple8074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “The scene from signs when the alien runs across that kid’s birthday party.” - bags-o-salad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191452.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
