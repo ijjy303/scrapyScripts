@@ -1,67 +1,50 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/20/2022-18:47:18
+Last updated: 06/20/2022-19:47:18
 <br>
-## <a href="#linky2" id="linky1">30 Smarta**es Who Took Things Literally</a><br>
+## <a href="#linky2" id="linky1">20 Most Controversial Takes On Star Wars</a><br>
 
-<span style="font-size:4em">1. My Daughter When She Said She Wanted To Be A Transformer For Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194278.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “For a show that explores the f**king universe, so much bullshit happens in goddamn Tatooine” - rocharox 
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194262.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Not enough planet wars, black hole wars or moon wars.” - BlueBerryMassacre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194252.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “LASERS LOCK DOORS. LASERS OPEN DOORS. LASERS KNOW WHAT YOU WANT THE DOOR TO DO.” - SlamVanDamn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My Dad Asked Me If I Wanted An Egg Sandwich. Im Not Even Mad, This Is Genius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194260.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Han is actually older than Obi-Wan due to Time Dilation” - Snowbofreak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. My Grandma Wanted Some Creative Grad Photos Of My Friend Since Were Graduating At The Same Time. This Was Her Least Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194253.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “The Death Stars werent badly designed they were just badly managed.
+Yes, designing them assuming large scale assaults was stupid given the political state of the galaxy but the second Death Star wasnt even finished so that doesnt count, its all Palpatines fault. As for the first one that was finished, the Alliance made three runs on the exhaust port. The first was called off before they made it to the trench, the second failed and the third was carried out by space Jesus which isnt exactly fair. All in all it sounds like a fairly effective defence when you consider the design philosophy.” - Engeneus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Asked For My Cheese Steak To Be Made With Love. They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194263.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Not sure if controversial but they need to take the franchise and yeet it 200 years in the future. Im tired of the Empire era where they need to justify why more than 2 jedi and 2 sith exist at one moment along side knowing everything is pointless until Luke leaves the farm.” - Alandrus_sun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Experts Recommend Keeping Your Daily Rituals Even While Working From Home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194254.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “It is shown on multiple occasions that droids are very much alive with their own personality (C3PO, R2D2, L3,K-2SO, and more). Its clear robots are as alive in the Star Wars universe as any other alien race, yet they are treated worse than slaves by both the good and bad sides. C3PO and R2D2s memory being erased like its nothing, given away like slaves. Its quite hypocritical from the good side to treat droids like slaves yet be all goody two shoes about helping the flesh bodied creatures of the universe.” - wulfnstein85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. We Told Our 3-Year-Old That New Year Is Special Because You Get To Toast. Later, She Said: Are We Gonna Make A Toast Now? And Thus, A New Years Day Tradition Was Born</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194255.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “The universe and many characters are bonkers cool, but many times completely offset by poor writing, plot holes, and terrible plot devices” - SkipChestDayNotLegs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Mom Told Her Daughter To Grab Her Mask So They Can Go To The Store. This Was The Mask She Grabbed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194256.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Jawas make me feel tingly inside.” - BaidenFallwind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Someone At A Festival Offered Me A Little Bag Of Coke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194251.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “That one of the biggest issues of Star Wars is that they keep going all in on Palpatine. I mean who gave a f**k about the Paint by Numbers Evil Emperor during the OG trilogy?” - Prinnyramza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. This Is The Picture Amazon Sent My Bill To Say The Packages Were Delivered To A Family Member Directly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194250.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “I judge most of my opinion of a Star Wars movie by the quality of its lightsaber fights.” - smugfruitplate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. My Buddy Was Told He Could Wear A Costume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194257.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I like Star Wars. The movies, the shows, the games. But the community ruins it. They complain and bitch about every single thing there is. It’s fantasy, not history..” - absoluteunit94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Always Asked For A Skateboard As A Kid. My Parents Said Not Until Im 35. Today They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194258.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Star wars is actually the life story of C-3PO, think about it.” - jonguy77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. They Asked For A Lion Cut, They Got It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194259.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Return of the Jedi is my favorite SW film. Whenever someone says the words Star Wars my mind immediately goes to any particular scene in that movie. People say the movie is disjointed but every scene is memorable at the very least.” - SovietWalrus1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Told My Boyfriend I Was Getting Him A Burger For Christmas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194261.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Boba Fett is an oddly overrated background character, and even after watching The Book of Boba Fett, I don’t really care about him.” - imidoesonlyfans</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Found Some Amazing Indian Writing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194264.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “The entire universe has a cool factor that outweighs the atrocious storytelling.” - Ozty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194265.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “For purely story purposes, Han Solo should have died at the end of Empire.” - Big_Boss_42_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194266.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “In retrospect, it makes no sense that Obi-Wan and Yoda didnt train Leia alongside Luke and just left her as a backup. As one character recently said, shes just as important. In fact, Luke shouldnt have been the sole focus of the original trilogy. It shouldve been both of them.” - MegalodonDentistry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. My Cousin Wanted Cake And Ordered One. Told The Bakers To Write Whatever They Wanted Because It Was For Just For Her Anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194267.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “All Wookiees should be shaved.” - THIS_IS_GOD_TOTALLY_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. I Was So Busy In The Kitchen I Didnt Know What To Do First, My Little Brother Asked Me What He Can Do To Help. I Told Him To Get That Bag Of Potato, Peel Half Of Them And Boil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Picked It, Thanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My Buddy Jokingly Decided To Get A Henna Tattoo Of A Mustache While At The Beach. The Foreign Worker Didnt Understand What He Was Saying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This Brazilian Girl Is A Big Fan Of K-Pop And All Korean Culture, So Her Father Without Understanding Much Wanted To Personalize Her Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Not Gonna Lie, This Is A Little Too Accurate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My Bro Told My Grandma, Jokingly, That He Wanted 100 Things From The Dollar Store For Christmas, Grandma Doesnt Like Being Challenged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Cant Blame The Answerer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. My Brothers Camp Requires The Kids Write A Letter Home After The First Week</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I Asked My 5-Year-Old To Keep An Eye On His Sister While I Served Him Dinner, I Peek Out Of The Kitchen And Find Him Like This. His Sister Is In Good Hands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A First Grade Class Was Asked What They Would Say If The Pilgrims Showed Up At Their Door On Thanksgiving</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194279.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Disney should have not even touched the time period where any of the original stories take place. They should have made entirely new stories set hundreds, thousands, millions, or billions of years before or after the Skywalker Saga. I mean Im glad they made Rogue One and Jedi Fallen Order. But other than that, they should have made entirely separate stories that didnt even mention the Skywalkers or the Solos.” - stonebolt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195154.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -207,41 +190,7 @@ Last updated: 06/20/2022-18:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">15 Times Food Packaging Wasn't Lying</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This pizza is glorious!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Finally, a pre-packaged pasta dish that doesnt look like crap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189852.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">24 Comments That Were Really On Point</a><br>
+## <a href="#linky5" id="linky4">24 Comments That Were Really On Point</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188063.png" style="width:100%"><br>
 
@@ -293,79 +242,115 @@ Last updated: 06/20/2022-18:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">34 Truly Wholesome Pics that Might Move You</a><br>
+## <a href="#linky6" id="linky5">Petty Couple Gets Revenge on D-Bag at Costco</a><br>
 
-<span style="font-size:4em">1. “My boyfriend surprised me with a kitten.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192524.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044019/87193957/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013055/87193850/87184358.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193956/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “My doggy died of cancer and my cat misses him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013043/87193848/87184355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “A granddaughter loves on grandma after she received news of terminal brain cancer. A child’s love is always so pure!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013106/87193852/87184353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013210/87193869/87187365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “My significant other holding our identical twin girls together for the first time. They’re a month old today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013117/87193854/87184365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013128/87193857/87184376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I found a baby bunny and my dog wants to keep it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “60 years of marriage, he never leaves her side.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Our son gets to finally come home after spending a month in the NICU after he was born.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My mom and my best boy saying their goodbyes — a dog’s love and connection is so pure.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My childhood hero, Tony Hawk, got the privilege of meeting my adult hero today, my son, Odin.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “A homeless man in Las Vegas who carries his dog on his back everywhere he goes”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “My wife was diagnosed with breast cancer at 7 months pregnant, started chemo 7 weeks ago, and gave birth to a healthy baby boy early this morning!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “My wife and her pupper 30 years ago, and our daughter and her pupper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Saved a cracked egg! Carried it in my bra for 35 days. Surprised he didn’t die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013126/87193855/87184361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “My 92-year-old dad tells car stories to my son.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013137/87193859/87184379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “We finally met our goal weight! My 25-lb baby!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013140/87193861/87187343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “My son comforting his best friend at the vet”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “I was told since I was 25 that I couldn’t have kids. At 40 years old, I’m celebrating my first Mother’s Day with the best baby ever!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013148/87193863/87187344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013151/87193865/87187351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “Saved a tiny deer from a swift rapid while kayaking.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013159/87193866/87187356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013202/87193868/87187361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Our cat had a rough day and came to my boyfriend for comfort.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/013213/87193871/87187367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “My wedding ring on my daughter’s arm (1lb, 12 oz) — born at 26 weeks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192543.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044007/87193953/three.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">20 D-Day Facts You’ve Never Heard Before</a><br>
+## <a href="#linky7" id="linky6">15 Times Food Packaging Wasn't Lying</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This pizza is glorious!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Finally, a pre-packaged pasta dish that doesnt look like crap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189852.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">30 Smarta**es Who Took Things Literally</a><br>
+
+<span style="font-size:4em">1. My Daughter When She Said She Wanted To Be A Transformer For Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My Dad Asked Me If I Wanted An Egg Sandwich. Im Not Even Mad, This Is Genius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My Grandma Wanted Some Creative Grad Photos Of My Friend Since Were Graduating At The Same Time. This Was Her Least Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Asked For My Cheese Steak To Be Made With Love. They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Experts Recommend Keeping Your Daily Rituals Even While Working From Home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. We Told Our 3-Year-Old That New Year Is Special Because You Get To Toast. Later, She Said: Are We Gonna Make A Toast Now? And Thus, A New Years Day Tradition Was Born</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Mom Told Her Daughter To Grab Her Mask So They Can Go To The Store. This Was The Mask She Grabbed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Someone At A Festival Offered Me A Little Bag Of Coke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This Is The Picture Amazon Sent My Bill To Say The Packages Were Delivered To A Family Member Directly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My Buddy Was Told He Could Wear A Costume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Always Asked For A Skateboard As A Kid. My Parents Said Not Until Im 35. Today They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. They Asked For A Lion Cut, They Got It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Told My Boyfriend I Was Getting Him A Burger For Christmas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Found Some Amazing Indian Writing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My Cousin Wanted Cake And Ordered One. Told The Bakers To Write Whatever They Wanted Because It Was For Just For Her Anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I Was So Busy In The Kitchen I Didnt Know What To Do First, My Little Brother Asked Me What He Can Do To Help. I Told Him To Get That Bag Of Potato, Peel Half Of Them And Boil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Picked It, Thanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My Buddy Jokingly Decided To Get A Henna Tattoo Of A Mustache While At The Beach. The Foreign Worker Didnt Understand What He Was Saying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This Brazilian Girl Is A Big Fan Of K-Pop And All Korean Culture, So Her Father Without Understanding Much Wanted To Personalize Her Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Not Gonna Lie, This Is A Little Too Accurate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My Bro Told My Grandma, Jokingly, That He Wanted 100 Things From The Dollar Store For Christmas, Grandma Doesnt Like Being Challenged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Cant Blame The Answerer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. My Brothers Camp Requires The Kids Write A Letter Home After The First Week</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I Asked My 5-Year-Old To Keep An Eye On His Sister While I Served Him Dinner, I Peek Out Of The Kitchen And Find Him Like This. His Sister Is In Good Hands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. A First Grade Class Was Asked What They Would Say If The Pilgrims Showed Up At Their Door On Thanksgiving</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194279.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">20 D-Day Facts You’ve Never Heard Before</a><br>
 
 <span style="font-size:4em">1. That the majority of the Higgins boats which delivered troops to the D-Day invasion beaches were piloted by members of the U.S. Coast Guard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043930/87193944/dday6.jpg" style="width:100%"><br>
 
@@ -406,64 +391,6 @@ Last updated: 06/20/2022-18:47:18
 <span style="font-size:4em">19. On D-Day, Paratrooper John Steele became stuck hanging from his parachute on the church steeple for two hours during the battle for Sainte Mère Église. A statue of him still hangs there today.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044038/87193962/dday19.png" style="width:100%"><br>
 
 <span style="font-size:4em">20. That in preparing for D-Day, the Allies fooled Germany into thinking that they would attack Pas de Calais instead of Normandy by creating a phantom army complete with fake landing crafts made from painted canvas and inflatable tanks which they moved overnight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044040/87193963/dday20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Savage Memes to Tickle Your Funny Bone</a><br>
-
-<span style="font-size:4em">1. Wuadda wudda wuadda. Oh man I love this song. Wuadda wuadda </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Staring the Rock, and coming to theaters this fall. Part 2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This one hurt, just turn your phone, the neck cranking isnt worth it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. WTF is going here? We have no idea, so that makes two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. She would look stupid in a mustache. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. It wont fix it, but it will fix me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh weve seen this one before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Star Wars got nothing on this saga. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193234.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. No way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193242.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. He was waiting for his moment of attack and he saw it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This one goes out to all the bellow average boys.  We thank you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193249.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193250.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193225.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -663,13 +590,61 @@ Last updated: 06/20/2022-18:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Petty Couple Gets Revenge on D-Bag at Costco</a><br>
+## <a href="#linky13" id="linky12">Savage Memes to Tickle Your Funny Bone</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044019/87193957/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Wuadda wudda wuadda. Oh man I love this song. Wuadda wuadda </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193956/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Staring the Rock, and coming to theaters this fall. Part 2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044007/87193953/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This one hurt, just turn your phone, the neck cranking isnt worth it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. WTF is going here? We have no idea, so that makes two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. She would look stupid in a mustache. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. It wont fix it, but it will fix me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Oh weve seen this one before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Star Wars got nothing on this saga. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193234.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. No way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193242.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. He was waiting for his moment of attack and he saw it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This one goes out to all the bellow average boys.  We thank you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193249.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193250.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193225.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
