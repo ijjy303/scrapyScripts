@@ -1,75 +1,37 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/21/2022-01:47:17
+Last updated: 06/21/2022-02:47:17
 <br>
-## <a href="#linky2" id="linky1">34 Bizarre Reasons People Were Searched By TSA Agents</a><br>
+## <a href="#linky2" id="linky1">15 Liars Living in a Fantasy World</a><br>
 
-<span style="font-size:4em">1. When I was a kid, I had a broken arm and they needed to inspect my cast… cut a piece off of it and put it in some sort of machine.Also, my dad and oldest brother’s names popped up on the do not fly list because of men with the same name being a part of the IRA. For years when ever my dad and oldest brother went to fly they had to bring all sorts of ID with them to prove that they aren’t the same dudes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192028.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195128.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Glass jellyfishLike those blown glass ones that are super cool at art galleries.I got pulled aside into a small room because they thought I was smuggling sea life. Was an interesting time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192015.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195130.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Crotch anomaly. I was wearing normal joggers, nothing in my pockets. The lady behind me loudly said yeah its called a d**k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192014.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My mom passed away unexpectedly in California. I flew out to pick up her ashes and there was a terror alert at LAX. It was unreal; the military was in the airport with what looked like machine guns. I was out of my mind with grief and drugged to the gills. I was dealing with a bad back, and had to fly from California to a small town in Virginia for the memorial service. Security was heightened and everyone was being searched. I only had a small carry-on and my mom’s ashes.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192016.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195132.png" style="width:100%"><br>
 
-<span style="font-size:4em"> When I got to the TSA, the agent wanted me to open my mother’s box of ashes! I refused and insisted they x-ray the box instead. It showed nothing inside ( duh- ashes) which convinced the TSA agent that it had some sort of cloaking device and was hiding a bomb. Again he insisted that I open the box that held my mom’s ashes. I was beginning to lose my s**t. I called my husband who works in nuclear power and explained what was going on. He told me to tell the TSA agent to place a coin under the box and send it through the X-ray again. He did and thank goodness he saw the coin. Otherwise, I would have been arrested for assaulting a stupid TSA agent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192017.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. One time my dad had a few rocks of petrified wood in a bag, and had his phone charger right next to it.They almost went DEFCON 1 and did radio people to show up and act if it went down. But they opened the bag and saw it was rocks and a charger. They told him that it looked absolutely identical to what they had been taught a bomb looked like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192018.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195125.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. They thought my insulin pump was a bomb. I was tackled by TSA immediately. I was 14 at the time, still traumatized. Now any time I see any law enforcement I get anxious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192019.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195119.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. I had a nutcracker in my carry-on. Like a legit, festive Christmas soldier nutcracker - it was a gift for my moms birthday (she collects them). I was only flying in for 2 days for my grandmas funeral so didnt check any luggage. They stopped me and questioned me for 30 minutes. Kept insinuating I was going to use it as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192013.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195127.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Not in the USA but in France, I got stopped on the way through customs by an agent who said something fast and aggressive-sounding in French. My French isnt great, so I just looked puzzled and said I didnt understand. The guy quickly beckoned another guy over and explained to him in rapid-fire French what was going on. The second guy turned to me and said He says your T-shirt is really cool and can you tell him where you got it?. It was a Star Wars T-shirt that I got as a birthday present, so I couldnt even tell him where it came from. Luckily, he didnt arrest me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192020.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195123.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. I have maintained a decent beard and have a darker skin complexion for a white dude. I am randomly selected for a search or shoe swab every single time I fly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192021.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195126.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. My niece has a teddy bear. She has had this teddy bear essentially since she was born. The doggo has bitten a hole into its belly, so we sew onto it like a lion head sticker, to keep its guts inside. One time we were on holiday visiting family, and she left it there, luckily I was staying a bit longer so I could grab it on my way back.An adult man with a teddy bear that had its guts torn open and fixed with a lion bandaid apparently looks pretty suspicious, so they shoved the poor guy into x-ray 3-4 times. She is still in ownership of the teddy bear and it is still in decent shape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192022.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195124.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. They searched me when I was 18 and flying alone and said it was because my ID was only a permit. When I went to my connection airport, I told a black TSA women Do you need to pat me down again because i Have a permit like the last airport? She looked at me and sighed No honey. Thats not a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192023.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195129.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. My son was too tall for his age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192024.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195122.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. I had a sample size (0.1oz) bottle of perfume in my book bag. They confiscated it in Detroit without explanation.I got to Germany and they discovered a full size pair of scissors in the front pocket of that same book bag. I wasn’t aware it was there. Both I, and American security, had missed the scissors.German security was much more polite over confiscating the scissors than American was over the perfume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192025.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195131.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Not TSA but the land border, they detected nuclear material. It was because another passenger in my car had some heart surgery or something where they used radioactive material, and apparently it could still be detected. Border patrol pretty much knew what it was but had to check anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. When the Andrew Garfield Spidermans first came out they did some amazing merch for them.My Stepdad is a HUGE Spidey fan, so I picked him up the corniest Spiderman film merch when in the US, one of those being like a whirling cement truck thing? It was a big tonka sized thing and the only bag it would fit in was my carry-on. They stopped me and said Is that a spiderman toy? and I took it out and showed them. They said it was the best thing theyd seen all day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Not TSA but at a land border crossing once they pulled us aside because they thought my partner was Trafficking me?!?!? We were the same age, same race (so racism wasn’t a factor,) and we were both dressed fairly nice (coming back from a wedding) with no obvious signs of like… distress? [Illegal substances]? Gunpoint? Nothing. They pulled us aside and grilled him on all of our relationship things like where we met and how old I am and my mom’s middle name and…?!?!??? Trying to trio him up. Then the guard hit on me?!?!?! Weeeeirdest experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Got pulled to the side at Fort Myers airport. One TSA guy with gloves, two TSA guys standing right behind me. Officer says, is there anything you want to tell me before I open this bag?I am horribly confused. Wrapped right on top between a few t-shirts is an large Avocado.TSA guy starts laughing. I love Avocados, my 76 yo father has a tree in his yard... he slipped one in my bag before leaving. Apparently it doesnt look the best going through the x-ray machine, they thought it may be a home-made bomb or grenade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Tampon showed up on the body scan thingy and I had to have my crotch patted down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My friend worked for the TSA. I was at my local airport and saw him while on line. I waved and he looked over. He says something to another agent and when I get to front of the line I get pulled over for extra searching. I never talked to that guy again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Arranging my two laptops and a tablet after taking them out of my bag for faster / easier scanning.I got yelled at and detained because I have Pre-Check.It took demanding for the scanning agent to join the conversation before I was allowed to leave.Had I left them all in the bag, I would have gotten stopped for secondary screening.The TSA is so damn frustrating. They serve no useful purpose except to provide security theater. They miss well over 90% of what they are tested against.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I have bad knees and occasionally bring a cane with me when I travel. I have one called a hurry-cane, basically a full-size cane that folds into three for easy packing. TSA requires me to still walk through w/o the cane if possible, so I folded it up and laid it on my checked luggage for the x-ray. This obviously new TSA agent has me pulled aside to wait for a supervisor because he said that he is familiar with it and it was a kind of weapon that his character uses in a video game. Was convinced I was trying to hide it as a cane, but that I was openly carrying a Chinese martial arts weapon. Took all of two seconds once the supervisor connected the cane to make the kid realize he was wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  But had me chuckling. On another trip at the same airport, I was pulled aside because they said the x-ray showed something suspicious in my carry-on. Emptied the whole bag, opened all zippers and checked all pockets, patted down each pocket, checked seams for hidden pockets, etc. then had me repack everything. Not a word was said to me about what they thought they saw. On the return trip, at the other airport, pulled over by TSA for exact same reason. Found nothing again. Havent used that carry-on since. Im guessing its just something weird looking in the frame but isnt worth the hassle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Pulled me aside after my backpack went through the scanner. I was just sitting there while they searched every pocket four times, running it back through the scanner in between each one. Every time they didn’t find anything they’d bring more people over.At that point I was starting to get nervous and asked what they were looking for. Guy number 5 searching my bag looks at me and says super accusingly, “we’re looking for the butterfly knife you have hidden in there,” to which I just laughed since butterfly knives are for edgy 14 year olds. I insisted I didn’t have one, they didn’t believe me.Eventually they found the “knife” it was an old mini-stapler that I had forgotten in there from when I was in school. They seemed embarrassed enough that I just left before they could come up with an excuse to take it out on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My friend spent most of a day being checked out/questioned because he has the same first, middle, and last name (all common American names) of a guy who allegedly went to the Middle East to join ISIS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Im 64, broad shouldered, and bald.I dont even know who is doing the stopping, because I dont give a s**t at this point, but I have never successfully made it through an airport without being pulled aside to have my s**t searched through, even when all I pack is clothes. I bake in the extra 30 minutes into any flight itinerary I have for this exact reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Last name is AHMED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I had a razor in my bag. Like old school razor with a two sided blade deal. They made me take the blade out... But didnt care about the 50 pack of blades that was right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. A company I did some contract work for in a different state was giving away a free monitor arm. I was stoked, put it in my bag, and didn’t think anything of it. I later moved it to my carry-on, and as I was going through security, TSA pulled me aside saying, “uhh, we need to look in your bag.” I thought that was weird, but whatever.I happened to get a glance at the X-ray that came up, and I knew the F-up right away. The monitor arm contorted in a way that the scan looked like a small rifle.I chuckled a bit and explained to the agent what it was. When the TSA lady saw it she had the biggest sigh of relief (I’m lucky she was a good sport about it). I wanted to take a photo of the X-ray, but she said I wasn’t allowed to :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Actually pre-TSA days. Had a s***ty laptop that had a dead battery so I just plugged it in when I used it. Whatever. Security didnt believe it was a laptop. Told me I had to turn it on to prove it. Of course the battery was dead. Had to search for a power outlet. Sitting on the floor booting my s**t laptop while security hovers over me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Got held back for 20 mins, on the depart and return, because I had magic decks in my bag. It apparently sets off something like crazy, they had to swab between EVERY single card for multiple 100 card decks. I check them now when I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My then-two month old was flagged by TSA in 2003. They took one look and realized the only bomb was in his diaper. The same season, his grandfather was subject to additional screening. They had the exact same Irish name: first, middle, and last. I surmised that there might have been an IRA person on an interpol list or something with the same name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. There was a rock in one of my army bags leaving Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. I had a brand new, unopened bag of seasoned salt that I bought in Hawaii. They made me open it so they could make sure it wasn’t [illegal substances]. Also, I have big curly hair and they always stop me to pat my head down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192046.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195133.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -233,17 +195,7 @@ Last updated: 06/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Petty Couple Gets Revenge on D-Bag at Costco</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044019/87193957/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193956/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044007/87193953/three.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">20 D-Day Facts You’ve Never Heard Before</a><br>
+## <a href="#linky6" id="linky5">20 D-Day Facts You’ve Never Heard Before</a><br>
 
 <span style="font-size:4em">1. That the majority of the Higgins boats which delivered troops to the D-Day invasion beaches were piloted by members of the U.S. Coast Guard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043930/87193944/dday6.jpg" style="width:100%"><br>
 
@@ -287,7 +239,176 @@ Last updated: 06/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">30 People Life Gave a Big 'F - You' To</a><br>
+## <a href="#linky7" id="linky6">30 Smarta**es Who Took Things Literally</a><br>
+
+<span style="font-size:4em">1. My Daughter When She Said She Wanted To Be A Transformer For Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My Dad Asked Me If I Wanted An Egg Sandwich. Im Not Even Mad, This Is Genius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My Grandma Wanted Some Creative Grad Photos Of My Friend Since Were Graduating At The Same Time. This Was Her Least Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Asked For My Cheese Steak To Be Made With Love. They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Experts Recommend Keeping Your Daily Rituals Even While Working From Home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. We Told Our 3-Year-Old That New Year Is Special Because You Get To Toast. Later, She Said: Are We Gonna Make A Toast Now? And Thus, A New Years Day Tradition Was Born</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Mom Told Her Daughter To Grab Her Mask So They Can Go To The Store. This Was The Mask She Grabbed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Someone At A Festival Offered Me A Little Bag Of Coke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This Is The Picture Amazon Sent My Bill To Say The Packages Were Delivered To A Family Member Directly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My Buddy Was Told He Could Wear A Costume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Always Asked For A Skateboard As A Kid. My Parents Said Not Until Im 35. Today They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. They Asked For A Lion Cut, They Got It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Told My Boyfriend I Was Getting Him A Burger For Christmas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Found Some Amazing Indian Writing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My Cousin Wanted Cake And Ordered One. Told The Bakers To Write Whatever They Wanted Because It Was For Just For Her Anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I Was So Busy In The Kitchen I Didnt Know What To Do First, My Little Brother Asked Me What He Can Do To Help. I Told Him To Get That Bag Of Potato, Peel Half Of Them And Boil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Picked It, Thanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My Buddy Jokingly Decided To Get A Henna Tattoo Of A Mustache While At The Beach. The Foreign Worker Didnt Understand What He Was Saying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This Brazilian Girl Is A Big Fan Of K-Pop And All Korean Culture, So Her Father Without Understanding Much Wanted To Personalize Her Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Not Gonna Lie, This Is A Little Too Accurate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My Bro Told My Grandma, Jokingly, That He Wanted 100 Things From The Dollar Store For Christmas, Grandma Doesnt Like Being Challenged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Cant Blame The Answerer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. My Brothers Camp Requires The Kids Write A Letter Home After The First Week</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I Asked My 5-Year-Old To Keep An Eye On His Sister While I Served Him Dinner, I Peek Out Of The Kitchen And Find Him Like This. His Sister Is In Good Hands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. A First Grade Class Was Asked What They Would Say If The Pilgrims Showed Up At Their Door On Thanksgiving</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194279.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">20 Most Controversial Takes On Star Wars</a><br>
+
+<span style="font-size:4em">1. “For a show that explores the f**king universe, so much bullshit happens in goddamn Tatooine” - rocharox 
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Not enough planet wars, black hole wars or moon wars.” - BlueBerryMassacre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “LASERS LOCK DOORS. LASERS OPEN DOORS. LASERS KNOW WHAT YOU WANT THE DOOR TO DO.” - SlamVanDamn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Han is actually older than Obi-Wan due to Time Dilation” - Snowbofreak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The Death Stars werent badly designed they were just badly managed.
+Yes, designing them assuming large scale assaults was stupid given the political state of the galaxy but the second Death Star wasnt even finished so that doesnt count, its all Palpatines fault. As for the first one that was finished, the Alliance made three runs on the exhaust port. The first was called off before they made it to the trench, the second failed and the third was carried out by space Jesus which isnt exactly fair. All in all it sounds like a fairly effective defence when you consider the design philosophy.” - Engeneus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Not sure if controversial but they need to take the franchise and yeet it 200 years in the future. Im tired of the Empire era where they need to justify why more than 2 jedi and 2 sith exist at one moment along side knowing everything is pointless until Luke leaves the farm.” - Alandrus_sun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “It is shown on multiple occasions that droids are very much alive with their own personality (C3PO, R2D2, L3,K-2SO, and more). Its clear robots are as alive in the Star Wars universe as any other alien race, yet they are treated worse than slaves by both the good and bad sides. C3PO and R2D2s memory being erased like its nothing, given away like slaves. Its quite hypocritical from the good side to treat droids like slaves yet be all goody two shoes about helping the flesh bodied creatures of the universe.” - wulfnstein85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “The universe and many characters are bonkers cool, but many times completely offset by poor writing, plot holes, and terrible plot devices” - SkipChestDayNotLegs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Jawas make me feel tingly inside.” - BaidenFallwind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “That one of the biggest issues of Star Wars is that they keep going all in on Palpatine. I mean who gave a f**k about the Paint by Numbers Evil Emperor during the OG trilogy?” - Prinnyramza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I judge most of my opinion of a Star Wars movie by the quality of its lightsaber fights.” - smugfruitplate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I like Star Wars. The movies, the shows, the games. But the community ruins it. They complain and bitch about every single thing there is. It’s fantasy, not history..” - absoluteunit94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Star wars is actually the life story of C-3PO, think about it.” - jonguy77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Return of the Jedi is my favorite SW film. Whenever someone says the words Star Wars my mind immediately goes to any particular scene in that movie. People say the movie is disjointed but every scene is memorable at the very least.” - SovietWalrus1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Boba Fett is an oddly overrated background character, and even after watching The Book of Boba Fett, I don’t really care about him.” - imidoesonlyfans</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “The entire universe has a cool factor that outweighs the atrocious storytelling.” - Ozty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “For purely story purposes, Han Solo should have died at the end of Empire.” - Big_Boss_42_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “In retrospect, it makes no sense that Obi-Wan and Yoda didnt train Leia alongside Luke and just left her as a backup. As one character recently said, shes just as important. In fact, Luke shouldnt have been the sole focus of the original trilogy. It shouldve been both of them.” - MegalodonDentistry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “All Wookiees should be shaved.” - THIS_IS_GOD_TOTALLY_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Disney should have not even touched the time period where any of the original stories take place. They should have made entirely new stories set hundreds, thousands, millions, or billions of years before or after the Skywalker Saga. I mean Im glad they made Rogue One and Jedi Fallen Order. But other than that, they should have made entirely separate stories that didnt even mention the Skywalkers or the Solos.” - stonebolt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195154.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">Savage Memes to Tickle Your Funny Bone</a><br>
+
+<span style="font-size:4em">1. Wuadda wudda wuadda. Oh man I love this song. Wuadda wuadda </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Staring the Rock, and coming to theaters this fall. Part 2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This one hurt, just turn your phone, the neck cranking isnt worth it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. WTF is going here? We have no idea, so that makes two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. She would look stupid in a mustache. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. It wont fix it, but it will fix me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Oh weve seen this one before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Star Wars got nothing on this saga. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193234.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. No way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193242.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. He was waiting for his moment of attack and he saw it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This one goes out to all the bellow average boys.  We thank you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193249.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193250.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193225.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">30 People Life Gave a Big 'F - You' To</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192479.jpg" style="width:100%"><br>
 
@@ -351,7 +472,79 @@ Last updated: 06/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">32 Dad Jokes For Father's Day</a><br>
+## <a href="#linky11" id="linky10">34 Bizarre Reasons People Were Searched By TSA Agents</a><br>
+
+<span style="font-size:4em">1. When I was a kid, I had a broken arm and they needed to inspect my cast… cut a piece off of it and put it in some sort of machine.Also, my dad and oldest brother’s names popped up on the do not fly list because of men with the same name being a part of the IRA. For years when ever my dad and oldest brother went to fly they had to bring all sorts of ID with them to prove that they aren’t the same dudes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Glass jellyfishLike those blown glass ones that are super cool at art galleries.I got pulled aside into a small room because they thought I was smuggling sea life. Was an interesting time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Crotch anomaly. I was wearing normal joggers, nothing in my pockets. The lady behind me loudly said yeah its called a d**k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My mom passed away unexpectedly in California. I flew out to pick up her ashes and there was a terror alert at LAX. It was unreal; the military was in the airport with what looked like machine guns. I was out of my mind with grief and drugged to the gills. I was dealing with a bad back, and had to fly from California to a small town in Virginia for the memorial service. Security was heightened and everyone was being searched. I only had a small carry-on and my mom’s ashes.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> When I got to the TSA, the agent wanted me to open my mother’s box of ashes! I refused and insisted they x-ray the box instead. It showed nothing inside ( duh- ashes) which convinced the TSA agent that it had some sort of cloaking device and was hiding a bomb. Again he insisted that I open the box that held my mom’s ashes. I was beginning to lose my s**t. I called my husband who works in nuclear power and explained what was going on. He told me to tell the TSA agent to place a coin under the box and send it through the X-ray again. He did and thank goodness he saw the coin. Otherwise, I would have been arrested for assaulting a stupid TSA agent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. One time my dad had a few rocks of petrified wood in a bag, and had his phone charger right next to it.They almost went DEFCON 1 and did radio people to show up and act if it went down. But they opened the bag and saw it was rocks and a charger. They told him that it looked absolutely identical to what they had been taught a bomb looked like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. They thought my insulin pump was a bomb. I was tackled by TSA immediately. I was 14 at the time, still traumatized. Now any time I see any law enforcement I get anxious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I had a nutcracker in my carry-on. Like a legit, festive Christmas soldier nutcracker - it was a gift for my moms birthday (she collects them). I was only flying in for 2 days for my grandmas funeral so didnt check any luggage. They stopped me and questioned me for 30 minutes. Kept insinuating I was going to use it as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Not in the USA but in France, I got stopped on the way through customs by an agent who said something fast and aggressive-sounding in French. My French isnt great, so I just looked puzzled and said I didnt understand. The guy quickly beckoned another guy over and explained to him in rapid-fire French what was going on. The second guy turned to me and said He says your T-shirt is really cool and can you tell him where you got it?. It was a Star Wars T-shirt that I got as a birthday present, so I couldnt even tell him where it came from. Luckily, he didnt arrest me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I have maintained a decent beard and have a darker skin complexion for a white dude. I am randomly selected for a search or shoe swab every single time I fly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My niece has a teddy bear. She has had this teddy bear essentially since she was born. The doggo has bitten a hole into its belly, so we sew onto it like a lion head sticker, to keep its guts inside. One time we were on holiday visiting family, and she left it there, luckily I was staying a bit longer so I could grab it on my way back.An adult man with a teddy bear that had its guts torn open and fixed with a lion bandaid apparently looks pretty suspicious, so they shoved the poor guy into x-ray 3-4 times. She is still in ownership of the teddy bear and it is still in decent shape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. They searched me when I was 18 and flying alone and said it was because my ID was only a permit. When I went to my connection airport, I told a black TSA women Do you need to pat me down again because i Have a permit like the last airport? She looked at me and sighed No honey. Thats not a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My son was too tall for his age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I had a sample size (0.1oz) bottle of perfume in my book bag. They confiscated it in Detroit without explanation.I got to Germany and they discovered a full size pair of scissors in the front pocket of that same book bag. I wasn’t aware it was there. Both I, and American security, had missed the scissors.German security was much more polite over confiscating the scissors than American was over the perfume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Not TSA but the land border, they detected nuclear material. It was because another passenger in my car had some heart surgery or something where they used radioactive material, and apparently it could still be detected. Border patrol pretty much knew what it was but had to check anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. When the Andrew Garfield Spidermans first came out they did some amazing merch for them.My Stepdad is a HUGE Spidey fan, so I picked him up the corniest Spiderman film merch when in the US, one of those being like a whirling cement truck thing? It was a big tonka sized thing and the only bag it would fit in was my carry-on. They stopped me and said Is that a spiderman toy? and I took it out and showed them. They said it was the best thing theyd seen all day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Not TSA but at a land border crossing once they pulled us aside because they thought my partner was Trafficking me?!?!? We were the same age, same race (so racism wasn’t a factor,) and we were both dressed fairly nice (coming back from a wedding) with no obvious signs of like… distress? [Illegal substances]? Gunpoint? Nothing. They pulled us aside and grilled him on all of our relationship things like where we met and how old I am and my mom’s middle name and…?!?!??? Trying to trio him up. Then the guard hit on me?!?!?! Weeeeirdest experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Got pulled to the side at Fort Myers airport. One TSA guy with gloves, two TSA guys standing right behind me. Officer says, is there anything you want to tell me before I open this bag?I am horribly confused. Wrapped right on top between a few t-shirts is an large Avocado.TSA guy starts laughing. I love Avocados, my 76 yo father has a tree in his yard... he slipped one in my bag before leaving. Apparently it doesnt look the best going through the x-ray machine, they thought it may be a home-made bomb or grenade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Tampon showed up on the body scan thingy and I had to have my crotch patted down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My friend worked for the TSA. I was at my local airport and saw him while on line. I waved and he looked over. He says something to another agent and when I get to front of the line I get pulled over for extra searching. I never talked to that guy again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Arranging my two laptops and a tablet after taking them out of my bag for faster / easier scanning.I got yelled at and detained because I have Pre-Check.It took demanding for the scanning agent to join the conversation before I was allowed to leave.Had I left them all in the bag, I would have gotten stopped for secondary screening.The TSA is so damn frustrating. They serve no useful purpose except to provide security theater. They miss well over 90% of what they are tested against.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I have bad knees and occasionally bring a cane with me when I travel. I have one called a hurry-cane, basically a full-size cane that folds into three for easy packing. TSA requires me to still walk through w/o the cane if possible, so I folded it up and laid it on my checked luggage for the x-ray. This obviously new TSA agent has me pulled aside to wait for a supervisor because he said that he is familiar with it and it was a kind of weapon that his character uses in a video game. Was convinced I was trying to hide it as a cane, but that I was openly carrying a Chinese martial arts weapon. Took all of two seconds once the supervisor connected the cane to make the kid realize he was wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">  But had me chuckling. On another trip at the same airport, I was pulled aside because they said the x-ray showed something suspicious in my carry-on. Emptied the whole bag, opened all zippers and checked all pockets, patted down each pocket, checked seams for hidden pockets, etc. then had me repack everything. Not a word was said to me about what they thought they saw. On the return trip, at the other airport, pulled over by TSA for exact same reason. Found nothing again. Havent used that carry-on since. Im guessing its just something weird looking in the frame but isnt worth the hassle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Pulled me aside after my backpack went through the scanner. I was just sitting there while they searched every pocket four times, running it back through the scanner in between each one. Every time they didn’t find anything they’d bring more people over.At that point I was starting to get nervous and asked what they were looking for. Guy number 5 searching my bag looks at me and says super accusingly, “we’re looking for the butterfly knife you have hidden in there,” to which I just laughed since butterfly knives are for edgy 14 year olds. I insisted I didn’t have one, they didn’t believe me.Eventually they found the “knife” it was an old mini-stapler that I had forgotten in there from when I was in school. They seemed embarrassed enough that I just left before they could come up with an excuse to take it out on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My friend spent most of a day being checked out/questioned because he has the same first, middle, and last name (all common American names) of a guy who allegedly went to the Middle East to join ISIS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Im 64, broad shouldered, and bald.I dont even know who is doing the stopping, because I dont give a s**t at this point, but I have never successfully made it through an airport without being pulled aside to have my s**t searched through, even when all I pack is clothes. I bake in the extra 30 minutes into any flight itinerary I have for this exact reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Last name is AHMED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I had a razor in my bag. Like old school razor with a two sided blade deal. They made me take the blade out... But didnt care about the 50 pack of blades that was right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. A company I did some contract work for in a different state was giving away a free monitor arm. I was stoked, put it in my bag, and didn’t think anything of it. I later moved it to my carry-on, and as I was going through security, TSA pulled me aside saying, “uhh, we need to look in your bag.” I thought that was weird, but whatever.I happened to get a glance at the X-ray that came up, and I knew the F-up right away. The monitor arm contorted in a way that the scan looked like a small rifle.I chuckled a bit and explained to the agent what it was. When the TSA lady saw it she had the biggest sigh of relief (I’m lucky she was a good sport about it). I wanted to take a photo of the X-ray, but she said I wasn’t allowed to :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Actually pre-TSA days. Had a s***ty laptop that had a dead battery so I just plugged it in when I used it. Whatever. Security didnt believe it was a laptop. Told me I had to turn it on to prove it. Of course the battery was dead. Had to search for a power outlet. Sitting on the floor booting my s**t laptop while security hovers over me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Got held back for 20 mins, on the depart and return, because I had magic decks in my bag. It apparently sets off something like crazy, they had to swab between EVERY single card for multiple 100 card decks. I check them now when I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. My then-two month old was flagged by TSA in 2003. They took one look and realized the only bomb was in his diaper. The same season, his grandfather was subject to additional screening. They had the exact same Irish name: first, middle, and last. I surmised that there might have been an IRA person on an interpol list or something with the same name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. There was a rock in one of my army bags leaving Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. I had a brand new, unopened bag of seasoned salt that I bought in Hawaii. They made me open it so they could make sure it wasn’t [illegal substances]. Also, I have big curly hair and they always stop me to pat my head down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192046.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">32 Dad Jokes For Father's Day</a><br>
 
 <span style="font-size:4em">1. Did you hear about the guy who evaporated? He’ll be mist!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114327/87193675/dadjokes1.jpg" style="width:100%"><br>
 
@@ -419,206 +612,13 @@ Last updated: 06/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">15 Liars Living in a Fantasy World</a><br>
+## <a href="#linky13" id="linky12">Petty Couple Gets Revenge on D-Bag at Costco</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195128.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044019/87193957/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195130.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193956/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195132.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195125.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195119.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195127.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195123.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195126.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195124.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195129.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195122.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195131.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195133.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">30 Smarta**es Who Took Things Literally</a><br>
-
-<span style="font-size:4em">1. My Daughter When She Said She Wanted To Be A Transformer For Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My Dad Asked Me If I Wanted An Egg Sandwich. Im Not Even Mad, This Is Genius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Grandma Wanted Some Creative Grad Photos Of My Friend Since Were Graduating At The Same Time. This Was Her Least Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Asked For My Cheese Steak To Be Made With Love. They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Experts Recommend Keeping Your Daily Rituals Even While Working From Home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. We Told Our 3-Year-Old That New Year Is Special Because You Get To Toast. Later, She Said: Are We Gonna Make A Toast Now? And Thus, A New Years Day Tradition Was Born</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Mom Told Her Daughter To Grab Her Mask So They Can Go To The Store. This Was The Mask She Grabbed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Someone At A Festival Offered Me A Little Bag Of Coke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This Is The Picture Amazon Sent My Bill To Say The Packages Were Delivered To A Family Member Directly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My Buddy Was Told He Could Wear A Costume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Always Asked For A Skateboard As A Kid. My Parents Said Not Until Im 35. Today They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. They Asked For A Lion Cut, They Got It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Told My Boyfriend I Was Getting Him A Burger For Christmas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Found Some Amazing Indian Writing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My Cousin Wanted Cake And Ordered One. Told The Bakers To Write Whatever They Wanted Because It Was For Just For Her Anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I Was So Busy In The Kitchen I Didnt Know What To Do First, My Little Brother Asked Me What He Can Do To Help. I Told Him To Get That Bag Of Potato, Peel Half Of Them And Boil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Picked It, Thanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My Buddy Jokingly Decided To Get A Henna Tattoo Of A Mustache While At The Beach. The Foreign Worker Didnt Understand What He Was Saying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This Brazilian Girl Is A Big Fan Of K-Pop And All Korean Culture, So Her Father Without Understanding Much Wanted To Personalize Her Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Not Gonna Lie, This Is A Little Too Accurate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My Bro Told My Grandma, Jokingly, That He Wanted 100 Things From The Dollar Store For Christmas, Grandma Doesnt Like Being Challenged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Cant Blame The Answerer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. My Brothers Camp Requires The Kids Write A Letter Home After The First Week</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I Asked My 5-Year-Old To Keep An Eye On His Sister While I Served Him Dinner, I Peek Out Of The Kitchen And Find Him Like This. His Sister Is In Good Hands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A First Grade Class Was Asked What They Would Say If The Pilgrims Showed Up At Their Door On Thanksgiving</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194279.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">Savage Memes to Tickle Your Funny Bone</a><br>
-
-<span style="font-size:4em">1. Wuadda wudda wuadda. Oh man I love this song. Wuadda wuadda </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Staring the Rock, and coming to theaters this fall. Part 2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This one hurt, just turn your phone, the neck cranking isnt worth it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. WTF is going here? We have no idea, so that makes two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. She would look stupid in a mustache. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. It wont fix it, but it will fix me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh weve seen this one before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Star Wars got nothing on this saga. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193234.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. No way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193242.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. He was waiting for his moment of attack and he saw it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This one goes out to all the bellow average boys.  We thank you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193249.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193250.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193225.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">20 Most Controversial Takes On Star Wars</a><br>
-
-<span style="font-size:4em">1. “For a show that explores the f**king universe, so much bullshit happens in goddamn Tatooine” - rocharox 
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Not enough planet wars, black hole wars or moon wars.” - BlueBerryMassacre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “LASERS LOCK DOORS. LASERS OPEN DOORS. LASERS KNOW WHAT YOU WANT THE DOOR TO DO.” - SlamVanDamn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Han is actually older than Obi-Wan due to Time Dilation” - Snowbofreak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “The Death Stars werent badly designed they were just badly managed.
-Yes, designing them assuming large scale assaults was stupid given the political state of the galaxy but the second Death Star wasnt even finished so that doesnt count, its all Palpatines fault. As for the first one that was finished, the Alliance made three runs on the exhaust port. The first was called off before they made it to the trench, the second failed and the third was carried out by space Jesus which isnt exactly fair. All in all it sounds like a fairly effective defence when you consider the design philosophy.” - Engeneus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Not sure if controversial but they need to take the franchise and yeet it 200 years in the future. Im tired of the Empire era where they need to justify why more than 2 jedi and 2 sith exist at one moment along side knowing everything is pointless until Luke leaves the farm.” - Alandrus_sun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “It is shown on multiple occasions that droids are very much alive with their own personality (C3PO, R2D2, L3,K-2SO, and more). Its clear robots are as alive in the Star Wars universe as any other alien race, yet they are treated worse than slaves by both the good and bad sides. C3PO and R2D2s memory being erased like its nothing, given away like slaves. Its quite hypocritical from the good side to treat droids like slaves yet be all goody two shoes about helping the flesh bodied creatures of the universe.” - wulfnstein85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “The universe and many characters are bonkers cool, but many times completely offset by poor writing, plot holes, and terrible plot devices” - SkipChestDayNotLegs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Jawas make me feel tingly inside.” - BaidenFallwind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “That one of the biggest issues of Star Wars is that they keep going all in on Palpatine. I mean who gave a f**k about the Paint by Numbers Evil Emperor during the OG trilogy?” - Prinnyramza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I judge most of my opinion of a Star Wars movie by the quality of its lightsaber fights.” - smugfruitplate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I like Star Wars. The movies, the shows, the games. But the community ruins it. They complain and bitch about every single thing there is. It’s fantasy, not history..” - absoluteunit94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Star wars is actually the life story of C-3PO, think about it.” - jonguy77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Return of the Jedi is my favorite SW film. Whenever someone says the words Star Wars my mind immediately goes to any particular scene in that movie. People say the movie is disjointed but every scene is memorable at the very least.” - SovietWalrus1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Boba Fett is an oddly overrated background character, and even after watching The Book of Boba Fett, I don’t really care about him.” - imidoesonlyfans</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “The entire universe has a cool factor that outweighs the atrocious storytelling.” - Ozty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “For purely story purposes, Han Solo should have died at the end of Empire.” - Big_Boss_42_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “In retrospect, it makes no sense that Obi-Wan and Yoda didnt train Leia alongside Luke and just left her as a backup. As one character recently said, shes just as important. In fact, Luke shouldnt have been the sole focus of the original trilogy. It shouldve been both of them.” - MegalodonDentistry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “All Wookiees should be shaved.” - THIS_IS_GOD_TOTALLY_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Disney should have not even touched the time period where any of the original stories take place. They should have made entirely new stories set hundreds, thousands, millions, or billions of years before or after the Skywalker Saga. I mean Im glad they made Rogue One and Jedi Fallen Order. But other than that, they should have made entirely separate stories that didnt even mention the Skywalkers or the Solos.” - stonebolt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195154.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044007/87193953/three.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
