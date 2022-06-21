@@ -1,41 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/21/2022-12:47:17
+Last updated: 06/21/2022-13:47:17
 <br>
-## <a href="#linky2" id="linky1">15 Trends People Will Regret in the Next Ten Years</a><br>
-
-<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">35 Pics and Memes in Honor of 'the Old Man' We Call Dad</a><br>
+## <a href="#linky2" id="linky1">35 Pics and Memes in Honor of 'the Old Man' We Call Dad</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87192289.jpg" style="width:100%"><br>
 
@@ -109,6 +75,58 @@ Last updated: 06/21/2022-12:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky3" id="linky2">24 Comments That Were Really On Point</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188063.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188068.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188064.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188065.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/024523/87193875/comments.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188066.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188067.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188069.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188070.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188071.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188072.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188073.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188062.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188074.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188075.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188076.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188077.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188078.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188079.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188080.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188081.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188082.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188083.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188084.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky4" id="linky3">20 Most Controversial Takes On Star Wars</a><br>
 
 <span style="font-size:4em">1. “For a show that explores the f**king universe, so much bullshit happens in goddamn Tatooine” - rocharox 
@@ -156,41 +174,7 @@ Yes, designing them assuming large scale assaults was stupid given the political
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">15 Liars Living in a Fantasy World</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195128.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195130.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195132.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195125.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195119.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195127.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195123.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195126.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195124.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195129.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195122.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195131.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195133.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">23 Funny Memes of the Kickstart Your Week</a><br>
+## <a href="#linky5" id="linky4">23 Funny Memes of the Kickstart Your Week</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87196065.jpg" style="width:100%"><br>
 
@@ -240,7 +224,7 @@ Yes, designing them assuming large scale assaults was stupid given the political
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">The Most Brutal Onscreen Kills Of All Time</a><br>
+## <a href="#linky6" id="linky5">The Most Brutal Onscreen Kills Of All Time</a><br>
 
 <span style="font-size:4em">1. In Doctor Sleep when they’re slowly killing the baseball kid. Had to fast forward because it was too much for me.-u/oldbabyface1 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194843.jpg" style="width:100%"><br>
 
@@ -294,7 +278,7 @@ Yes, designing them assuming large scale assaults was stupid given the political
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">23 Dank Memes Found Underneath the Floorboards </a><br>
+## <a href="#linky7" id="linky6">23 Dank Memes Found Underneath the Floorboards </a><br>
 
 <span style="font-size:4em">1. Come on, do something. Youre not trying hard enough. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195414.jpg" style="width:100%"><br>
 
@@ -341,6 +325,16 @@ Yes, designing them assuming large scale assaults was stupid given the political
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195413.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195435.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">Petty Couple Gets Revenge on D-Bag at Costco</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044019/87193957/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193956/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044007/87193953/three.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -408,205 +402,75 @@ Yes, designing them assuming large scale assaults was stupid given the political
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">15 People Who Got Roasted to the Underworld and Back</a><br>
+## <a href="#linky10" id="linky9">15 Liars Living in a Fantasy World</a><br>
 
-<span style="font-size:4em">1. Heartbroken musician, make me cry.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123527/87196518/roast3.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195128.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Do your roast. I’m sure this will be easy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123632/87196531/roast15.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195130.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Metalhead trash looking for a laugh. Do your worst.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123546/87196520/roast-13.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Scrap yard worker. Lets see what happens.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123550/87196521/roast4.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195132.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. A lot to work with. Im always down for a good laugh, so have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123555/87196522/roast5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I have a Masters in Civil Engineering but am still unemployed. Recently got dumped after a 6 year relationship. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123558/87196523/roast6.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195125.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Tell me something I haven’t heard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123605/87196524/roast7.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195119.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Got a man, a car, a house, and a sick body. Make me sob.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123607/87196525/roast8.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195127.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Lost soul. Just love being roasted tbh. F me up bruh.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123610/87196526/roast9.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195123.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. You guys suck, my mom said.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123622/87196529/roast12.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195126.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Roast my friend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123515/87196517/roast2.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195124.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Currently coping with the feeling of loss and regret in regards to a woman, yet illusorily optimistic in adapting a hedonist lifestyle and fulfilling my artistic passion of becoming a film director. Despair is compensated by countless films and literature of which I have lost count. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123539/87196519/roast1.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195129.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. My gf gave me brand new makeup. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123617/87196527/roast10.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195122.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Roast me if you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123619/87196528/roast11.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195131.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. My life is a mess and I am a disaster. Let me have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123630/87196530/roast14.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Petty Couple Gets Revenge on D-Bag at Costco</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044019/87193957/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193956/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044007/87193953/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195133.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">24 Comments That Were Really On Point</a><br>
+## <a href="#linky11" id="linky10">15 Trends People Will Regret in the Next Ten Years</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188063.png" style="width:100%"><br>
+<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188068.png" style="width:100%"><br>
+<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188064.png" style="width:100%"><br>
+<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188065.png" style="width:100%"><br>
+<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/024523/87193875/comments.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188066.png" style="width:100%"><br>
+<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188067.png" style="width:100%"><br>
+<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188069.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188070.png" style="width:100%"><br>
+<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188071.png" style="width:100%"><br>
+<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188072.png" style="width:100%"><br>
+<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188073.png" style="width:100%"><br>
+<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188062.png" style="width:100%"><br>
+<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188074.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188075.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188076.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188077.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188078.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188079.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188080.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188081.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188082.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188083.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188084.png" style="width:100%"><br>
+<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 D-Day Facts You’ve Never Heard Before</a><br>
-
-<span style="font-size:4em">1. That the majority of the Higgins boats which delivered troops to the D-Day invasion beaches were piloted by members of the U.S. Coast Guard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043930/87193944/dday6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Omaha Beach sand is up to 4% microscopic iron fragments from D-Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/045052/87193964/dday21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. D-Day was originally supposed to happen on 5th June but meteorologist James Stagg persuaded Dwight Eisenhower to postpone it by a day right at the last minute. The weather conditions had to be just right for the landings, and planners took the tide, wind speed and even the moon cycle into account.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043907/87193942/dday1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The MV Derrycunihy, which was carrying troops to the D-Day landings, hit a mine before it could debark its troops and sank, killing more than 200 soldiers and sailors. It was the biggest single loss of life of the Normandy invasion beaches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043918/87193943/dday4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. James Doohan, Scotty from Star Trek, was shot six times on D-day, four in his leg, one in the chest, and one that cost him the middle finger on his right hand...something he would conceal on-screen during most of his career as an actor.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044028/87193960/dday17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Bill Millin was a Scottish soldier who walked up and down the beaches of Normandy on D-Day playing the bagpipes. Two captured German snipers would later reveal why the piper at the front hadn’t been shot at. They said it was because they thought he was ‘dummkopf’, a foolhardy idiot.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/045104/87193965/dday22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In the months leading up to the D-Day invasion in 1944 the crossword in the Daily Telegraph had a series of words including Mulberry Overlord and Neptune all codenames connected to the invasion. After a thorough investigation by MI-5 it was concluded it had all been a coincidence.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043937/87193945/dday3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Despite having a heart condition and arthritis that forced him to use a cane, Theodore Roosevelt Jr. led the first wave of landings at Utah Beach on D-Day, becoming the only general to land with his soldiers that day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043937/87193946/dday2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. During D-Day, the allies laid submarine fuel pipelines from England to France. These pipelines provided necessary fuel for tanks/planes/ships during Operation Overlord.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043941/87193948/dday7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. U.S. General Dwight Eisenhower had a speech prepared in the event that the 1944 D-Day invasion failed. In the speech he takes full responsibility for the failure of the operation.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043952/87193950/dday10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. During the D-Day invasion of Normandy by the allied forces, German commanders wanted to send the armored (Panzer Tanks) division to stop them. They had to wait for the order from Hitler because he was sleeping at the time and didnt want to be disturbed. When he woke up, it was too late.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043959/87193951/dday11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Among the thousands of men on the Normandy beaches on D-Day there was one single woman. Martha Gellhorn, a rogue war correspondent who stowed away in the toilet of a hospital ship and also happened to be the third wife of Ernest Hemingway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044004/87193952/dday12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Juan Pujol Garcia was a British double agent during WWII. He told Hitler D-Day would happen at the Strait of Dover, earning him the German Iron Cross. It was actually carried out at Normandy, earning him the British MBE.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044010/87193954/dday13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When practicing for the D-Day landings in Exercise Tiger at least 749 Americans were killed by friendly fire and a wolf pack of 6 German E-boats who stumbled on the LST ships in the dark. D-Day was nearly called off because 10 officers who knew the exact plans went missing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043948/87193949/dday8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Of the 1,213 warships involved in D-Day, only 200 were American and 892 were British; of the 4,126 landing craft involved, 805 were American and 3,261 were British.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193955/dday14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. During the the Allied invasion of Nazi-occupied Europe (Battle of Normandy), From D-Day, June 6th to 21 August 1944, the Allies landed 2,052,299 men in northern France. That would make it over 27,000 men per day for those first 76 days.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044020/87193958/dday15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. British breweries donated free beer to soldiers during WWII, but after D-Day, there was no room for it on the ships going across the English Channel. Spitfire mechanics and pilots worked together to modify pylons to carry beer kegs and deliver brews to the troops. Flying high enough chilled it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044024/87193959/dday16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. British Cmdr Terence Otway, wanting to be sure his men wouldn’t leak the D-Day plans, tested them by sending 30 pretty members of the Women’s Aux. Air Force in civilian clothes to the local pubs with instructions to do all they could try and get the info, but none of the men fell for it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044033/87193961/dday18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. On D-Day, Paratrooper John Steele became stuck hanging from his parachute on the church steeple for two hours during the battle for Sainte Mère Église. A statue of him still hangs there today.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044038/87193962/dday19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. That in preparing for D-Day, the Allies fooled Germany into thinking that they would attack Pas de Calais instead of Normandy by creating a phantom army complete with fake landing crafts made from painted canvas and inflatable tanks which they moved overnight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044040/87193963/dday20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Savage Memes to Tickle Your Funny Bone</a><br>
-
-<span style="font-size:4em">1. Wuadda wudda wuadda. Oh man I love this song. Wuadda wuadda </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Staring the Rock, and coming to theaters this fall. Part 2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This one hurt, just turn your phone, the neck cranking isnt worth it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. WTF is going here? We have no idea, so that makes two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. She would look stupid in a mustache. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. It wont fix it, but it will fix me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh weve seen this one before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Star Wars got nothing on this saga. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193234.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. No way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193242.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. He was waiting for his moment of attack and he saw it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This one goes out to all the bellow average boys.  We thank you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193249.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193250.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193225.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">30 Smarta**es Who Took Things Literally</a><br>
+## <a href="#linky12" id="linky11">30 Smarta**es Who Took Things Literally</a><br>
 
 <span style="font-size:4em">1. My Daughter When She Said She Wanted To Be A Transformer For Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194278.jpg" style="width:100%"><br>
 
@@ -667,6 +531,50 @@ Yes, designing them assuming large scale assaults was stupid given the political
 <span style="font-size:4em">29. I Asked My 5-Year-Old To Keep An Eye On His Sister While I Served Him Dinner, I Peek Out Of The Kitchen And Find Him Like This. His Sister Is In Good Hands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194277.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. A First Grade Class Was Asked What They Would Say If The Pilgrims Showed Up At Their Door On Thanksgiving</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194279.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">20 D-Day Facts You’ve Never Heard Before</a><br>
+
+<span style="font-size:4em">1. That the majority of the Higgins boats which delivered troops to the D-Day invasion beaches were piloted by members of the U.S. Coast Guard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043930/87193944/dday6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Omaha Beach sand is up to 4% microscopic iron fragments from D-Day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/045052/87193964/dday21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. D-Day was originally supposed to happen on 5th June but meteorologist James Stagg persuaded Dwight Eisenhower to postpone it by a day right at the last minute. The weather conditions had to be just right for the landings, and planners took the tide, wind speed and even the moon cycle into account.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043907/87193942/dday1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The MV Derrycunihy, which was carrying troops to the D-Day landings, hit a mine before it could debark its troops and sank, killing more than 200 soldiers and sailors. It was the biggest single loss of life of the Normandy invasion beaches.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043918/87193943/dday4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. James Doohan, Scotty from Star Trek, was shot six times on D-day, four in his leg, one in the chest, and one that cost him the middle finger on his right hand...something he would conceal on-screen during most of his career as an actor.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044028/87193960/dday17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Bill Millin was a Scottish soldier who walked up and down the beaches of Normandy on D-Day playing the bagpipes. Two captured German snipers would later reveal why the piper at the front hadn’t been shot at. They said it was because they thought he was ‘dummkopf’, a foolhardy idiot.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/045104/87193965/dday22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the months leading up to the D-Day invasion in 1944 the crossword in the Daily Telegraph had a series of words including Mulberry Overlord and Neptune all codenames connected to the invasion. After a thorough investigation by MI-5 it was concluded it had all been a coincidence.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043937/87193945/dday3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Despite having a heart condition and arthritis that forced him to use a cane, Theodore Roosevelt Jr. led the first wave of landings at Utah Beach on D-Day, becoming the only general to land with his soldiers that day.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043937/87193946/dday2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. During D-Day, the allies laid submarine fuel pipelines from England to France. These pipelines provided necessary fuel for tanks/planes/ships during Operation Overlord.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043941/87193948/dday7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. U.S. General Dwight Eisenhower had a speech prepared in the event that the 1944 D-Day invasion failed. In the speech he takes full responsibility for the failure of the operation.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043952/87193950/dday10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. During the D-Day invasion of Normandy by the allied forces, German commanders wanted to send the armored (Panzer Tanks) division to stop them. They had to wait for the order from Hitler because he was sleeping at the time and didnt want to be disturbed. When he woke up, it was too late.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043959/87193951/dday11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Among the thousands of men on the Normandy beaches on D-Day there was one single woman. Martha Gellhorn, a rogue war correspondent who stowed away in the toilet of a hospital ship and also happened to be the third wife of Ernest Hemingway.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044004/87193952/dday12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Juan Pujol Garcia was a British double agent during WWII. He told Hitler D-Day would happen at the Strait of Dover, earning him the German Iron Cross. It was actually carried out at Normandy, earning him the British MBE.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044010/87193954/dday13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When practicing for the D-Day landings in Exercise Tiger at least 749 Americans were killed by friendly fire and a wolf pack of 6 German E-boats who stumbled on the LST ships in the dark. D-Day was nearly called off because 10 officers who knew the exact plans went missing.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/043948/87193949/dday8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Of the 1,213 warships involved in D-Day, only 200 were American and 892 were British; of the 4,126 landing craft involved, 805 were American and 3,261 were British.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044015/87193955/dday14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. During the the Allied invasion of Nazi-occupied Europe (Battle of Normandy), From D-Day, June 6th to 21 August 1944, the Allies landed 2,052,299 men in northern France. That would make it over 27,000 men per day for those first 76 days.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044020/87193958/dday15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. British breweries donated free beer to soldiers during WWII, but after D-Day, there was no room for it on the ships going across the English Channel. Spitfire mechanics and pilots worked together to modify pylons to carry beer kegs and deliver brews to the troops. Flying high enough chilled it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044024/87193959/dday16.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. British Cmdr Terence Otway, wanting to be sure his men wouldn’t leak the D-Day plans, tested them by sending 30 pretty members of the Women’s Aux. Air Force in civilian clothes to the local pubs with instructions to do all they could try and get the info, but none of the men fell for it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044033/87193961/dday18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. On D-Day, Paratrooper John Steele became stuck hanging from his parachute on the church steeple for two hours during the battle for Sainte Mère Église. A statue of him still hangs there today.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044038/87193962/dday19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. That in preparing for D-Day, the Allies fooled Germany into thinking that they would attack Pas de Calais instead of Normandy by creating a phantom army complete with fake landing crafts made from painted canvas and inflatable tanks which they moved overnight.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/044040/87193963/dday20.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
