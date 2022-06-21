@@ -1,129 +1,109 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/21/2022-05:47:17
+Last updated: 06/21/2022-06:47:17
 <br>
-## <a href="#linky2" id="linky1">Savage Memes to Tickle Your Funny Bone</a><br>
+## <a href="#linky2" id="linky1">15 Liars Living in a Fantasy World</a><br>
 
-<span style="font-size:4em">1. Wuadda wudda wuadda. Oh man I love this song. Wuadda wuadda </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193224.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195128.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Staring the Rock, and coming to theaters this fall. Part 2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193226.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195130.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. This one hurt, just turn your phone, the neck cranking isnt worth it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193227.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. WTF is going here? We have no idea, so that makes two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193228.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195132.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. She would look stupid in a mustache. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193229.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193230.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195125.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. It wont fix it, but it will fix me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193231.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195119.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193232.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195127.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Oh weve seen this one before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193233.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195123.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Star Wars got nothing on this saga. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193234.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195126.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193235.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195124.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. No way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193236.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195129.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193237.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195122.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193238.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195131.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193242.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. He was waiting for his moment of attack and he saw it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This one goes out to all the bellow average boys.  We thank you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193249.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193250.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193225.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195133.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">32 Dad Jokes For Father's Day</a><br>
+## <a href="#linky3" id="linky2">34 Bizarre Reasons People Were Searched By TSA Agents</a><br>
 
-<span style="font-size:4em">1. Did you hear about the guy who evaporated? He’ll be mist!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114327/87193675/dadjokes1.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When I was a kid, I had a broken arm and they needed to inspect my cast… cut a piece off of it and put it in some sort of machine.Also, my dad and oldest brother’s names popped up on the do not fly list because of men with the same name being a part of the IRA. For years when ever my dad and oldest brother went to fly they had to bring all sorts of ID with them to prove that they aren’t the same dudes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. How do you stop a bull from charging? Cancel its credit card.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114330/87193676/dadjokes3.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Glass jellyfishLike those blown glass ones that are super cool at art galleries.I got pulled aside into a small room because they thought I was smuggling sea life. Was an interesting time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. How do you throw a party in outer space? You planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114338/87193677/dadjokes4.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Crotch anomaly. I was wearing normal joggers, nothing in my pockets. The lady behind me loudly said yeah its called a d**k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Post Malone has canceled his tour. Does that mean he’s postpone Malone?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114341/87193678/dadjokes2.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My mom passed away unexpectedly in California. I flew out to pick up her ashes and there was a terror alert at LAX. It was unreal; the military was in the airport with what looked like machine guns. I was out of my mind with grief and drugged to the gills. I was dealing with a bad back, and had to fly from California to a small town in Virginia for the memorial service. Security was heightened and everyone was being searched. I only had a small carry-on and my mom’s ashes.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Im thinking I should do lunges to stay in shape. That would be a big step forward.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114349/87193679/dadjokes6.jpg" style="width:100%"><br>
+<span style="font-size:4em"> When I got to the TSA, the agent wanted me to open my mother’s box of ashes! I refused and insisted they x-ray the box instead. It showed nothing inside ( duh- ashes) which convinced the TSA agent that it had some sort of cloaking device and was hiding a bomb. Again he insisted that I open the box that held my mom’s ashes. I was beginning to lose my s**t. I called my husband who works in nuclear power and explained what was going on. He told me to tell the TSA agent to place a coin under the box and send it through the X-ray again. He did and thank goodness he saw the coin. Otherwise, I would have been arrested for assaulting a stupid TSA agent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Why is Peter Pan always flying? Because he Neverlands.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114352/87193680/dadjokes7.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. One time my dad had a few rocks of petrified wood in a bag, and had his phone charger right next to it.They almost went DEFCON 1 and did radio people to show up and act if it went down. But they opened the bag and saw it was rocks and a charger. They told him that it looked absolutely identical to what they had been taught a bomb looked like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. People said I’d never get over my Phil Collins obsession, but take a look at me now.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114400/87193681/dadjokes8.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. They thought my insulin pump was a bomb. I was tackled by TSA immediately. I was 14 at the time, still traumatized. Now any time I see any law enforcement I get anxious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I think calendars are trying to kill us. They’re the reason our days are numbered. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114403/87193682/dadjokes5.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I had a nutcracker in my carry-on. Like a legit, festive Christmas soldier nutcracker - it was a gift for my moms birthday (she collects them). I was only flying in for 2 days for my grandmas funeral so didnt check any luggage. They stopped me and questioned me for 30 minutes. Kept insinuating I was going to use it as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Which state has the most streets? Rhode Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114413/87193683/dadjokes10.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Not in the USA but in France, I got stopped on the way through customs by an agent who said something fast and aggressive-sounding in French. My French isnt great, so I just looked puzzled and said I didnt understand. The guy quickly beckoned another guy over and explained to him in rapid-fire French what was going on. The second guy turned to me and said He says your T-shirt is really cool and can you tell him where you got it?. It was a Star Wars T-shirt that I got as a birthday present, so I couldnt even tell him where it came from. Luckily, he didnt arrest me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I wish my kids werent offended by my Frozen jokes. They really need to let it go!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114417/87193684/dadjokes9.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I have maintained a decent beard and have a darker skin complexion for a white dude. I am randomly selected for a search or shoe swab every single time I fly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192021.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Why was the stadium so hot after the game? Because all the fans left.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114424/87193685/dadjokes12.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. My niece has a teddy bear. She has had this teddy bear essentially since she was born. The doggo has bitten a hole into its belly, so we sew onto it like a lion head sticker, to keep its guts inside. One time we were on holiday visiting family, and she left it there, luckily I was staying a bit longer so I could grab it on my way back.An adult man with a teddy bear that had its guts torn open and fixed with a lion bandaid apparently looks pretty suspicious, so they shoved the poor guy into x-ray 3-4 times. She is still in ownership of the teddy bear and it is still in decent shape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Tequila may not fix your life, but it’s worth a shot.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114429/87193686/dadjokes11.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. They searched me when I was 18 and flying alone and said it was because my ID was only a permit. When I went to my connection airport, I told a black TSA women Do you need to pat me down again because i Have a permit like the last airport? She looked at me and sighed No honey. Thats not a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. What did the 0 say to the 8? “Nice belt.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114435/87193687/dadjokes14.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. My son was too tall for his age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I could tell a joke about pizza, but its a little cheesy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114440/87193688/dadjokes15.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I had a sample size (0.1oz) bottle of perfume in my book bag. They confiscated it in Detroit without explanation.I got to Germany and they discovered a full size pair of scissors in the front pocket of that same book bag. I wasn’t aware it was there. Both I, and American security, had missed the scissors.German security was much more polite over confiscating the scissors than American was over the perfume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Can someone please tell me what “IDK” means? Every time I ask somebody they say “I don’t know.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114446/87193689/dadjokes13.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Not TSA but the land border, they detected nuclear material. It was because another passenger in my car had some heart surgery or something where they used radioactive material, and apparently it could still be detected. Border patrol pretty much knew what it was but had to check anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. I’m reading a book in Braille. Something bad is about to happen. I can feel it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114451/87193690/dadjokes17.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. When the Andrew Garfield Spidermans first came out they did some amazing merch for them.My Stepdad is a HUGE Spidey fan, so I picked him up the corniest Spiderman film merch when in the US, one of those being like a whirling cement truck thing? It was a big tonka sized thing and the only bag it would fit in was my carry-on. They stopped me and said Is that a spiderman toy? and I took it out and showed them. They said it was the best thing theyd seen all day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Why did the man fall down the well? Because he couldn’t see that well!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114458/87193691/dadjokes16.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Not TSA but at a land border crossing once they pulled us aside because they thought my partner was Trafficking me?!?!? We were the same age, same race (so racism wasn’t a factor,) and we were both dressed fairly nice (coming back from a wedding) with no obvious signs of like… distress? [Illegal substances]? Gunpoint? Nothing. They pulled us aside and grilled him on all of our relationship things like where we met and how old I am and my mom’s middle name and…?!?!??? Trying to trio him up. Then the guard hit on me?!?!?! Weeeeirdest experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192029.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. What did the buffalo say to its son when he left? Bison!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114502/87193692/dadjokes19.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Got pulled to the side at Fort Myers airport. One TSA guy with gloves, two TSA guys standing right behind me. Officer says, is there anything you want to tell me before I open this bag?I am horribly confused. Wrapped right on top between a few t-shirts is an large Avocado.TSA guy starts laughing. I love Avocados, my 76 yo father has a tree in his yard... he slipped one in my bag before leaving. Apparently it doesnt look the best going through the x-ray machine, they thought it may be a home-made bomb or grenade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Where do math teachers go on vacation? Times Square.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114509/87193693/dadjokes18.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Tampon showed up on the body scan thingy and I had to have my crotch patted down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192031.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. I joined a dating site for arsonists. I’ve been getting a lot of matches. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114514/87193694/dadjokes21.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. My friend worked for the TSA. I was at my local airport and saw him while on line. I waved and he looked over. He says something to another agent and when I get to front of the line I get pulled over for extra searching. I never talked to that guy again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. There are two kinds of people in this world. People who can count, and people who can’t.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114520/87193695/dadjokes22.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Arranging my two laptops and a tablet after taking them out of my bag for faster / easier scanning.I got yelled at and detained because I have Pre-Check.It took demanding for the scanning agent to join the conversation before I was allowed to leave.Had I left them all in the bag, I would have gotten stopped for secondary screening.The TSA is so damn frustrating. They serve no useful purpose except to provide security theater. They miss well over 90% of what they are tested against.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. My boss told me to have a good day, so I went home!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114525/87193696/dadjokes23.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. I have bad knees and occasionally bring a cane with me when I travel. I have one called a hurry-cane, basically a full-size cane that folds into three for easy packing. TSA requires me to still walk through w/o the cane if possible, so I folded it up and laid it on my checked luggage for the x-ray. This obviously new TSA agent has me pulled aside to wait for a supervisor because he said that he is familiar with it and it was a kind of weapon that his character uses in a video game. Was convinced I was trying to hide it as a cane, but that I was openly carrying a Chinese martial arts weapon. Took all of two seconds once the supervisor connected the cane to make the kid realize he was wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Why was 6 afraid of 7? Because…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114531/87193697/dadjokes24.jpg" style="width:100%"><br>
+<span style="font-size:4em">  But had me chuckling. On another trip at the same airport, I was pulled aside because they said the x-ray showed something suspicious in my carry-on. Emptied the whole bag, opened all zippers and checked all pockets, patted down each pocket, checked seams for hidden pockets, etc. then had me repack everything. Not a word was said to me about what they thought they saw. On the return trip, at the other airport, pulled over by TSA for exact same reason. Found nothing again. Havent used that carry-on since. Im guessing its just something weird looking in the frame but isnt worth the hassle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. What did 20 do when it was hungry?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114536/87193698/dadjokes25.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Pulled me aside after my backpack went through the scanner. I was just sitting there while they searched every pocket four times, running it back through the scanner in between each one. Every time they didn’t find anything they’d bring more people over.At that point I was starting to get nervous and asked what they were looking for. Guy number 5 searching my bag looks at me and says super accusingly, “we’re looking for the butterfly knife you have hidden in there,” to which I just laughed since butterfly knives are for edgy 14 year olds. I insisted I didn’t have one, they didn’t believe me.Eventually they found the “knife” it was an old mini-stapler that I had forgotten in there from when I was in school. They seemed embarrassed enough that I just left before they could come up with an excuse to take it out on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Did you hear the one about the roof? Never mind, its over your head.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114539/87193699/dadjokes20.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. My friend spent most of a day being checked out/questioned because he has the same first, middle, and last name (all common American names) of a guy who allegedly went to the Middle East to join ISIS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Why did the picture go to prison? Because it was framed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114543/87193700/dadjokes26.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Im 64, broad shouldered, and bald.I dont even know who is doing the stopping, because I dont give a s**t at this point, but I have never successfully made it through an airport without being pulled aside to have my s**t searched through, even when all I pack is clothes. I bake in the extra 30 minutes into any flight itinerary I have for this exact reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Why did the golfer bring two pairs of pants? In case he got a hole in one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114547/87193701/dadjokes27.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Last name is AHMED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. What type of tree fits in your hand? A palm tree.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114550/87193702/dadjokes28.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. I had a razor in my bag. Like old school razor with a two sided blade deal. They made me take the blade out... But didnt care about the 50 pack of blades that was right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. How does a hurricane see? With one eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114554/87193703/dadjokes29.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. A company I did some contract work for in a different state was giving away a free monitor arm. I was stoked, put it in my bag, and didn’t think anything of it. I later moved it to my carry-on, and as I was going through security, TSA pulled me aside saying, “uhh, we need to look in your bag.” I thought that was weird, but whatever.I happened to get a glance at the X-ray that came up, and I knew the F-up right away. The monitor arm contorted in a way that the scan looked like a small rifle.I chuckled a bit and explained to the agent what it was. When the TSA lady saw it she had the biggest sigh of relief (I’m lucky she was a good sport about it). I wanted to take a photo of the X-ray, but she said I wasn’t allowed to :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. I’m the only one my wife has ever dated. All the others were all nines or tens!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114558/87193704/dadjokes30.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Actually pre-TSA days. Had a s***ty laptop that had a dead battery so I just plugged it in when I used it. Whatever. Security didnt believe it was a laptop. Told me I had to turn it on to prove it. Of course the battery was dead. Had to search for a power outlet. Sitting on the floor booting my s**t laptop while security hovers over me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. Why did the mushroom go to the party? Because he was a fun-gi.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115639/87193706/dadjokes32.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Got held back for 20 mins, on the depart and return, because I had magic decks in my bag. It apparently sets off something like crazy, they had to swab between EVERY single card for multiple 100 card decks. I check them now when I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. Why did the fungi leave the party? Because there wasn’t mush-room. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115629/87193705/dadjokes31.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. My then-two month old was flagged by TSA in 2003. They took one look and realized the only bomb was in his diaper. The same season, his grandfather was subject to additional screening. They had the exact same Irish name: first, middle, and last. I surmised that there might have been an IRA person on an interpol list or something with the same name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. There was a rock in one of my army bags leaving Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. I had a brand new, unopened bag of seasoned salt that I bought in Hawaii. They made me open it so they could make sure it wasn’t [illegal substances]. Also, I have big curly hair and they always stop me to pat my head down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192046.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -344,7 +324,167 @@ Yes, designing them assuming large scale assaults was stupid given the political
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">35 Pics and Memes in Honor of 'the Old Man' We Call Dad</a><br>
+## <a href="#linky9" id="linky8">15 Times Food Packaging Wasn't Lying</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This pizza is glorious!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Finally, a pre-packaged pasta dish that doesnt look like crap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189852.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">Savage Memes to Tickle Your Funny Bone</a><br>
+
+<span style="font-size:4em">1. Wuadda wudda wuadda. Oh man I love this song. Wuadda wuadda </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Staring the Rock, and coming to theaters this fall. Part 2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This one hurt, just turn your phone, the neck cranking isnt worth it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. WTF is going here? We have no idea, so that makes two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. She would look stupid in a mustache. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. It wont fix it, but it will fix me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Oh weve seen this one before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Star Wars got nothing on this saga. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193234.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. No way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193242.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. He was waiting for his moment of attack and he saw it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This one goes out to all the bellow average boys.  We thank you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193249.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193250.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87193225.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">32 Dad Jokes For Father's Day</a><br>
+
+<span style="font-size:4em">1. Did you hear about the guy who evaporated? He’ll be mist!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114327/87193675/dadjokes1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. How do you stop a bull from charging? Cancel its credit card.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114330/87193676/dadjokes3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. How do you throw a party in outer space? You planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114338/87193677/dadjokes4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Post Malone has canceled his tour. Does that mean he’s postpone Malone?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114341/87193678/dadjokes2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Im thinking I should do lunges to stay in shape. That would be a big step forward.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114349/87193679/dadjokes6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Why is Peter Pan always flying? Because he Neverlands.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114352/87193680/dadjokes7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. People said I’d never get over my Phil Collins obsession, but take a look at me now.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114400/87193681/dadjokes8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I think calendars are trying to kill us. They’re the reason our days are numbered. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114403/87193682/dadjokes5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Which state has the most streets? Rhode Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114413/87193683/dadjokes10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I wish my kids werent offended by my Frozen jokes. They really need to let it go!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114417/87193684/dadjokes9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Why was the stadium so hot after the game? Because all the fans left.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114424/87193685/dadjokes12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Tequila may not fix your life, but it’s worth a shot.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114429/87193686/dadjokes11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. What did the 0 say to the 8? “Nice belt.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114435/87193687/dadjokes14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I could tell a joke about pizza, but its a little cheesy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114440/87193688/dadjokes15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Can someone please tell me what “IDK” means? Every time I ask somebody they say “I don’t know.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114446/87193689/dadjokes13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I’m reading a book in Braille. Something bad is about to happen. I can feel it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114451/87193690/dadjokes17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Why did the man fall down the well? Because he couldn’t see that well!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114458/87193691/dadjokes16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. What did the buffalo say to its son when he left? Bison!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114502/87193692/dadjokes19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Where do math teachers go on vacation? Times Square.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114509/87193693/dadjokes18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I joined a dating site for arsonists. I’ve been getting a lot of matches. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114514/87193694/dadjokes21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There are two kinds of people in this world. People who can count, and people who can’t.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114520/87193695/dadjokes22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. My boss told me to have a good day, so I went home!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114525/87193696/dadjokes23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Why was 6 afraid of 7? Because…</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114531/87193697/dadjokes24.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. What did 20 do when it was hungry?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114536/87193698/dadjokes25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Did you hear the one about the roof? Never mind, its over your head.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114539/87193699/dadjokes20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Why did the picture go to prison? Because it was framed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114543/87193700/dadjokes26.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Why did the golfer bring two pairs of pants? In case he got a hole in one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114547/87193701/dadjokes27.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. What type of tree fits in your hand? A palm tree.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114550/87193702/dadjokes28.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. How does a hurricane see? With one eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114554/87193703/dadjokes29.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I’m the only one my wife has ever dated. All the others were all nines or tens!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/114558/87193704/dadjokes30.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Why did the mushroom go to the party? Because he was a fun-gi.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115639/87193706/dadjokes32.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Why did the fungi leave the party? Because there wasn’t mush-room. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/115629/87193705/dadjokes31.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">35 Pics and Memes in Honor of 'the Old Man' We Call Dad</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87192289.jpg" style="width:100%"><br>
 
@@ -418,113 +558,7 @@ Yes, designing them assuming large scale assaults was stupid given the political
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">15 Liars Living in a Fantasy World</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195128.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195130.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195132.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195125.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195119.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195127.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195123.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195126.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195124.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195129.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195122.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195131.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195133.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">34 Bizarre Reasons People Were Searched By TSA Agents</a><br>
-
-<span style="font-size:4em">1. When I was a kid, I had a broken arm and they needed to inspect my cast… cut a piece off of it and put it in some sort of machine.Also, my dad and oldest brother’s names popped up on the do not fly list because of men with the same name being a part of the IRA. For years when ever my dad and oldest brother went to fly they had to bring all sorts of ID with them to prove that they aren’t the same dudes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Glass jellyfishLike those blown glass ones that are super cool at art galleries.I got pulled aside into a small room because they thought I was smuggling sea life. Was an interesting time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Crotch anomaly. I was wearing normal joggers, nothing in my pockets. The lady behind me loudly said yeah its called a d**k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My mom passed away unexpectedly in California. I flew out to pick up her ashes and there was a terror alert at LAX. It was unreal; the military was in the airport with what looked like machine guns. I was out of my mind with grief and drugged to the gills. I was dealing with a bad back, and had to fly from California to a small town in Virginia for the memorial service. Security was heightened and everyone was being searched. I only had a small carry-on and my mom’s ashes.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> When I got to the TSA, the agent wanted me to open my mother’s box of ashes! I refused and insisted they x-ray the box instead. It showed nothing inside ( duh- ashes) which convinced the TSA agent that it had some sort of cloaking device and was hiding a bomb. Again he insisted that I open the box that held my mom’s ashes. I was beginning to lose my s**t. I called my husband who works in nuclear power and explained what was going on. He told me to tell the TSA agent to place a coin under the box and send it through the X-ray again. He did and thank goodness he saw the coin. Otherwise, I would have been arrested for assaulting a stupid TSA agent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. One time my dad had a few rocks of petrified wood in a bag, and had his phone charger right next to it.They almost went DEFCON 1 and did radio people to show up and act if it went down. But they opened the bag and saw it was rocks and a charger. They told him that it looked absolutely identical to what they had been taught a bomb looked like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. They thought my insulin pump was a bomb. I was tackled by TSA immediately. I was 14 at the time, still traumatized. Now any time I see any law enforcement I get anxious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I had a nutcracker in my carry-on. Like a legit, festive Christmas soldier nutcracker - it was a gift for my moms birthday (she collects them). I was only flying in for 2 days for my grandmas funeral so didnt check any luggage. They stopped me and questioned me for 30 minutes. Kept insinuating I was going to use it as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Not in the USA but in France, I got stopped on the way through customs by an agent who said something fast and aggressive-sounding in French. My French isnt great, so I just looked puzzled and said I didnt understand. The guy quickly beckoned another guy over and explained to him in rapid-fire French what was going on. The second guy turned to me and said He says your T-shirt is really cool and can you tell him where you got it?. It was a Star Wars T-shirt that I got as a birthday present, so I couldnt even tell him where it came from. Luckily, he didnt arrest me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I have maintained a decent beard and have a darker skin complexion for a white dude. I am randomly selected for a search or shoe swab every single time I fly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My niece has a teddy bear. She has had this teddy bear essentially since she was born. The doggo has bitten a hole into its belly, so we sew onto it like a lion head sticker, to keep its guts inside. One time we were on holiday visiting family, and she left it there, luckily I was staying a bit longer so I could grab it on my way back.An adult man with a teddy bear that had its guts torn open and fixed with a lion bandaid apparently looks pretty suspicious, so they shoved the poor guy into x-ray 3-4 times. She is still in ownership of the teddy bear and it is still in decent shape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. They searched me when I was 18 and flying alone and said it was because my ID was only a permit. When I went to my connection airport, I told a black TSA women Do you need to pat me down again because i Have a permit like the last airport? She looked at me and sighed No honey. Thats not a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My son was too tall for his age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I had a sample size (0.1oz) bottle of perfume in my book bag. They confiscated it in Detroit without explanation.I got to Germany and they discovered a full size pair of scissors in the front pocket of that same book bag. I wasn’t aware it was there. Both I, and American security, had missed the scissors.German security was much more polite over confiscating the scissors than American was over the perfume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Not TSA but the land border, they detected nuclear material. It was because another passenger in my car had some heart surgery or something where they used radioactive material, and apparently it could still be detected. Border patrol pretty much knew what it was but had to check anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. When the Andrew Garfield Spidermans first came out they did some amazing merch for them.My Stepdad is a HUGE Spidey fan, so I picked him up the corniest Spiderman film merch when in the US, one of those being like a whirling cement truck thing? It was a big tonka sized thing and the only bag it would fit in was my carry-on. They stopped me and said Is that a spiderman toy? and I took it out and showed them. They said it was the best thing theyd seen all day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Not TSA but at a land border crossing once they pulled us aside because they thought my partner was Trafficking me?!?!? We were the same age, same race (so racism wasn’t a factor,) and we were both dressed fairly nice (coming back from a wedding) with no obvious signs of like… distress? [Illegal substances]? Gunpoint? Nothing. They pulled us aside and grilled him on all of our relationship things like where we met and how old I am and my mom’s middle name and…?!?!??? Trying to trio him up. Then the guard hit on me?!?!?! Weeeeirdest experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Got pulled to the side at Fort Myers airport. One TSA guy with gloves, two TSA guys standing right behind me. Officer says, is there anything you want to tell me before I open this bag?I am horribly confused. Wrapped right on top between a few t-shirts is an large Avocado.TSA guy starts laughing. I love Avocados, my 76 yo father has a tree in his yard... he slipped one in my bag before leaving. Apparently it doesnt look the best going through the x-ray machine, they thought it may be a home-made bomb or grenade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Tampon showed up on the body scan thingy and I had to have my crotch patted down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My friend worked for the TSA. I was at my local airport and saw him while on line. I waved and he looked over. He says something to another agent and when I get to front of the line I get pulled over for extra searching. I never talked to that guy again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Arranging my two laptops and a tablet after taking them out of my bag for faster / easier scanning.I got yelled at and detained because I have Pre-Check.It took demanding for the scanning agent to join the conversation before I was allowed to leave.Had I left them all in the bag, I would have gotten stopped for secondary screening.The TSA is so damn frustrating. They serve no useful purpose except to provide security theater. They miss well over 90% of what they are tested against.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I have bad knees and occasionally bring a cane with me when I travel. I have one called a hurry-cane, basically a full-size cane that folds into three for easy packing. TSA requires me to still walk through w/o the cane if possible, so I folded it up and laid it on my checked luggage for the x-ray. This obviously new TSA agent has me pulled aside to wait for a supervisor because he said that he is familiar with it and it was a kind of weapon that his character uses in a video game. Was convinced I was trying to hide it as a cane, but that I was openly carrying a Chinese martial arts weapon. Took all of two seconds once the supervisor connected the cane to make the kid realize he was wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  But had me chuckling. On another trip at the same airport, I was pulled aside because they said the x-ray showed something suspicious in my carry-on. Emptied the whole bag, opened all zippers and checked all pockets, patted down each pocket, checked seams for hidden pockets, etc. then had me repack everything. Not a word was said to me about what they thought they saw. On the return trip, at the other airport, pulled over by TSA for exact same reason. Found nothing again. Havent used that carry-on since. Im guessing its just something weird looking in the frame but isnt worth the hassle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Pulled me aside after my backpack went through the scanner. I was just sitting there while they searched every pocket four times, running it back through the scanner in between each one. Every time they didn’t find anything they’d bring more people over.At that point I was starting to get nervous and asked what they were looking for. Guy number 5 searching my bag looks at me and says super accusingly, “we’re looking for the butterfly knife you have hidden in there,” to which I just laughed since butterfly knives are for edgy 14 year olds. I insisted I didn’t have one, they didn’t believe me.Eventually they found the “knife” it was an old mini-stapler that I had forgotten in there from when I was in school. They seemed embarrassed enough that I just left before they could come up with an excuse to take it out on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My friend spent most of a day being checked out/questioned because he has the same first, middle, and last name (all common American names) of a guy who allegedly went to the Middle East to join ISIS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Im 64, broad shouldered, and bald.I dont even know who is doing the stopping, because I dont give a s**t at this point, but I have never successfully made it through an airport without being pulled aside to have my s**t searched through, even when all I pack is clothes. I bake in the extra 30 minutes into any flight itinerary I have for this exact reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Last name is AHMED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I had a razor in my bag. Like old school razor with a two sided blade deal. They made me take the blade out... But didnt care about the 50 pack of blades that was right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. A company I did some contract work for in a different state was giving away a free monitor arm. I was stoked, put it in my bag, and didn’t think anything of it. I later moved it to my carry-on, and as I was going through security, TSA pulled me aside saying, “uhh, we need to look in your bag.” I thought that was weird, but whatever.I happened to get a glance at the X-ray that came up, and I knew the F-up right away. The monitor arm contorted in a way that the scan looked like a small rifle.I chuckled a bit and explained to the agent what it was. When the TSA lady saw it she had the biggest sigh of relief (I’m lucky she was a good sport about it). I wanted to take a photo of the X-ray, but she said I wasn’t allowed to :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Actually pre-TSA days. Had a s***ty laptop that had a dead battery so I just plugged it in when I used it. Whatever. Security didnt believe it was a laptop. Told me I had to turn it on to prove it. Of course the battery was dead. Had to search for a power outlet. Sitting on the floor booting my s**t laptop while security hovers over me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Got held back for 20 mins, on the depart and return, because I had magic decks in my bag. It apparently sets off something like crazy, they had to swab between EVERY single card for multiple 100 card decks. I check them now when I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My then-two month old was flagged by TSA in 2003. They took one look and realized the only bomb was in his diaper. The same season, his grandfather was subject to additional screening. They had the exact same Irish name: first, middle, and last. I surmised that there might have been an IRA person on an interpol list or something with the same name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. There was a rock in one of my army bags leaving Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. I had a brand new, unopened bag of seasoned salt that I bought in Hawaii. They made me open it so they could make sure it wasn’t [illegal substances]. Also, I have big curly hair and they always stop me to pat my head down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87192046.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">30 People Life Gave a Big 'F - You' To</a><br>
+## <a href="#linky13" id="linky12">30 People Life Gave a Big 'F - You' To</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87192479.jpg" style="width:100%"><br>
 
@@ -585,40 +619,6 @@ Yes, designing them assuming large scale assaults was stupid given the political
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122900/87193739/87165438.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/17/122909/87193740/87165434.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">15 Times Food Packaging Wasn't Lying</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This pizza is glorious!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Finally, a pre-packaged pasta dish that doesnt look like crap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87189852.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
