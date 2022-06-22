@@ -1,257 +1,249 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/22/2022-11:47:18
+Last updated: 06/22/2022-12:47:18
 <br>
-## <a href="#linky2" id="linky1">30 Incredible Moments From Hollywood's Golden Age </a><br>
+## <a href="#linky2" id="linky1">46 Choice Pics of Assorted Random Goodness </a><br>
 
-<span style="font-size:4em">1. Marilyn Monroe And Sammy Davis Jr. On The 20th Century Fox Lot, 1953</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196251.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Ava Gardner Getting In Costume On The Set Of The Barefoot Contessa, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196276.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196385.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Diane Keaton And Al Pacino Behind The Scenes Of The Godfather, 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196263.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Now this is pretty darn cool!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Louis Armstrong Serenading His Wife Lucille At The Great Sphinx Of Giza, Egypt, 1961</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196249.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The villain could be anywhere... The villains lair:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Marlon Brando Having A Typewriting Session With His Cat, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196250.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Hey dont forget about me, Im hungry too!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Carrie Fisher Watching Her Mother Debbie Reynolds Backstage At The Riviera Hotel In Las Vegas, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196252.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196376.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Audrey Hepburn Nervously Awaiting The Announcement For Best Actress At The 26th Academy Awards Ceremony, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196253.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Olivia Newton-John And John Travolta At The Grease Premiere Party At Paramount Studios In Los Angeles, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196264.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Its called high fashion... you wouldnt get it (and if were being honest with ourselves, neither does anyone involved in it).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Audrey Hepburn And Julie Andrews At The Academy Awards, 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196254.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Hugh Grant Photographed By Gregory Heisler, 1984</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196255.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. No thank you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196388.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Ill Never Forget The Day Marilyn And I Were Walking Around New York City, Just Having A Stroll On A Nice Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196256.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Grace Kelly Shopping For Dresses With Her Mother Margaret In New York, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196257.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A Dapper Muhammad Ali (Then Known As Cassius Clay) Going For A Stroll In New York, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196258.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Tom Cruise, Ralph Macchio, Emilio Estevez, Patrick Swayze, Matt Dillon, C. Thomas Howell, And Rob Lowe In A Publicity Still For The Outsiders, 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196259.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Marilyn Monroe And Jane Russell During A Break In Filming Gentlemen Prefer Blondes, 1953</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196260.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Meryl Streep And Robert De Niro In The Deer Hunter, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196261.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Meryl Streep At Bernards High School, 1966. She Was A Member Of The Varsity Cheerleading Squad, And Was Named Homecoming Queen During Her Senior Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196262.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. When You Look At Marilyn On The Screen, You Dont Want Anything Bad To Happen To Her. You Really Care That She Should Be All Right... Happy - Natalie Wood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196265.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. James Dean Visiting Elizabeth Taylor In Her Trailer During The Filming Of Giant, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196266.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196370.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Dolly Parton And Her Husband Carl Dean Circa 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196267.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Jane Fonda Shopping At Mayfair, 1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196268.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Ingrid Bergman With Her Daughter Isabella In Rome, 1962</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196269.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Family Portrait Of A Two-Year-Old Elvis Presley And His Parents Gladys And Vernon, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196270.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Joanne Woodward And Paul Newman At Their Hollywood Home, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196271.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Harrison Ford Photographed By Nancy Moran At His Los Angeles Home, 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196272.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Audrey Hepburn And George Peppard On The Set Of Breakfast At Tiffany’s, 1961</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196273.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Sharon Tate At Her Home In Summitridge Drive, 1968</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196274.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093549/87197291/87197024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Audrey Hepburn Photographed By William Klein For Vogue, 1966. The Actress Would Have Been 92 Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196275.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093600/87197292/87197036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Debra Paget Photographed By Nina Leen For Life Magazine, 1950</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196277.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093611/87197293/87197046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. Al Pacino Photographed By Steve Wood, 1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196278.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093619/87197294/87197045.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093622/87197295/87197052.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093630/87197296/87197057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “I asked for a raise.” - Flounder_guppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191557.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093633/87197297/87197064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Never pay full price for anything unless I absolutely have to.” - ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191558.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093641/87197298/87197109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Cancelled cable TV.” - MR_Butt-Licker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191559.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093644/87197299/87197110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I talked to the owners of the MMA gym I’ve trained at for 11 years, and they cut my monthly membership fee by 30% in exchange for occasionally leading classes as a substitute.” - drunkn_mastr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191560.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093652/87197300/87197113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I buy meth instead of gas so I can just run to work.” - MasterFicus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191561.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093655/87197301/87197115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Been shaving my head at home because barbershop prices have gone up so much since the pandemic.” - Hrekires</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191562.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093704/87197302/87197130.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “I moved in with my mom because there’s literally no where to cut down.” - Same-Entertainer8038</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191565.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093706/87197303/87197131.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “No branded food items (especially cereal, sauces and tins.) No take out or eating out - this includes buying drinks etc, take a bottle/thermos.” - Jebbo87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191563.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093715/87197304/87197134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Eating less meat and more vegetarian meals. Unsubscribed from Disney plus and Amazon, started growing my own green onions and other herbs, and I cut my own hair now.” - Crazylivykid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191564.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093717/87197305/87197135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Road trips for one. Im driving to the necessary places only. Ive been hunting for most of the meat and wouldnt be above getting a road kill tag either and eating that. Planting vegetables, buying fruit bearing trees although they will take a while.” - nsmith0723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191566.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093727/87197306/87197140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “If you’re trying to lose weight, consider buying less food to save money. I’ve already lost 9 lbs by eating less calories and going on walks.” - Burrito_Loyalist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191567.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093728/87197307/87197146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Bought a bike instead of buying gas for my car. Glad my work isnt that far from where I live. Now I can never skip leg day.” - Densetsu___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191568.jpg" style="width:100%"><br>
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093738/87197308/87197149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I quit drinking and smoking.” - Qfn4g02016</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191569.jpg" style="width:100%"><br>
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093740/87197309/87197151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I found r/MealPrepSunday and I only cook once a week. I have healthy, tasty homemade meals ready to go every week. It has significantly improved my quality of life.” - Nudiusterian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Not buying a new car. One I have is all paid off and it works, so...why go spending?” - AgoraiosBum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I got a flatmate. Id been living in my own place for six years. The transition hasnt been easy, learning to share common space again, well, sucks.” - Evolves_Rapidly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “I cut out my daily 7 dollar coffees and Im not going to do fabric softener. Detergent will make it smell good enough, fabric softener is just pizzazz. Im trying to do more generic brands for now too. Also trying to keep my gas tank above 3/4 cause paying 20 to top it off is better than 60 to fill all the way.” - AnnieBanannie1004</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “I got rid of all my subscriptions. Netflix, Amazon, Sirius, Doordash etc. There are ways of entertaining myself without. Like countless hours on Reddit.” - TeazeUrMind </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Got rid of my car. - IDoNotFuckDogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Working more. Switched to only buying family packs of TimTams and only if theyre on special.” - VagrancyHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191575.jpg" style="width:100%"><br>
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/093750/87197310/87197152.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">15 Trends People Will Regret in the Next Ten Years</a><br>
+## <a href="#linky3" id="linky2">People of Walmart Who Ran Out of F**ks to Give</a><br>
 
-<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196183.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196184.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">30 Tattoos That Have Aged Poorly</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196480.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196467.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196466.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196486.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196189.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Rotten Tomatoes Facts That Are Actually Kind of Unbelievable</a><br>
+## <a href="#linky4" id="linky3">People Asked to be Roasted, and Got Burned to a Crisp</a><br>
 
-<span style="font-size:4em">1. Ashton Kutcher has never been in a film that was certified fresh on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035009/87196689/ashton.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Heartbroken musician, make me cry.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123527/87196518/roast3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Screenwriter Blake Snyder, author of Save the Cat: The Last Book on Screenwriting Youll Ever Need has only two writing credits. Blank Check and Stop! Or My Mom Will Shoot. They have 9% and 11% ratings respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035020/87196690/blake.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Do your roast. I’m sure this will be easy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123632/87196531/roast15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Bodyguard soundtrack is the 4th best selling album OF ALL TIME. Meanwhile the movie sits at 32% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035032/87196691/body.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Metalhead trash looking for a laugh. Do your worst.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123546/87196520/roast-13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Movie 43 has a 5% rating after 10 years of production and multiple writers, actors, and directors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035039/87196692/43.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Scrap yard worker. Lets see what happens.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123550/87196521/roast4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Deep Blue Sea 2 received a 0% rating, while Deep Blue Sea 3 would go onto to grab a score of 71%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035044/87196693/deepblue.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A lot to work with. Im always down for a good laugh, so have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123555/87196522/roast5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Final Fantasy: The Spirits Within holds the highest ranking (44%) for any movie based on a video game ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035050/87196694/final.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I have a Masters in Civil Engineering but am still unemployed. Recently got dumped after a 6 year relationship. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123558/87196523/roast6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Christopher Nolans lowest rated movie is The Prestige at 75%. The director has never had a movie rated Rotten.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035125/87196700/nolan.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Tell me something I haven’t heard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123605/87196524/roast7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Adam Sandlers production company Happy Madison, has never had a film rate higher than 68% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035056/87196695/happy.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Got a man, a car, a house, and a sick body. Make me sob.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123607/87196525/roast8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The first film that James Cameron ever directed is titled Piranha 2: The Spawning and holds a 6% rating on the site.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035101/87196696/james.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Lost soul. Just love being roasted tbh. F me up bruh.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123610/87196526/roast9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The 1986 film, Rad has the largest discrepancy between audience and critic ratings. 0% critic and 89% audience.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196707/rad.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. You guys suck, my mom said.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123622/87196529/roast12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Forrest Gump only received a 71% rating. Blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035112/87196698/gump.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Roast my friend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123515/87196517/roast2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Comcast/NBC Universal own 70% of Rotten Tomatoes with Warner Bros holding the remaining 30%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035118/87196699/NBC.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Currently coping with the feeling of loss and regret in regards to a woman, yet illusorily optimistic in adapting a hedonist lifestyle and fulfilling my artistic passion of becoming a film director. Despair is compensated by countless films and literature of which I have lost count. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123539/87196519/roast1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. John Ratzenberger is the highest rated American actor on the site, basically because hes been featured in nearly every Pixar film.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035129/87196701/johnratz.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My gf gave me brand new makeup. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123617/87196527/roast10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Of all movies, Spy Kids received a 93% rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196706/spy.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Roast me if you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123619/87196528/roast11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Michael Bays The Rock starring Nicholas Cage is Bays only film to be certified fresh at 66%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035136/87196702/rock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Extremely Loud & Incredibly Close is the only best picture nominated film to have a Rotten rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035140/87196703/rotten.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Jaws: The Revenge has a 0% rating. While the original Jaws sits at 100%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035107/87196697/jaws.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Samuel L. Jackson has a movie rated 100% (Unforgivable Blackness: The Rise and Fall of Jack Johnson) and a movie rated 0% (Kite.)</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035147/87196704/sam.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The hit or miss 9th and final season of Scrubs has a 50% rating, mainly because it was the only season ever ranked.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035152/87196705/scrub.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The original Toy Story trilogy is the most critically acclaimed trilogy of all time, according to Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035203/87196708/trilogy.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. My life is a mess and I am a disaster. Let me have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123630/87196530/roast14.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">30 Toilets That Are Oddly Terrifying</a><br>
+## <a href="#linky5" id="linky4">Savage Memes to Take Your Breath Away</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195350.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">30 Toilets That Are Oddly Terrifying</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124219/87196534/doll.jpg" style="width:100%"><br>
 
@@ -315,7 +307,177 @@ Last updated: 06/22/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">25 Make-A-Wish Employees Reveal The Craziest Wishes They Granted Kids</a><br>
+## <a href="#linky7" id="linky6">28 Memes to Help You Reign Supreme</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">25 Insane Facts About Mickey Mouse</a><br>
+
+<span style="font-size:4em">1. By 1932, Mickey Mouse had lost his edge since becoming a role model for children. Disney wanted to create a character to portray more negative character traits, which could no longer be bestowed on Mickey. That’s when Disney started working on a short-tempered character named Donald Duck. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/122912/87196515/0.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> -u/doozersworkhard9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The earliest surviving graphic novel depicting the Holocaust was created in an internment camp in 1942 and starred Mickey Mouse.-u/BardBardia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Because the USA is unlikely to extend its copyright term again, Disney has been extensively using the Steamboat Willie Mickey Mouse in its marketing to keep the character indefinitely protected under trademark law instead.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Warner Bros. allowed Bugs Bunny to appear in Who Framed Roger Rabbit? under the stipulation that he only appear opposite Mickey Mouse, and that the two receive the same amount of screen time. The resulting scene is the only time in film history that the two have shared the screen together.-u/dabams23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Adolf Galland, one of the top-scoring German aces of WWII, often flew missions in just his swimming trunks, smoking a cigar, and with a plane emblazoned with Mickey Mouse art. Ive always liked Mickey Mouse, he said when asked about the strange behavior.-u/NordyNed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Mickey Mouses predecessor was a character named Oswald the Lucky Rabbit, who had to be replaced because his rights were owned by Universal Studios.-u/BigOldQueer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jim Henson is on the Hollywood Walk of Fame as both himself and Kermit The Frog. Only three other people have received this honor. Walt Disney and Mickey Mouse; Mel Blanc and Bugs Bunny; and Mike Myers and Shrek.-u/thevernanator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The last thing on BBC Television before it was switched off on the eve of the Second World War was a Mickey Mouse show which was aired at around 12.35pm on 1st September 1939. Seven years later BBC Television returned with a repeat of the same Mickey Mouse program.-u/MistressGravity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Malcolm in the Middle theme song and the Mickey Mouse Clubhouse theme song were written by the same people, They Might Be Giants.-u/honestbobiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Walt Disney and his wife Lillian invented Mickey Mouse during a train ride from Manhattan to Hollywood. Much later on theyd also make an animated short “Mickey’s Choo-Choo”, where Mickey is a train engineer.-u/bemmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Mickey Mouse in Steamboat Willie (1938) was one of the first sound cartoons. Mickey was voiced by Walt Disney himself.-u/Jimbos013</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Walt Disney based movements of Mickey Mouse and of animatronic characters in Disneyland rides on the captured dancing and walking of Buddy Ebsen, later TVs Jed Clampett and Barnaby Jones.-u/L0st_in_the_Stars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In 1935, Mickey Mouse was banned in Romania, since authorities believed children would be scared seeing a giant mouse on the screen.-u/thk_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When Jim Henson died, Disney Imagineers sent a drawing of Mickey Mouse consoling Kermit the Frog to his mourning company.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Minnie Moo is a real cow owned by Disney World that had spots that looked like Mickey Mouse.-u/fuzzypurplestuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Walt Disney helped the Army design a Mickey Mouse gas mask in the 40s to make chemical warfare less frightening to kids.-u/abigillygal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Emperor Hirohito of Japan was a huge fan of Mickey Mouse. He was given a Mickey Mouse watch as a gift during his special tour of Disneyland in 1975. For years, even on formal occasions, His Majesty was observed wearing the watch.-u/sraynor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Disney was planning on making a short film featuring Mickey Mouse as Christopher Colombus discovering America. It got canceled because the animation team was unsure how to animate the native people Mickey would have to encounter in a non-offensive way.-u/Tsukamori</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Disney created a short called The Sorcerers Apprentice to boost Mickey Mouses fading popularity. As production costs began to mount, they decided to include it as part of a feature film set to classical music. This became the classic Disney film, Fantasia.-u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Walt Disney was once filmed physically performing the role of Mickey Mouse as a reference for the animators of a 1930s short. Sadly, no known copies of the footage exists.-u/-Paraprax-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There is a Mickey Mouse-shaped solar farm at Disney World, Florida.-u/footyDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194916.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Mickey Mouse once broke up with Minnie and made multiple suicide attempts.-u/quivorian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Hitler admired Disney cartoons. He was delighted when Joseph Goebbels gifted him eighteen Mickey Mouse films as a Christmas present in 1937.-u/chillmaticx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The reason Mickey Mouse wears gloves is so that his hands can be seen when theyre in front of his body.-u/gerryhanes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194919.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">26 Anti-Memes That Are Neither Dank Nor Fresh</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122730/87197417/notmemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122718/87197415/notmemes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122708/87197413/notmemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122710/87197414/notmemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122700/87197412/notmemes2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122657/87197411/notmemes3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122721/87197416/notmemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122732/87197418/notmemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122741/87197419/notmemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122743/87197420/notmemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122752/87197421/notmemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122755/87197422/notmemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122804/87197423/notmemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122806/87197424/notmemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122816/87197425/notmemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122817/87197426/notmemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122827/87197427/notmemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122829/87197428/notmemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122838/87197429/notmemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122840/87197430/notmemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122850/87197431/notmemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122851/87197432/notmemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122900/87197433/notmemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122902/87197434/notmemes24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122911/87197435/notmemes25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122913/87197436/notmemes26.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">25 Make-A-Wish Employees Reveal The Craziest Wishes They Granted Kids</a><br>
 
 <span style="font-size:4em">1. “I shot an internal promotional video for Make a Wish once. I got to read through a big book of wishes they had granted. Some of them were so extravagant and amazing. Family vacations, celebrity meetings. And then I saw a 3 year old who wished for a banana split for breakfast. And thats what they gave him. No one was like ayo. Wish higher. - josiemarcellino </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191579.jpg" style="width:100%"><br>
 
@@ -383,309 +545,7 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">28 Memes to Help You Reign Supreme</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">26 Anti-Memes That Are Neither Dank Nor Fresh</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122657/87197411/notmemes3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122700/87197412/notmemes2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122708/87197413/notmemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122710/87197414/notmemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122718/87197415/notmemes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122721/87197416/notmemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122730/87197417/notmemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122732/87197418/notmemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122741/87197419/notmemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122743/87197420/notmemes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122752/87197421/notmemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122755/87197422/notmemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122804/87197423/notmemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122806/87197424/notmemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122816/87197425/notmemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122817/87197426/notmemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122827/87197427/notmemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122829/87197428/notmemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122838/87197429/notmemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122840/87197430/notmemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122850/87197431/notmemes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122851/87197432/notmemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122900/87197433/notmemes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122902/87197434/notmemes24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122911/87197435/notmemes25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122913/87197436/notmemes26.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Savage Memes to Take Your Breath Away</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195350.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">33 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197261.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197265.gif" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197277.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197279.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197287.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Insane Facts About Mickey Mouse</a><br>
-
-<span style="font-size:4em">1. By 1932, Mickey Mouse had lost his edge since becoming a role model for children. Disney wanted to create a character to portray more negative character traits, which could no longer be bestowed on Mickey. That’s when Disney started working on a short-tempered character named Donald Duck. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/122912/87196515/0.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> -u/doozersworkhard9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The earliest surviving graphic novel depicting the Holocaust was created in an internment camp in 1942 and starred Mickey Mouse.-u/BardBardia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Because the USA is unlikely to extend its copyright term again, Disney has been extensively using the Steamboat Willie Mickey Mouse in its marketing to keep the character indefinitely protected under trademark law instead.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Warner Bros. allowed Bugs Bunny to appear in Who Framed Roger Rabbit? under the stipulation that he only appear opposite Mickey Mouse, and that the two receive the same amount of screen time. The resulting scene is the only time in film history that the two have shared the screen together.-u/dabams23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Adolf Galland, one of the top-scoring German aces of WWII, often flew missions in just his swimming trunks, smoking a cigar, and with a plane emblazoned with Mickey Mouse art. Ive always liked Mickey Mouse, he said when asked about the strange behavior.-u/NordyNed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Mickey Mouses predecessor was a character named Oswald the Lucky Rabbit, who had to be replaced because his rights were owned by Universal Studios.-u/BigOldQueer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Jim Henson is on the Hollywood Walk of Fame as both himself and Kermit The Frog. Only three other people have received this honor. Walt Disney and Mickey Mouse; Mel Blanc and Bugs Bunny; and Mike Myers and Shrek.-u/thevernanator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The last thing on BBC Television before it was switched off on the eve of the Second World War was a Mickey Mouse show which was aired at around 12.35pm on 1st September 1939. Seven years later BBC Television returned with a repeat of the same Mickey Mouse program.-u/MistressGravity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194896.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Malcolm in the Middle theme song and the Mickey Mouse Clubhouse theme song were written by the same people, They Might Be Giants.-u/honestbobiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Walt Disney and his wife Lillian invented Mickey Mouse during a train ride from Manhattan to Hollywood. Much later on theyd also make an animated short “Mickey’s Choo-Choo”, where Mickey is a train engineer.-u/bemmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Mickey Mouse in Steamboat Willie (1938) was one of the first sound cartoons. Mickey was voiced by Walt Disney himself.-u/Jimbos013</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Walt Disney based movements of Mickey Mouse and of animatronic characters in Disneyland rides on the captured dancing and walking of Buddy Ebsen, later TVs Jed Clampett and Barnaby Jones.-u/L0st_in_the_Stars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In 1935, Mickey Mouse was banned in Romania, since authorities believed children would be scared seeing a giant mouse on the screen.-u/thk_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When Jim Henson died, Disney Imagineers sent a drawing of Mickey Mouse consoling Kermit the Frog to his mourning company.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Minnie Moo is a real cow owned by Disney World that had spots that looked like Mickey Mouse.-u/fuzzypurplestuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Walt Disney helped the Army design a Mickey Mouse gas mask in the 40s to make chemical warfare less frightening to kids.-u/abigillygal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Emperor Hirohito of Japan was a huge fan of Mickey Mouse. He was given a Mickey Mouse watch as a gift during his special tour of Disneyland in 1975. For years, even on formal occasions, His Majesty was observed wearing the watch.-u/sraynor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Disney was planning on making a short film featuring Mickey Mouse as Christopher Colombus discovering America. It got canceled because the animation team was unsure how to animate the native people Mickey would have to encounter in a non-offensive way.-u/Tsukamori</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Disney created a short called The Sorcerers Apprentice to boost Mickey Mouses fading popularity. As production costs began to mount, they decided to include it as part of a feature film set to classical music. This became the classic Disney film, Fantasia.-u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Walt Disney was once filmed physically performing the role of Mickey Mouse as a reference for the animators of a 1930s short. Sadly, no known copies of the footage exists.-u/-Paraprax-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. There is a Mickey Mouse-shaped solar farm at Disney World, Florida.-u/footyDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194916.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Mickey Mouse once broke up with Minnie and made multiple suicide attempts.-u/quivorian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Hitler admired Disney cartoons. He was delighted when Joseph Goebbels gifted him eighteen Mickey Mouse films as a Christmas present in 1937.-u/chillmaticx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The reason Mickey Mouse wears gloves is so that his hands can be seen when theyre in front of his body.-u/gerryhanes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194919.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Odd Finds and Strange Things People Stumbled Across </a><br>
+## <a href="#linky11" id="linky10">Odd Finds and Strange Things People Stumbled Across </a><br>
 
 <span style="font-size:4em">1. “A scorpion I just happened to find in my bra before putting it on”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195847.jpg" style="width:100%"><br>
 
@@ -751,7 +611,51 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">The Dankest of Memes For Your Laughing Needs </a><br>
+## <a href="#linky12" id="linky11">Rotten Tomatoes Facts That Are Actually Kind of Unbelievable</a><br>
+
+<span style="font-size:4em">1. Ashton Kutcher has never been in a film that was certified fresh on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035009/87196689/ashton.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Screenwriter Blake Snyder, author of Save the Cat: The Last Book on Screenwriting Youll Ever Need has only two writing credits. Blank Check and Stop! Or My Mom Will Shoot. They have 9% and 11% ratings respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035020/87196690/blake.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Bodyguard soundtrack is the 4th best selling album OF ALL TIME. Meanwhile the movie sits at 32% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035032/87196691/body.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Movie 43 has a 5% rating after 10 years of production and multiple writers, actors, and directors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035039/87196692/43.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Deep Blue Sea 2 received a 0% rating, while Deep Blue Sea 3 would go onto to grab a score of 71%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035044/87196693/deepblue.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Final Fantasy: The Spirits Within holds the highest ranking (44%) for any movie based on a video game ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035050/87196694/final.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Christopher Nolans lowest rated movie is The Prestige at 75%. The director has never had a movie rated Rotten.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035125/87196700/nolan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Adam Sandlers production company Happy Madison, has never had a film rate higher than 68% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035056/87196695/happy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The first film that James Cameron ever directed is titled Piranha 2: The Spawning and holds a 6% rating on the site.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035101/87196696/james.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The 1986 film, Rad has the largest discrepancy between audience and critic ratings. 0% critic and 89% audience.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196707/rad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Forrest Gump only received a 71% rating. Blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035112/87196698/gump.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Comcast/NBC Universal own 70% of Rotten Tomatoes with Warner Bros holding the remaining 30%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035118/87196699/NBC.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. John Ratzenberger is the highest rated American actor on the site, basically because hes been featured in nearly every Pixar film.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035129/87196701/johnratz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Of all movies, Spy Kids received a 93% rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196706/spy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Michael Bays The Rock starring Nicholas Cage is Bays only film to be certified fresh at 66%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035136/87196702/rock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Extremely Loud & Incredibly Close is the only best picture nominated film to have a Rotten rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035140/87196703/rotten.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Jaws: The Revenge has a 0% rating. While the original Jaws sits at 100%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035107/87196697/jaws.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Samuel L. Jackson has a movie rated 100% (Unforgivable Blackness: The Rise and Fall of Jack Johnson) and a movie rated 0% (Kite.)</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035147/87196704/sam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The hit or miss 9th and final season of Scrubs has a 50% rating, mainly because it was the only season ever ranked.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035152/87196705/scrub.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The original Toy Story trilogy is the most critically acclaimed trilogy of all time, according to Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035203/87196708/trilogy.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">The Dankest of Memes For Your Laughing Needs </a><br>
 
 <span style="font-size:4em">1. So this is what my pizza rolls see at 3:20 in the morning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194058.png" style="width:100%"><br>
 
@@ -803,87 +707,149 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">People of Walmart Who Ran Out of F**ks to Give</a><br>
+## <a href="#linky14" id="linky13">30 Tattoos That Have Aged Poorly</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196169.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196171.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196172.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196173.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196174.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196175.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196170.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196176.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196178.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196179.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196180.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196181.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196177.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196182.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196183.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196184.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196185.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196186.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196187.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196188.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196189.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196476.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196477.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">People Asked to be Roasted, and Got Burned to a Crisp</a><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Heartbroken musician, make me cry.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123527/87196518/roast3.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Do your roast. I’m sure this will be easy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123632/87196531/roast15.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Metalhead trash looking for a laugh. Do your worst.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123546/87196520/roast-13.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Scrap yard worker. Lets see what happens.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123550/87196521/roast4.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. A lot to work with. Im always down for a good laugh, so have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123555/87196522/roast5.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I have a Masters in Civil Engineering but am still unemployed. Recently got dumped after a 6 year relationship. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123558/87196523/roast6.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Tell me something I haven’t heard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123605/87196524/roast7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Got a man, a car, a house, and a sick body. Make me sob.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123607/87196525/roast8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Lost soul. Just love being roasted tbh. F me up bruh.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123610/87196526/roast9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. You guys suck, my mom said.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123622/87196529/roast12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Roast my friend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123515/87196517/roast2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Currently coping with the feeling of loss and regret in regards to a woman, yet illusorily optimistic in adapting a hedonist lifestyle and fulfilling my artistic passion of becoming a film director. Despair is compensated by countless films and literature of which I have lost count. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123539/87196519/roast1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My gf gave me brand new makeup. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123617/87196527/roast10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Roast me if you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123619/87196528/roast11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My life is a mess and I am a disaster. Let me have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123630/87196530/roast14.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196486.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">20 Movies That Best Predict The Future Of Mankind</a><br>
+## <a href="#linky15" id="linky14">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
+
+<span style="font-size:4em">1. “I asked for a raise.” - Flounder_guppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Never pay full price for anything unless I absolutely have to.” - ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Cancelled cable TV.” - MR_Butt-Licker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I talked to the owners of the MMA gym I’ve trained at for 11 years, and they cut my monthly membership fee by 30% in exchange for occasionally leading classes as a substitute.” - drunkn_mastr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I buy meth instead of gas so I can just run to work.” - MasterFicus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Been shaving my head at home because barbershop prices have gone up so much since the pandemic.” - Hrekires</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “I moved in with my mom because there’s literally no where to cut down.” - Same-Entertainer8038</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “No branded food items (especially cereal, sauces and tins.) No take out or eating out - this includes buying drinks etc, take a bottle/thermos.” - Jebbo87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Eating less meat and more vegetarian meals. Unsubscribed from Disney plus and Amazon, started growing my own green onions and other herbs, and I cut my own hair now.” - Crazylivykid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Road trips for one. Im driving to the necessary places only. Ive been hunting for most of the meat and wouldnt be above getting a road kill tag either and eating that. Planting vegetables, buying fruit bearing trees although they will take a while.” - nsmith0723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “If you’re trying to lose weight, consider buying less food to save money. I’ve already lost 9 lbs by eating less calories and going on walks.” - Burrito_Loyalist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Bought a bike instead of buying gas for my car. Glad my work isnt that far from where I live. Now I can never skip leg day.” - Densetsu___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I quit drinking and smoking.” - Qfn4g02016</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I found r/MealPrepSunday and I only cook once a week. I have healthy, tasty homemade meals ready to go every week. It has significantly improved my quality of life.” - Nudiusterian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Not buying a new car. One I have is all paid off and it works, so...why go spending?” - AgoraiosBum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I got a flatmate. Id been living in my own place for six years. The transition hasnt been easy, learning to share common space again, well, sucks.” - Evolves_Rapidly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I cut out my daily 7 dollar coffees and Im not going to do fabric softener. Detergent will make it smell good enough, fabric softener is just pizzazz. Im trying to do more generic brands for now too. Also trying to keep my gas tank above 3/4 cause paying 20 to top it off is better than 60 to fill all the way.” - AnnieBanannie1004</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “I got rid of all my subscriptions. Netflix, Amazon, Sirius, Doordash etc. There are ways of entertaining myself without. Like countless hours on Reddit.” - TeazeUrMind </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Got rid of my car. - IDoNotFuckDogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Working more. Switched to only buying family packs of TimTams and only if theyre on special.” - VagrancyHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191575.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">15 Trends People Will Regret in the Next Ten Years</a><br>
+
+<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">20 Movies That Best Predict The Future Of Mankind</a><br>
 
 <span style="font-size:4em">1. “Her. Surprisingly mundane; different but not spectacular; exciting new AI tech seems poised to make life incredible, but as it gains more intelligence it loses interest in us completely and disappears to do its own thing.” - NotABonobo 
 
