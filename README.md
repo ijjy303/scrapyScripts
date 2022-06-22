@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/22/2022-01:47:18
+Last updated: 06/22/2022-02:47:18
 <br>
 ## <a href="#linky2" id="linky1">Savage Memes to Take Your Breath Away</a><br>
 
@@ -67,7 +67,71 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">15 Liars Living in a Fantasy World</a><br>
+## <a href="#linky3" id="linky2">30 Smarta**es Who Took Things Literally</a><br>
+
+<span style="font-size:4em">1. My Daughter When She Said She Wanted To Be A Transformer For Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My Dad Asked Me If I Wanted An Egg Sandwich. Im Not Even Mad, This Is Genius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My Grandma Wanted Some Creative Grad Photos Of My Friend Since Were Graduating At The Same Time. This Was Her Least Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Asked For My Cheese Steak To Be Made With Love. They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Experts Recommend Keeping Your Daily Rituals Even While Working From Home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. We Told Our 3-Year-Old That New Year Is Special Because You Get To Toast. Later, She Said: Are We Gonna Make A Toast Now? And Thus, A New Years Day Tradition Was Born</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Mom Told Her Daughter To Grab Her Mask So They Can Go To The Store. This Was The Mask She Grabbed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Someone At A Festival Offered Me A Little Bag Of Coke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This Is The Picture Amazon Sent My Bill To Say The Packages Were Delivered To A Family Member Directly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My Buddy Was Told He Could Wear A Costume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Always Asked For A Skateboard As A Kid. My Parents Said Not Until Im 35. Today They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. They Asked For A Lion Cut, They Got It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Told My Boyfriend I Was Getting Him A Burger For Christmas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Found Some Amazing Indian Writing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My Cousin Wanted Cake And Ordered One. Told The Bakers To Write Whatever They Wanted Because It Was For Just For Her Anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I Was So Busy In The Kitchen I Didnt Know What To Do First, My Little Brother Asked Me What He Can Do To Help. I Told Him To Get That Bag Of Potato, Peel Half Of Them And Boil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Picked It, Thanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My Buddy Jokingly Decided To Get A Henna Tattoo Of A Mustache While At The Beach. The Foreign Worker Didnt Understand What He Was Saying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This Brazilian Girl Is A Big Fan Of K-Pop And All Korean Culture, So Her Father Without Understanding Much Wanted To Personalize Her Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Not Gonna Lie, This Is A Little Too Accurate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My Bro Told My Grandma, Jokingly, That He Wanted 100 Things From The Dollar Store For Christmas, Grandma Doesnt Like Being Challenged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Cant Blame The Answerer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. My Brothers Camp Requires The Kids Write A Letter Home After The First Week</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I Asked My 5-Year-Old To Keep An Eye On His Sister While I Served Him Dinner, I Peek Out Of The Kitchen And Find Him Like This. His Sister Is In Good Hands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. A First Grade Class Was Asked What They Would Say If The Pilgrims Showed Up At Their Door On Thanksgiving</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194279.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">15 Liars Living in a Fantasy World</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195128.png" style="width:100%"><br>
 
@@ -101,7 +165,7 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">23 Dank Memes Found Underneath the Floorboards </a><br>
+## <a href="#linky5" id="linky4">23 Dank Memes Found Underneath the Floorboards </a><br>
 
 <span style="font-size:4em">1. Come on, do something. Youre not trying hard enough. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195414.jpg" style="width:100%"><br>
 
@@ -151,91 +215,49 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">The Most Brutal Onscreen Kills Of All Time</a><br>
+## <a href="#linky6" id="linky5">20 Movies That Best Predict The Future Of Mankind</a><br>
 
-<span style="font-size:4em">1. In Doctor Sleep when they’re slowly killing the baseball kid. Had to fast forward because it was too much for me.-u/oldbabyface1 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194843.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Her. Surprisingly mundane; different but not spectacular; exciting new AI tech seems poised to make life incredible, but as it gains more intelligence it loses interest in us completely and disappears to do its own thing.” - NotABonobo 
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The final scene in The Mist. Different than the book. So much so that even Stephen King himself was impressed. And understated as hell for such a devastating scene.-u/tearsonurcheek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194845.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Don’t look up. Maybe not with an actual meteor, but this is how we will probably actually respond to a major threat to humanity.” - Dutch_Fudge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Regular Murphy in Robocop. They just kept shooting him and he took forever to die.-u/ashgallows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194846.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Not a movie but a show. Black Mirror is really convincingly creepy. More than a handful of the episodes have had a we only need the technology but once we have it, this is what is going to happen, and we arent far off on the tech now vibe.” - Ginger_Chick</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. In Pan’s Labyrinth when son and father are killed after hunting for rabbits.-u/placer128</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194847.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Somewhere between Black Mirror and Gattaca. Right now it is a trend to foresee the “end of the world” or r/collapse of civilization but imo that probably isn’t going to happen. Its just the modern day version of Y2K/flying cars in the year 2000. the real future is going to be more like a slow/mundane decay, with some hard ethical questions” - False-Wolverine-7457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The scene in The Boys where she kills the guy that shes face riding… (When Popclaw kills her landlord)-u/overgroove</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194848.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Which is why it was my favorite of the Best Picture nominees (until I saw Drive My Car). The it shouldve been more subtle/funny people piss me off. ITS A MOVIE ABOUT HOW HUMANITY IS DESTROYING ITSELF ASSHOLES!! THATS NOT A MESSAGE THAT NEEDS TO BE SUBTLE OR FUNNY.” - MuNansen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. When Adam Goldberg is slowly stabbed to death by that German in Saving Private Ryan.-u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194849.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Planet of the Apes, dont worry about why, just keep letting those researches from Pfizer test the brain enhancement drugs on large apes, nothing to worry about and nothing that has already gone wrong. Definitely no super-intelligent apes preparing a mass enlightenment of animal kind and world war + enslavement of humans” - pdxblazer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The stabbing scene in Zodiac affected me more than any other scene from any movie Ive watched. It was just so realistic, I could feel their helplessness and futile struggle…-u/_softlite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194850.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Anyone remember Stephen Kings The Stand? How about 1 nation going for germ warfare on another, but they have the only cure. Once everyones dead, that first nation waltzes in and takes control.” - willc453</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Definitely found Shireen’s death in Game of Thrones. Haunting.-u/EightEyedCryptid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194851.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “I think about both Idiocracy and Wall-E every single time I go to Walmart..” - TimesThreeTheHighest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195031.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Joe Pesci’s death in Casino. First, he had to watch his brother be brutally beaten to near death with baseball bats, knowing he’s next. Then he got worked over with baseball bats. And THEN he was buried alive next to his brother.-u/PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194844.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Terry Gilliams Brazil is probably the most accurate Dystopian film when compared to current times.” - Oopeeyay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Edward Delacroix in The Green MileThat scene was scarier than any other movie scene I’d witnessed. -u/SVWOH_L-3H_L</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194852.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Minority Report. But instead of 3 people, its simply an algorithm.” - Soyoulikedonutseh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Irreversible, the iconic fire extinguisher scene. Sh*t’s absolutely brutal.-u/Jonboy326</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194853.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “The Expanse. Until we find out exactly whats on Pheobe its a possibility” - StewofPuppies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The 100th episode of Criminal Minds when the whole team listens to Hotch’s ex-wife being killed by a serial killer.-u/ThginkAccbeR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194854.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “The little mermaid. The sea levels do be rising” - Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The blood eagle scene in Vikings.-u/KCKC_1515</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194855.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Not really a movie, but 1984. Were quite literally living in it. Government blatantly spying on us, a constant blast of entertainment to distract the masses, mass surveillance on a global scale, etc. Its like governments and corporations used the book as a fucking instruction guide than anything else.” - Faithless195</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Nell’s death in Haunting of Hill House(2018) was particularly horrifying.-u/Turbulent_Spell_3840</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194856.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Simpsons Movie.” - GenoSnas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Deadwood, Dans fight with Hearsts enforcer.-u/nando_uaz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194857.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Yes. Interstellar. Just the life on Earth part, not the escaping Earth part.” - Tider99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The guy getting eaten alive by those worm things in King Kong 2005.-u/hundredjono</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194858.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Little bit of Fahrenheit 451, dash of equilibrium and a sprinkle of Back to the Future 2” - b0r3dw0rk3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Not really brutal or a killing, but when Walter White let Jane overdose. That left me speechless.. DAMN.-u/castaneom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194859.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “The Day After - 1980s nuclear holocaust film” - Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Glen Rhees death in The Walking Dead.-u/Bento_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194860.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Blade runner with even more sex replicants. City is kind of dirty but the noodles look good.” - mxxiestorc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Blackbeard’s death in Black Sails. The keelhauling was intense.-u/clintyyy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194861.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Mad Max: Fury Road gets a lot of elements of what I see happening over the next 50 years right. Water scarcity and desertification is upon us already.” - makingclaims</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Opie on Sons of Anarchy.-u/kdub1523</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The sheriff and his wifes murder in the episode of The X-Files titled Home. Im pretty sure that scene was the reason the episode was not in syndication for years after it initially aired.-u/GizmoSled</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ralph beating Tracey to death in the Sopranos.-u/D_Phoenix_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I remember being shocked to see the Mountain crushing the Viper’s skull in GOT.-u/Jamally1980</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Ghost Ship 2002.At the beginning of the movie when all of the passengers are cut in half. -u/dogheritage0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The man from the cliff in Midsommar. It got to me pretty bad.-u/Sleepy-Iguana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194867.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">15 Trends People Will Regret in the Next Ten Years</a><br>
-
-<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “The Fifth Element! I love that movie, I think the vibrancy and capitalist expanse fits our current trajectory quite well. Advertisements and junk food everywhere all the time, bright neon and funky fashion, it’s all going to happen!” - candycrunch1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195049.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -319,131 +341,7 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">30 Smarta**es Who Took Things Literally</a><br>
-
-<span style="font-size:4em">1. My Daughter When She Said She Wanted To Be A Transformer For Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My Dad Asked Me If I Wanted An Egg Sandwich. Im Not Even Mad, This Is Genius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Grandma Wanted Some Creative Grad Photos Of My Friend Since Were Graduating At The Same Time. This Was Her Least Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Asked For My Cheese Steak To Be Made With Love. They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Experts Recommend Keeping Your Daily Rituals Even While Working From Home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. We Told Our 3-Year-Old That New Year Is Special Because You Get To Toast. Later, She Said: Are We Gonna Make A Toast Now? And Thus, A New Years Day Tradition Was Born</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Mom Told Her Daughter To Grab Her Mask So They Can Go To The Store. This Was The Mask She Grabbed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Someone At A Festival Offered Me A Little Bag Of Coke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This Is The Picture Amazon Sent My Bill To Say The Packages Were Delivered To A Family Member Directly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My Buddy Was Told He Could Wear A Costume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Always Asked For A Skateboard As A Kid. My Parents Said Not Until Im 35. Today They Delivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. They Asked For A Lion Cut, They Got It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Told My Boyfriend I Was Getting Him A Burger For Christmas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Found Some Amazing Indian Writing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My Cousin Wanted Cake And Ordered One. Told The Bakers To Write Whatever They Wanted Because It Was For Just For Her Anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I Was So Busy In The Kitchen I Didnt Know What To Do First, My Little Brother Asked Me What He Can Do To Help. I Told Him To Get That Bag Of Potato, Peel Half Of Them And Boil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Picked It, Thanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My Buddy Jokingly Decided To Get A Henna Tattoo Of A Mustache While At The Beach. The Foreign Worker Didnt Understand What He Was Saying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This Brazilian Girl Is A Big Fan Of K-Pop And All Korean Culture, So Her Father Without Understanding Much Wanted To Personalize Her Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Not Gonna Lie, This Is A Little Too Accurate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My Bro Told My Grandma, Jokingly, That He Wanted 100 Things From The Dollar Store For Christmas, Grandma Doesnt Like Being Challenged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Cant Blame The Answerer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. My Brothers Camp Requires The Kids Write A Letter Home After The First Week</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I Asked My 5-Year-Old To Keep An Eye On His Sister While I Served Him Dinner, I Peek Out Of The Kitchen And Find Him Like This. His Sister Is In Good Hands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A First Grade Class Was Asked What They Would Say If The Pilgrims Showed Up At Their Door On Thanksgiving</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87194279.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">28 Memes to Help You Reign Supreme</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
+## <a href="#linky9" id="linky8">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
 
 <span style="font-size:4em">1. “I asked for a raise.” - Flounder_guppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191557.jpg" style="width:100%"><br>
 
@@ -487,7 +385,41 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Rotten Tomatoes Facts That Are Actually Kind of Unbelievable</a><br>
+## <a href="#linky10" id="linky9">15 Trends People Will Regret in the Next Ten Years</a><br>
+
+<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Rotten Tomatoes Facts That Are Actually Kind of Unbelievable</a><br>
 
 <span style="font-size:4em">1. Ashton Kutcher has never been in a film that was certified fresh on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035009/87196689/ashton.jpg" style="width:100%"><br>
 
@@ -531,7 +463,7 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">30 Tattoos That Have Aged Poorly</a><br>
+## <a href="#linky12" id="linky11">30 Tattoos That Have Aged Poorly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196480.jpg" style="width:100%"><br>
 
@@ -595,7 +527,7 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">30 Incredible Moments From Hollywood's Golden Age </a><br>
+## <a href="#linky13" id="linky12">30 Incredible Moments From Hollywood's Golden Age </a><br>
 
 <span style="font-size:4em">1. Marilyn Monroe And Sammy Davis Jr. On The 20th Century Fox Lot, 1953</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196251.jpg" style="width:100%"><br>
 
@@ -659,7 +591,121 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">23 Funny Memes to Kickstart Your Week</a><br>
+## <a href="#linky14" id="linky13">28 Memes to Help You Reign Supreme</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">The Most Brutal Onscreen Kills Of All Time</a><br>
+
+<span style="font-size:4em">1. In Doctor Sleep when they’re slowly killing the baseball kid. Had to fast forward because it was too much for me.-u/oldbabyface1 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The final scene in The Mist. Different than the book. So much so that even Stephen King himself was impressed. And understated as hell for such a devastating scene.-u/tearsonurcheek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Regular Murphy in Robocop. They just kept shooting him and he took forever to die.-u/ashgallows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In Pan’s Labyrinth when son and father are killed after hunting for rabbits.-u/placer128</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The scene in The Boys where she kills the guy that shes face riding… (When Popclaw kills her landlord)-u/overgroove</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. When Adam Goldberg is slowly stabbed to death by that German in Saving Private Ryan.-u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The stabbing scene in Zodiac affected me more than any other scene from any movie Ive watched. It was just so realistic, I could feel their helplessness and futile struggle…-u/_softlite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Definitely found Shireen’s death in Game of Thrones. Haunting.-u/EightEyedCryptid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Joe Pesci’s death in Casino. First, he had to watch his brother be brutally beaten to near death with baseball bats, knowing he’s next. Then he got worked over with baseball bats. And THEN he was buried alive next to his brother.-u/PhillipLlerenas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Edward Delacroix in The Green MileThat scene was scarier than any other movie scene I’d witnessed. -u/SVWOH_L-3H_L</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Irreversible, the iconic fire extinguisher scene. Sh*t’s absolutely brutal.-u/Jonboy326</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The 100th episode of Criminal Minds when the whole team listens to Hotch’s ex-wife being killed by a serial killer.-u/ThginkAccbeR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The blood eagle scene in Vikings.-u/KCKC_1515</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Nell’s death in Haunting of Hill House(2018) was particularly horrifying.-u/Turbulent_Spell_3840</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194856.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Deadwood, Dans fight with Hearsts enforcer.-u/nando_uaz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The guy getting eaten alive by those worm things in King Kong 2005.-u/hundredjono</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Not really brutal or a killing, but when Walter White let Jane overdose. That left me speechless.. DAMN.-u/castaneom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Glen Rhees death in The Walking Dead.-u/Bento_Fox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Blackbeard’s death in Black Sails. The keelhauling was intense.-u/clintyyy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Opie on Sons of Anarchy.-u/kdub1523</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The sheriff and his wifes murder in the episode of The X-Files titled Home. Im pretty sure that scene was the reason the episode was not in syndication for years after it initially aired.-u/GizmoSled</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Ralph beating Tracey to death in the Sopranos.-u/D_Phoenix_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I remember being shocked to see the Mountain crushing the Viper’s skull in GOT.-u/Jamally1980</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Ghost Ship 2002.At the beginning of the movie when all of the passengers are cut in half. -u/dogheritage0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The man from the cliff in Midsommar. It got to me pretty bad.-u/Sleepy-Iguana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194867.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">23 Funny Memes to Kickstart Your Week</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87196065.jpg" style="width:100%"><br>
 
@@ -709,7 +755,7 @@ Last updated: 06/22/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">20 Most Controversial Takes On Star Wars</a><br>
+## <a href="#linky17" id="linky16">20 Most Controversial Takes On Star Wars</a><br>
 
 <span style="font-size:4em">1. “For a show that explores the f**king universe, so much bullshit happens in goddamn Tatooine” - rocharox 
 
@@ -753,52 +799,6 @@ Yes, designing them assuming large scale assaults was stupid given the political
 <span style="font-size:4em">19. “All Wookiees should be shaved.” - THIS_IS_GOD_TOTALLY_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195153.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. “Disney should have not even touched the time period where any of the original stories take place. They should have made entirely new stories set hundreds, thousands, millions, or billions of years before or after the Skywalker Saga. I mean Im glad they made Rogue One and Jedi Fallen Order. But other than that, they should have made entirely separate stories that didnt even mention the Skywalkers or the Solos.” - stonebolt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195154.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">20 Movies That Best Predict The Future Of Mankind</a><br>
-
-<span style="font-size:4em">1. “Her. Surprisingly mundane; different but not spectacular; exciting new AI tech seems poised to make life incredible, but as it gains more intelligence it loses interest in us completely and disappears to do its own thing.” - NotABonobo 
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Don’t look up. Maybe not with an actual meteor, but this is how we will probably actually respond to a major threat to humanity.” - Dutch_Fudge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Not a movie but a show. Black Mirror is really convincingly creepy. More than a handful of the episodes have had a we only need the technology but once we have it, this is what is going to happen, and we arent far off on the tech now vibe.” - Ginger_Chick</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Somewhere between Black Mirror and Gattaca. Right now it is a trend to foresee the “end of the world” or r/collapse of civilization but imo that probably isn’t going to happen. Its just the modern day version of Y2K/flying cars in the year 2000. the real future is going to be more like a slow/mundane decay, with some hard ethical questions” - False-Wolverine-7457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Which is why it was my favorite of the Best Picture nominees (until I saw Drive My Car). The it shouldve been more subtle/funny people piss me off. ITS A MOVIE ABOUT HOW HUMANITY IS DESTROYING ITSELF ASSHOLES!! THATS NOT A MESSAGE THAT NEEDS TO BE SUBTLE OR FUNNY.” - MuNansen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Planet of the Apes, dont worry about why, just keep letting those researches from Pfizer test the brain enhancement drugs on large apes, nothing to worry about and nothing that has already gone wrong. Definitely no super-intelligent apes preparing a mass enlightenment of animal kind and world war + enslavement of humans” - pdxblazer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Anyone remember Stephen Kings The Stand? How about 1 nation going for germ warfare on another, but they have the only cure. Once everyones dead, that first nation waltzes in and takes control.” - willc453</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I think about both Idiocracy and Wall-E every single time I go to Walmart..” - TimesThreeTheHighest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Terry Gilliams Brazil is probably the most accurate Dystopian film when compared to current times.” - Oopeeyay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Minority Report. But instead of 3 people, its simply an algorithm.” - Soyoulikedonutseh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The Expanse. Until we find out exactly whats on Pheobe its a possibility” - StewofPuppies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “The little mermaid. The sea levels do be rising” - Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Not really a movie, but 1984. Were quite literally living in it. Government blatantly spying on us, a constant blast of entertainment to distract the masses, mass surveillance on a global scale, etc. Its like governments and corporations used the book as a fucking instruction guide than anything else.” - Faithless195</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Simpsons Movie.” - GenoSnas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Yes. Interstellar. Just the life on Earth part, not the escaping Earth part.” - Tider99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Little bit of Fahrenheit 451, dash of equilibrium and a sprinkle of Back to the Future 2” - b0r3dw0rk3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “The Day After - 1980s nuclear holocaust film” - Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Blade runner with even more sex replicants. City is kind of dirty but the noodles look good.” - mxxiestorc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Mad Max: Fury Road gets a lot of elements of what I see happening over the next 50 years right. Water scarcity and desertification is upon us already.” - makingclaims</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “The Fifth Element! I love that movie, I think the vibrancy and capitalist expanse fits our current trajectory quite well. Advertisements and junk food everywhere all the time, bright neon and funky fashion, it’s all going to happen!” - candycrunch1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195049.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
