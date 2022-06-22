@@ -1,153 +1,71 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/22/2022-10:47:18
+Last updated: 06/22/2022-11:47:18
 <br>
-## <a href="#linky2" id="linky1">Odd Finds and Strange Things People Stumbled Across </a><br>
+## <a href="#linky2" id="linky1">30 Incredible Moments From Hollywood's Golden Age </a><br>
 
-<span style="font-size:4em">1. “A scorpion I just happened to find in my bra before putting it on”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195847.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Marilyn Monroe And Sammy Davis Jr. On The 20th Century Fox Lot, 1953</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “This hole I accidentally made with a laser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195841.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Ava Gardner Getting In Costume On The Set Of The Barefoot Contessa, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “At the Muse concert last night when suddenly...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195836.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Diane Keaton And Al Pacino Behind The Scenes Of The Godfather, 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “My dog thinks he’s a lap dog and crushed my poor colleague.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195828.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Louis Armstrong Serenading His Wife Lucille At The Great Sphinx Of Giza, Egypt, 1961</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196249.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Took a pic of my cat. She’s blinking, and her reflection is not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195829.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Marlon Brando Having A Typewriting Session With His Cat, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195830.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Carrie Fisher Watching Her Mother Debbie Reynolds Backstage At The Riviera Hotel In Las Vegas, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “This is what you see when you turn your porch light on in Arkansas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195831.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Audrey Hepburn Nervously Awaiting The Announcement For Best Actress At The 26th Academy Awards Ceremony, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196253.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “My onion has non-concentric rings and looks like a cabbage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195832.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Olivia Newton-John And John Travolta At The Grease Premiere Party At Paramount Studios In Los Angeles, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My light bulb burnt out in an interesting way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195853.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Audrey Hepburn And Julie Andrews At The Academy Awards, 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “My new shoes apparently show dirt on the sole in a foot-bone pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195833.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Hugh Grant Photographed By Gregory Heisler, 1984</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “This carrot baby won’t let go of its momma.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195834.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Ill Never Forget The Day Marilyn And I Were Walking Around New York City, Just Having A Stroll On A Nice Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195835.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Grace Kelly Shopping For Dresses With Her Mother Margaret In New York, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196257.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Come on, were going for a ride. I would pay good money to take a trip in this whip. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195837.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A Dapper Muhammad Ali (Then Known As Cassius Clay) Going For A Stroll In New York, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I left my artichoke out of the fridge and it bloomed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195838.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Tom Cruise, Ralph Macchio, Emilio Estevez, Patrick Swayze, Matt Dillon, C. Thomas Howell, And Rob Lowe In A Publicity Still For The Outsiders, 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196259.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “The pattern on this blanket doesn’t show up on an infrared camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195839.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Marilyn Monroe And Jane Russell During A Break In Filming Gentlemen Prefer Blondes, 1953</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196260.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “My sister works at a driving school. She sent me this picture from her desk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195840.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Meryl Streep And Robert De Niro In The Deer Hunter, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196261.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Found out today that my great-uncle is dog walking buddies with Stephen King.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195842.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Meryl Streep At Bernards High School, 1966. She Was A Member Of The Varsity Cheerleading Squad, And Was Named Homecoming Queen During Her Senior Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “A sea lion I saw napping on a bench.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195843.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. When You Look At Marilyn On The Screen, You Dont Want Anything Bad To Happen To Her. You Really Care That She Should Be All Right... Happy - Natalie Wood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196265.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “His name is Meevin and he’s got horn-like ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195844.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. James Dean Visiting Elizabeth Taylor In Her Trailer During The Filming Of Giant, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196266.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195845.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Dolly Parton And Her Husband Carl Dean Circa 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196267.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Mose on a trampoline. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195846.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Jane Fonda Shopping At Mayfair, 1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195848.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Ingrid Bergman With Her Daughter Isabella In Rome, 1962</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195849.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Family Portrait Of A Two-Year-Old Elvis Presley And His Parents Gladys And Vernon, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195850.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Joanne Woodward And Paul Newman At Their Hollywood Home, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195851.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Harrison Ford Photographed By Nancy Moran At His Los Angeles Home, 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. A rock that looks like a heart. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195852.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Audrey Hepburn And George Peppard On The Set Of Breakfast At Tiffany’s, 1961</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Cookie Monster, is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195854.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Sharon Tate At Her Home In Summitridge Drive, 1968</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. “I was told I look like a Mexican Michael Scott.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195855.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Audrey Hepburn Photographed By William Klein For Vogue, 1966. The Actress Would Have Been 92 Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196275.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195856.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Debra Paget Photographed By Nina Leen For Life Magazine, 1950</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. “There’s a family of foxes living under my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. He looks pretty comfortable up there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195858.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Al Pacino Photographed By Steve Wood, 1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196278.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Movies That Best Predict The Future Of Mankind</a><br>
-
-<span style="font-size:4em">1. “Her. Surprisingly mundane; different but not spectacular; exciting new AI tech seems poised to make life incredible, but as it gains more intelligence it loses interest in us completely and disappears to do its own thing.” - NotABonobo 
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Don’t look up. Maybe not with an actual meteor, but this is how we will probably actually respond to a major threat to humanity.” - Dutch_Fudge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Not a movie but a show. Black Mirror is really convincingly creepy. More than a handful of the episodes have had a we only need the technology but once we have it, this is what is going to happen, and we arent far off on the tech now vibe.” - Ginger_Chick</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Somewhere between Black Mirror and Gattaca. Right now it is a trend to foresee the “end of the world” or r/collapse of civilization but imo that probably isn’t going to happen. Its just the modern day version of Y2K/flying cars in the year 2000. the real future is going to be more like a slow/mundane decay, with some hard ethical questions” - False-Wolverine-7457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Which is why it was my favorite of the Best Picture nominees (until I saw Drive My Car). The it shouldve been more subtle/funny people piss me off. ITS A MOVIE ABOUT HOW HUMANITY IS DESTROYING ITSELF ASSHOLES!! THATS NOT A MESSAGE THAT NEEDS TO BE SUBTLE OR FUNNY.” - MuNansen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Planet of the Apes, dont worry about why, just keep letting those researches from Pfizer test the brain enhancement drugs on large apes, nothing to worry about and nothing that has already gone wrong. Definitely no super-intelligent apes preparing a mass enlightenment of animal kind and world war + enslavement of humans” - pdxblazer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Anyone remember Stephen Kings The Stand? How about 1 nation going for germ warfare on another, but they have the only cure. Once everyones dead, that first nation waltzes in and takes control.” - willc453</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I think about both Idiocracy and Wall-E every single time I go to Walmart..” - TimesThreeTheHighest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Terry Gilliams Brazil is probably the most accurate Dystopian film when compared to current times.” - Oopeeyay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Minority Report. But instead of 3 people, its simply an algorithm.” - Soyoulikedonutseh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The Expanse. Until we find out exactly whats on Pheobe its a possibility” - StewofPuppies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “The little mermaid. The sea levels do be rising” - Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Not really a movie, but 1984. Were quite literally living in it. Government blatantly spying on us, a constant blast of entertainment to distract the masses, mass surveillance on a global scale, etc. Its like governments and corporations used the book as a fucking instruction guide than anything else.” - Faithless195</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Simpsons Movie.” - GenoSnas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Yes. Interstellar. Just the life on Earth part, not the escaping Earth part.” - Tider99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Little bit of Fahrenheit 451, dash of equilibrium and a sprinkle of Back to the Future 2” - b0r3dw0rk3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “The Day After - 1980s nuclear holocaust film” - Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Blade runner with even more sex replicants. City is kind of dirty but the noodles look good.” - mxxiestorc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Mad Max: Fury Road gets a lot of elements of what I see happening over the next 50 years right. Water scarcity and desertification is upon us already.” - makingclaims</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “The Fifth Element! I love that movie, I think the vibrancy and capitalist expanse fits our current trajectory quite well. Advertisements and junk food everywhere all the time, bright neon and funky fashion, it’s all going to happen!” - candycrunch1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195049.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">People Asked to be Roasted, and Got Burned to a Crisp</a><br>
-
-<span style="font-size:4em">1. Heartbroken musician, make me cry.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123527/87196518/roast3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Do your roast. I’m sure this will be easy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123632/87196531/roast15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Metalhead trash looking for a laugh. Do your worst.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123546/87196520/roast-13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Scrap yard worker. Lets see what happens.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123550/87196521/roast4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A lot to work with. Im always down for a good laugh, so have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123555/87196522/roast5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I have a Masters in Civil Engineering but am still unemployed. Recently got dumped after a 6 year relationship. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123558/87196523/roast6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Tell me something I haven’t heard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123605/87196524/roast7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Got a man, a car, a house, and a sick body. Make me sob.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123607/87196525/roast8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Lost soul. Just love being roasted tbh. F me up bruh.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123610/87196526/roast9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. You guys suck, my mom said.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123622/87196529/roast12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Roast my friend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123515/87196517/roast2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Currently coping with the feeling of loss and regret in regards to a woman, yet illusorily optimistic in adapting a hedonist lifestyle and fulfilling my artistic passion of becoming a film director. Despair is compensated by countless films and literature of which I have lost count. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123539/87196519/roast1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My gf gave me brand new makeup. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123617/87196527/roast10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Roast me if you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123619/87196528/roast11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My life is a mess and I am a disaster. Let me have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123630/87196530/roast14.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
+## <a href="#linky3" id="linky2">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
 
 <span style="font-size:4em">1. “I asked for a raise.” - Flounder_guppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191557.jpg" style="width:100%"><br>
 
@@ -191,63 +109,145 @@ Last updated: 06/22/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">28 Memes to Help You Reign Supreme</a><br>
+## <a href="#linky4" id="linky3">15 Trends People Will Regret in the Next Ten Years</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
+<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
+<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
+<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
+<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
+<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
+<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
+<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
+<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
+<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
+<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
+<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
+<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
+<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
+## <a href="#linky5" id="linky4">30 Tattoos That Have Aged Poorly</a><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196486.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Rotten Tomatoes Facts That Are Actually Kind of Unbelievable</a><br>
+
+<span style="font-size:4em">1. Ashton Kutcher has never been in a film that was certified fresh on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035009/87196689/ashton.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Screenwriter Blake Snyder, author of Save the Cat: The Last Book on Screenwriting Youll Ever Need has only two writing credits. Blank Check and Stop! Or My Mom Will Shoot. They have 9% and 11% ratings respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035020/87196690/blake.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Bodyguard soundtrack is the 4th best selling album OF ALL TIME. Meanwhile the movie sits at 32% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035032/87196691/body.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Movie 43 has a 5% rating after 10 years of production and multiple writers, actors, and directors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035039/87196692/43.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Deep Blue Sea 2 received a 0% rating, while Deep Blue Sea 3 would go onto to grab a score of 71%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035044/87196693/deepblue.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Final Fantasy: The Spirits Within holds the highest ranking (44%) for any movie based on a video game ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035050/87196694/final.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Christopher Nolans lowest rated movie is The Prestige at 75%. The director has never had a movie rated Rotten.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035125/87196700/nolan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Adam Sandlers production company Happy Madison, has never had a film rate higher than 68% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035056/87196695/happy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The first film that James Cameron ever directed is titled Piranha 2: The Spawning and holds a 6% rating on the site.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035101/87196696/james.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The 1986 film, Rad has the largest discrepancy between audience and critic ratings. 0% critic and 89% audience.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196707/rad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Forrest Gump only received a 71% rating. Blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035112/87196698/gump.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Comcast/NBC Universal own 70% of Rotten Tomatoes with Warner Bros holding the remaining 30%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035118/87196699/NBC.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. John Ratzenberger is the highest rated American actor on the site, basically because hes been featured in nearly every Pixar film.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035129/87196701/johnratz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Of all movies, Spy Kids received a 93% rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196706/spy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Michael Bays The Rock starring Nicholas Cage is Bays only film to be certified fresh at 66%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035136/87196702/rock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Extremely Loud & Incredibly Close is the only best picture nominated film to have a Rotten rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035140/87196703/rotten.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Jaws: The Revenge has a 0% rating. While the original Jaws sits at 100%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035107/87196697/jaws.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Samuel L. Jackson has a movie rated 100% (Unforgivable Blackness: The Rise and Fall of Jack Johnson) and a movie rated 0% (Kite.)</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035147/87196704/sam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The hit or miss 9th and final season of Scrubs has a 50% rating, mainly because it was the only season ever ranked.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035152/87196705/scrub.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The original Toy Story trilogy is the most critically acclaimed trilogy of all time, according to Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035203/87196708/trilogy.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -315,185 +315,187 @@ Last updated: 06/22/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">30 Tattoos That Have Aged Poorly</a><br>
+## <a href="#linky8" id="linky7">25 Make-A-Wish Employees Reveal The Craziest Wishes They Granted Kids</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196480.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I shot an internal promotional video for Make a Wish once. I got to read through a big book of wishes they had granted. Some of them were so extravagant and amazing. Family vacations, celebrity meetings. And then I saw a 3 year old who wished for a banana split for breakfast. And thats what they gave him. No one was like ayo. Wish higher. - josiemarcellino </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196467.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “I helped host a visit to a planetarium by a kid whose wish was to go to the moon. The front office folks thought I could just give her a personal tour of the planetarium and show her some nice high-resolution visuals, but I thought she deserved better than that. I commissioned a jeweler friend and meteorite enthusiast to make a silver crescent moon necklace, which he graciously donated to the cause, and I donated a small lunar meteorite from my own collection. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191580.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196466.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+It was a gorgeous necklace very much to the credit of my friends artistry and generosity. We couldnt take her to the moon so we gave it to her instead. She was thrilled, but later said her real highlight of the trip was the astronaut ice cream. Ah, kids.” - aluminum26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196460.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “My daughter was a Make A Wish kid. She asked to go to Australia to meet the Wiggles. Unfortunately, she wasnt able to travel that far (we live in the US) health-wise. She made a second wish, to meet Captain America. We never told Cap that he was a backup wish after the Wiggles were a no-go. LOL” - Allyson244</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191582.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196457.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “When my sister was 5 and I was 8, she had cancer and had the opportunity to make a wish. When our mom and the make-a-wish person sat down with her, they told her she could wish for whatever she wanted. She just kept saying she wanted macaroni. They kept saying but it can be anything you want!, yet she simply wanted macaroni and cheese. After some strong encouragement to think bigger, and the make-a-wish person suggesting Disneyland, she chose to go to Disneyland.” - tinbasher97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196459.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “My friend, I’m 14 and my good buddy had ALL leukemia. He asked for a ride in a fighter jet and he somehow got it! I was surprised because the doctors would say how his bones were getting fragile and weaker and I guess I thought the G force of the jet would hurt him but he was fine and had a blast. He’s doing better now and is scheduled out in about 3 months :)” - IronNuggetsYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196461.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I was granted a wish after beating brain cancer in 2015. They flew my mum and I out to the capital city of our state and we stayed in the flashiest, most expensive hotel suite with all the bells and whistles. We got free dinner, drinks, and dessert on arrival, and got to chill in the VIP lounge while we were waiting for our room. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196462.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+Our room was decorated with teddy bears and chocolates and MAW decorations. The next day we were chauffeured to the local mall in a limo and I went on an eleven hour shopping spree with a pre-loaded VISA card and bought every solitary thing you would imagine a 16 year old girl wanting. I ended up having to buy another suitcase to take everything home with me but it was the most epic 3 days of my life. I’ll never forget it.” - lizzierose456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191586.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196463.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “A friend of mine is a K9 police officer. He helped Make-A-Wish grants a wish to a set of twins with the deadliest form of Cystic Fibrosis. Most of the time kids with CF aren’t allowed to be around others with it because of cross-infecting bacteria. Them being twins shortens their life expectancy even more. Well, these 10-year-old boys wanted to meet a police dog. My friend and some of his buddies upped the wish and during their meeting of his dog they got called to help solve three “crimes” in their town. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196464.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+ They pulled over a high jacker, found and arrested a robber and helped find a “missing” six-year old (my friend’s nephew). The town police department gave them certificates and honorary police badges for their work. Around 200 people showed up to where they got their awards to cheer them on. At their eleventh birthday they gave my friend a plaque they made with their dad thanking him for the best day ever.” - hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196465.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “To be a “merman” (a boy mermaid). He got a tail and swam in the giant tank with other mermaids at the aquarium.” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196458.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “To play football with “the red team” (no pro or college preference - just had to be red). USC made it happen. https://vimeo.com/40635685 “ - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196468.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “To be a “cool kid”: Got a limo ride to the mall.. red carpet entrance with cheering fans signed autographs, a shopping spree for clothes. 5 years old- So cute- and very “cool”. https://youtu.be/GenVMbnFvLQ” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196469.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “To be Robin (not Batman.. he said he wasn’t ready for that). Went on an epic adventure fighting crime with Batman.” https://vimeo.com/77458547 - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196470.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I was a chef at a fancy steakhouse in Jacksonville Florida, one day my proprietor came To me and said this is Stacy the new girl she’ll be training with you, I look over and it’s this adorable little girl in a bright pink chef coat. I babysat my little cousins at the time So I was actually pretty used to entertaining 10-year-old girls at the time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196471.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+So I showed her the ropes, we made all kinds of stuff, that were on the surface kind of random, candied bacon, cornbread, prosciutto-wrapped Boursin cheese-stuffed asparagus, a sweet tea brined pork chop, a sorel garnish salad type thing and some other Cool garnishes. We were having fun, I then made a purée out of the cornbread and let her plate up the dish a few different ways to show how you can play with ingredients and height to showcase different parts of the dish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196472.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+She had a blast. It was only at the end when the father came up to me In tears that I realized what was goin on. In the moment I was a little upset because nobody told me. But I realized after it was for the best. I probably would not have been as bright and vibrant with the “lessons” had I of known. But it was a fulfilling experience for sure. I hope there family is doing well. Side note( I have re-worked and re-ran the dish as a special a few times in memory of that day, it was that impactful)” - jayblaze521</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196473.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “I worked at a hospice and we had a wishing program. One of our patients, 24 year old with brain cancer, wanted to hold a sloth. Apparently, sloths are very nervous creatures, so its a little tricky to actually hold one. I found a local company that does visits to schools and whatnot who had a sloth. Sloths only poop about once a week and the sloth could only travel the day after he pooped (because they get nervous, any longer than that and the sloth has stress diarrhea). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196474.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+So basically, we had to wait until the sloth pooped and then set up the visit for the next day. The sloth pooped on Thanksgiving, so we set up the visit for the next morning. The patient was able to hold and pet a very sweet sloth. The patient died about three weeks later, and I am very happy I was able to help give her some joy in her final weeks.” - ByteAboutTown</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196475.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I worked at a LEGO retail store in the 2000s and Make-A-Wish approached us for a child with terminal Osteosarcoma who wanted to be in the store for a day. LEGO, unfortunately, denied the request (which surprised myself and the rest of the staff because LEGO was a pretty great company). Staff decided to honor the request ourselves. We closed the store early on a Sunday, then invited the kid and family in. He had a full run of the store, we collectively paid for like $1000 worth of toys for him to take home, and just spent the entire evening building w/e he wanted. He died a few months later </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196476.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “There was a Make-a-Wish kid in a class I taught once and their wish was to tour a pickle factory. Pickles were their all-time favorite food and they wanted to see how the sausage was made so to speak. Apparently, Vlasic rose to the occasion in a major way and she had the time of her life.” - ligamentary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196477.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “I was approached by a similar organization who wanted to arrange a day for a kid to shadow a veterinarian. I’m just a small animal veterinarian with a small hospital so I found it odd that I’d be approached. I said yes (who tf would say no?) and we picked a day and had our regular patients in the hospital and the kid got to watch us do our thing for a day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196478.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+We gave him a lab coat and a stethoscope and let him tag along and see x-rays and ultrasounds and watch surgeries. I brought my dog in so he could try the ultrasound on her. He seemed to enjoy it. It wasn’t a terribly strange request really, it just seems like my day-to-day isn’t something anyone would consider their dream experience.” - TankVet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196479.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “In wizard 101 there’s a quest with an NPC named Brandon, named after a make a wish kid who played the game, and his request was to design a side quest for the game. You meet Brandon and go help him clear out this dungeon with 2 really fucking hard bosses, was a lotta fun. At the end U get a gem you can socket that lets you summon Brandon into battle as a follower, pretty cool. Not sure what ended up happening to Brandon, but it’s really cool that thousands of ppl have gotten to enjoy being a part of his wish tbh” - Arkneryyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196486.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">25 Insane Facts About Mickey Mouse</a><br>
-
-<span style="font-size:4em">1. By 1932, Mickey Mouse had lost his edge since becoming a role model for children. Disney wanted to create a character to portray more negative character traits, which could no longer be bestowed on Mickey. That’s when Disney started working on a short-tempered character named Donald Duck. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/122912/87196515/0.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> -u/doozersworkhard9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The earliest surviving graphic novel depicting the Holocaust was created in an internment camp in 1942 and starred Mickey Mouse.-u/BardBardia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Because the USA is unlikely to extend its copyright term again, Disney has been extensively using the Steamboat Willie Mickey Mouse in its marketing to keep the character indefinitely protected under trademark law instead.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Warner Bros. allowed Bugs Bunny to appear in Who Framed Roger Rabbit? under the stipulation that he only appear opposite Mickey Mouse, and that the two receive the same amount of screen time. The resulting scene is the only time in film history that the two have shared the screen together.-u/dabams23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Adolf Galland, one of the top-scoring German aces of WWII, often flew missions in just his swimming trunks, smoking a cigar, and with a plane emblazoned with Mickey Mouse art. Ive always liked Mickey Mouse, he said when asked about the strange behavior.-u/NordyNed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Mickey Mouses predecessor was a character named Oswald the Lucky Rabbit, who had to be replaced because his rights were owned by Universal Studios.-u/BigOldQueer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Jim Henson is on the Hollywood Walk of Fame as both himself and Kermit The Frog. Only three other people have received this honor. Walt Disney and Mickey Mouse; Mel Blanc and Bugs Bunny; and Mike Myers and Shrek.-u/thevernanator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The last thing on BBC Television before it was switched off on the eve of the Second World War was a Mickey Mouse show which was aired at around 12.35pm on 1st September 1939. Seven years later BBC Television returned with a repeat of the same Mickey Mouse program.-u/MistressGravity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194896.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Malcolm in the Middle theme song and the Mickey Mouse Clubhouse theme song were written by the same people, They Might Be Giants.-u/honestbobiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Walt Disney and his wife Lillian invented Mickey Mouse during a train ride from Manhattan to Hollywood. Much later on theyd also make an animated short “Mickey’s Choo-Choo”, where Mickey is a train engineer.-u/bemmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Mickey Mouse in Steamboat Willie (1938) was one of the first sound cartoons. Mickey was voiced by Walt Disney himself.-u/Jimbos013</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Walt Disney based movements of Mickey Mouse and of animatronic characters in Disneyland rides on the captured dancing and walking of Buddy Ebsen, later TVs Jed Clampett and Barnaby Jones.-u/L0st_in_the_Stars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In 1935, Mickey Mouse was banned in Romania, since authorities believed children would be scared seeing a giant mouse on the screen.-u/thk_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When Jim Henson died, Disney Imagineers sent a drawing of Mickey Mouse consoling Kermit the Frog to his mourning company.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Minnie Moo is a real cow owned by Disney World that had spots that looked like Mickey Mouse.-u/fuzzypurplestuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Walt Disney helped the Army design a Mickey Mouse gas mask in the 40s to make chemical warfare less frightening to kids.-u/abigillygal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Emperor Hirohito of Japan was a huge fan of Mickey Mouse. He was given a Mickey Mouse watch as a gift during his special tour of Disneyland in 1975. For years, even on formal occasions, His Majesty was observed wearing the watch.-u/sraynor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Disney was planning on making a short film featuring Mickey Mouse as Christopher Colombus discovering America. It got canceled because the animation team was unsure how to animate the native people Mickey would have to encounter in a non-offensive way.-u/Tsukamori</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Disney created a short called The Sorcerers Apprentice to boost Mickey Mouses fading popularity. As production costs began to mount, they decided to include it as part of a feature film set to classical music. This became the classic Disney film, Fantasia.-u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Walt Disney was once filmed physically performing the role of Mickey Mouse as a reference for the animators of a 1930s short. Sadly, no known copies of the footage exists.-u/-Paraprax-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. There is a Mickey Mouse-shaped solar farm at Disney World, Florida.-u/footyDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194916.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Mickey Mouse once broke up with Minnie and made multiple suicide attempts.-u/quivorian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Hitler admired Disney cartoons. He was delighted when Joseph Goebbels gifted him eighteen Mickey Mouse films as a Christmas present in 1937.-u/chillmaticx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The reason Mickey Mouse wears gloves is so that his hands can be seen when theyre in front of his body.-u/gerryhanes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194919.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “My cousin was a Make a Wish kid. He loved golf, like had a scholarship to go play college, he loved it so much. He got to meet and play a round of golf with Payne Stewart. Unfortunately, he died not too long after that. F**k cancer.” - crochetawayhpff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191603.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">30 Incredible Moments From Hollywood's Golden Age </a><br>
+## <a href="#linky9" id="linky8">28 Memes to Help You Reign Supreme</a><br>
 
-<span style="font-size:4em">1. Marilyn Monroe And Sammy Davis Jr. On The 20th Century Fox Lot, 1953</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196251.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Ava Gardner Getting In Costume On The Set Of The Barefoot Contessa, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196276.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Diane Keaton And Al Pacino Behind The Scenes Of The Godfather, 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196263.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Louis Armstrong Serenading His Wife Lucille At The Great Sphinx Of Giza, Egypt, 1961</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196249.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Marlon Brando Having A Typewriting Session With His Cat, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196250.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Carrie Fisher Watching Her Mother Debbie Reynolds Backstage At The Riviera Hotel In Las Vegas, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196252.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Audrey Hepburn Nervously Awaiting The Announcement For Best Actress At The 26th Academy Awards Ceremony, 1954</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196253.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Olivia Newton-John And John Travolta At The Grease Premiere Party At Paramount Studios In Los Angeles, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196264.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Audrey Hepburn And Julie Andrews At The Academy Awards, 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196254.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Hugh Grant Photographed By Gregory Heisler, 1984</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196255.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Ill Never Forget The Day Marilyn And I Were Walking Around New York City, Just Having A Stroll On A Nice Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196256.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Grace Kelly Shopping For Dresses With Her Mother Margaret In New York, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196257.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. A Dapper Muhammad Ali (Then Known As Cassius Clay) Going For A Stroll In New York, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196258.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Tom Cruise, Ralph Macchio, Emilio Estevez, Patrick Swayze, Matt Dillon, C. Thomas Howell, And Rob Lowe In A Publicity Still For The Outsiders, 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196259.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Marilyn Monroe And Jane Russell During A Break In Filming Gentlemen Prefer Blondes, 1953</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196260.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. Meryl Streep And Robert De Niro In The Deer Hunter, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196261.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Meryl Streep At Bernards High School, 1966. She Was A Member Of The Varsity Cheerleading Squad, And Was Named Homecoming Queen During Her Senior Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196262.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. When You Look At Marilyn On The Screen, You Dont Want Anything Bad To Happen To Her. You Really Care That She Should Be All Right... Happy - Natalie Wood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196265.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. James Dean Visiting Elizabeth Taylor In Her Trailer During The Filming Of Giant, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196266.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Dolly Parton And Her Husband Carl Dean Circa 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196267.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. Jane Fonda Shopping At Mayfair, 1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196268.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. Ingrid Bergman With Her Daughter Isabella In Rome, 1962</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196269.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. Family Portrait Of A Two-Year-Old Elvis Presley And His Parents Gladys And Vernon, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196270.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. Joanne Woodward And Paul Newman At Their Hollywood Home, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196271.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. Harrison Ford Photographed By Nancy Moran At His Los Angeles Home, 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196272.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. Audrey Hepburn And George Peppard On The Set Of Breakfast At Tiffany’s, 1961</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196273.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. Sharon Tate At Her Home In Summitridge Drive, 1968</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196274.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. Audrey Hepburn Photographed By William Klein For Vogue, 1966. The Actress Would Have Been 92 Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196275.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. Debra Paget Photographed By Nina Leen For Life Magazine, 1950</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196277.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">30. Al Pacino Photographed By Steve Wood, 1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196278.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">26 Anti-Memes That Are Neither Dank Nor Fresh</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122657/87197411/notmemes3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122700/87197412/notmemes2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122708/87197413/notmemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122710/87197414/notmemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122718/87197415/notmemes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122721/87197416/notmemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122730/87197417/notmemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122732/87197418/notmemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122741/87197419/notmemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122743/87197420/notmemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122752/87197421/notmemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122755/87197422/notmemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122804/87197423/notmemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122806/87197424/notmemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122816/87197425/notmemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122817/87197426/notmemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122827/87197427/notmemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122829/87197428/notmemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122838/87197429/notmemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122840/87197430/notmemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122850/87197431/notmemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122851/87197432/notmemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122900/87197433/notmemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122902/87197434/notmemes24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122911/87197435/notmemes25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122913/87197436/notmemes26.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -563,7 +565,193 @@ Last updated: 06/22/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">The Dankest of Memes For Your Laughing Needs </a><br>
+## <a href="#linky12" id="linky11">33 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197261.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197265.gif" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197277.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197279.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197287.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">25 Insane Facts About Mickey Mouse</a><br>
+
+<span style="font-size:4em">1. By 1932, Mickey Mouse had lost his edge since becoming a role model for children. Disney wanted to create a character to portray more negative character traits, which could no longer be bestowed on Mickey. That’s when Disney started working on a short-tempered character named Donald Duck. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/122912/87196515/0.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> -u/doozersworkhard9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The earliest surviving graphic novel depicting the Holocaust was created in an internment camp in 1942 and starred Mickey Mouse.-u/BardBardia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Because the USA is unlikely to extend its copyright term again, Disney has been extensively using the Steamboat Willie Mickey Mouse in its marketing to keep the character indefinitely protected under trademark law instead.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Warner Bros. allowed Bugs Bunny to appear in Who Framed Roger Rabbit? under the stipulation that he only appear opposite Mickey Mouse, and that the two receive the same amount of screen time. The resulting scene is the only time in film history that the two have shared the screen together.-u/dabams23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Adolf Galland, one of the top-scoring German aces of WWII, often flew missions in just his swimming trunks, smoking a cigar, and with a plane emblazoned with Mickey Mouse art. Ive always liked Mickey Mouse, he said when asked about the strange behavior.-u/NordyNed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Mickey Mouses predecessor was a character named Oswald the Lucky Rabbit, who had to be replaced because his rights were owned by Universal Studios.-u/BigOldQueer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jim Henson is on the Hollywood Walk of Fame as both himself and Kermit The Frog. Only three other people have received this honor. Walt Disney and Mickey Mouse; Mel Blanc and Bugs Bunny; and Mike Myers and Shrek.-u/thevernanator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The last thing on BBC Television before it was switched off on the eve of the Second World War was a Mickey Mouse show which was aired at around 12.35pm on 1st September 1939. Seven years later BBC Television returned with a repeat of the same Mickey Mouse program.-u/MistressGravity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Malcolm in the Middle theme song and the Mickey Mouse Clubhouse theme song were written by the same people, They Might Be Giants.-u/honestbobiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Walt Disney and his wife Lillian invented Mickey Mouse during a train ride from Manhattan to Hollywood. Much later on theyd also make an animated short “Mickey’s Choo-Choo”, where Mickey is a train engineer.-u/bemmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Mickey Mouse in Steamboat Willie (1938) was one of the first sound cartoons. Mickey was voiced by Walt Disney himself.-u/Jimbos013</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Walt Disney based movements of Mickey Mouse and of animatronic characters in Disneyland rides on the captured dancing and walking of Buddy Ebsen, later TVs Jed Clampett and Barnaby Jones.-u/L0st_in_the_Stars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In 1935, Mickey Mouse was banned in Romania, since authorities believed children would be scared seeing a giant mouse on the screen.-u/thk_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When Jim Henson died, Disney Imagineers sent a drawing of Mickey Mouse consoling Kermit the Frog to his mourning company.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Minnie Moo is a real cow owned by Disney World that had spots that looked like Mickey Mouse.-u/fuzzypurplestuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Walt Disney helped the Army design a Mickey Mouse gas mask in the 40s to make chemical warfare less frightening to kids.-u/abigillygal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Emperor Hirohito of Japan was a huge fan of Mickey Mouse. He was given a Mickey Mouse watch as a gift during his special tour of Disneyland in 1975. For years, even on formal occasions, His Majesty was observed wearing the watch.-u/sraynor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Disney was planning on making a short film featuring Mickey Mouse as Christopher Colombus discovering America. It got canceled because the animation team was unsure how to animate the native people Mickey would have to encounter in a non-offensive way.-u/Tsukamori</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Disney created a short called The Sorcerers Apprentice to boost Mickey Mouses fading popularity. As production costs began to mount, they decided to include it as part of a feature film set to classical music. This became the classic Disney film, Fantasia.-u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Walt Disney was once filmed physically performing the role of Mickey Mouse as a reference for the animators of a 1930s short. Sadly, no known copies of the footage exists.-u/-Paraprax-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There is a Mickey Mouse-shaped solar farm at Disney World, Florida.-u/footyDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194916.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Mickey Mouse once broke up with Minnie and made multiple suicide attempts.-u/quivorian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Hitler admired Disney cartoons. He was delighted when Joseph Goebbels gifted him eighteen Mickey Mouse films as a Christmas present in 1937.-u/chillmaticx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The reason Mickey Mouse wears gloves is so that his hands can be seen when theyre in front of his body.-u/gerryhanes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194919.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Odd Finds and Strange Things People Stumbled Across </a><br>
+
+<span style="font-size:4em">1. “A scorpion I just happened to find in my bra before putting it on”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “This hole I accidentally made with a laser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “At the Muse concert last night when suddenly...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My dog thinks he’s a lap dog and crushed my poor colleague.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Took a pic of my cat. She’s blinking, and her reflection is not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “This is what you see when you turn your porch light on in Arkansas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “My onion has non-concentric rings and looks like a cabbage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My light bulb burnt out in an interesting way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My new shoes apparently show dirt on the sole in a foot-bone pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “This carrot baby won’t let go of its momma.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Come on, were going for a ride. I would pay good money to take a trip in this whip. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I left my artichoke out of the fridge and it bloomed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “The pattern on this blanket doesn’t show up on an infrared camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My sister works at a driving school. She sent me this picture from her desk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Found out today that my great-uncle is dog walking buddies with Stephen King.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “A sea lion I saw napping on a bench.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “His name is Meevin and he’s got horn-like ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Mose on a trampoline. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A rock that looks like a heart. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Cookie Monster, is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “I was told I look like a Mexican Michael Scott.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “There’s a family of foxes living under my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. He looks pretty comfortable up there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195858.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">The Dankest of Memes For Your Laughing Needs </a><br>
 
 <span style="font-size:4em">1. So this is what my pizza rolls see at 3:20 in the morning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194058.png" style="width:100%"><br>
 
@@ -615,109 +803,7 @@ Last updated: 06/22/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">25 Make-A-Wish Employees Reveal The Craziest Wishes They Granted Kids</a><br>
-
-<span style="font-size:4em">1. “I shot an internal promotional video for Make a Wish once. I got to read through a big book of wishes they had granted. Some of them were so extravagant and amazing. Family vacations, celebrity meetings. And then I saw a 3 year old who wished for a banana split for breakfast. And thats what they gave him. No one was like ayo. Wish higher. - josiemarcellino </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “I helped host a visit to a planetarium by a kid whose wish was to go to the moon. The front office folks thought I could just give her a personal tour of the planetarium and show her some nice high-resolution visuals, but I thought she deserved better than that. I commissioned a jeweler friend and meteorite enthusiast to make a silver crescent moon necklace, which he graciously donated to the cause, and I donated a small lunar meteorite from my own collection. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-It was a gorgeous necklace very much to the credit of my friends artistry and generosity. We couldnt take her to the moon so we gave it to her instead. She was thrilled, but later said her real highlight of the trip was the astronaut ice cream. Ah, kids.” - aluminum26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My daughter was a Make A Wish kid. She asked to go to Australia to meet the Wiggles. Unfortunately, she wasnt able to travel that far (we live in the US) health-wise. She made a second wish, to meet Captain America. We never told Cap that he was a backup wish after the Wiggles were a no-go. LOL” - Allyson244</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “When my sister was 5 and I was 8, she had cancer and had the opportunity to make a wish. When our mom and the make-a-wish person sat down with her, they told her she could wish for whatever she wanted. She just kept saying she wanted macaroni. They kept saying but it can be anything you want!, yet she simply wanted macaroni and cheese. After some strong encouragement to think bigger, and the make-a-wish person suggesting Disneyland, she chose to go to Disneyland.” - tinbasher97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My friend, I’m 14 and my good buddy had ALL leukemia. He asked for a ride in a fighter jet and he somehow got it! I was surprised because the doctors would say how his bones were getting fragile and weaker and I guess I thought the G force of the jet would hurt him but he was fine and had a blast. He’s doing better now and is scheduled out in about 3 months :)” - IronNuggetsYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “I was granted a wish after beating brain cancer in 2015. They flew my mum and I out to the capital city of our state and we stayed in the flashiest, most expensive hotel suite with all the bells and whistles. We got free dinner, drinks, and dessert on arrival, and got to chill in the VIP lounge while we were waiting for our room. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-Our room was decorated with teddy bears and chocolates and MAW decorations. The next day we were chauffeured to the local mall in a limo and I went on an eleven hour shopping spree with a pre-loaded VISA card and bought every solitary thing you would imagine a 16 year old girl wanting. I ended up having to buy another suitcase to take everything home with me but it was the most epic 3 days of my life. I’ll never forget it.” - lizzierose456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “A friend of mine is a K9 police officer. He helped Make-A-Wish grants a wish to a set of twins with the deadliest form of Cystic Fibrosis. Most of the time kids with CF aren’t allowed to be around others with it because of cross-infecting bacteria. Them being twins shortens their life expectancy even more. Well, these 10-year-old boys wanted to meet a police dog. My friend and some of his buddies upped the wish and during their meeting of his dog they got called to help solve three “crimes” in their town. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
- They pulled over a high jacker, found and arrested a robber and helped find a “missing” six-year old (my friend’s nephew). The town police department gave them certificates and honorary police badges for their work. Around 200 people showed up to where they got their awards to cheer them on. At their eleventh birthday they gave my friend a plaque they made with their dad thanking him for the best day ever.” - hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “To be a “merman” (a boy mermaid). He got a tail and swam in the giant tank with other mermaids at the aquarium.” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “To play football with “the red team” (no pro or college preference - just had to be red). USC made it happen. https://vimeo.com/40635685 “ - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “To be a “cool kid”: Got a limo ride to the mall.. red carpet entrance with cheering fans signed autographs, a shopping spree for clothes. 5 years old- So cute- and very “cool”. https://youtu.be/GenVMbnFvLQ” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “To be Robin (not Batman.. he said he wasn’t ready for that). Went on an epic adventure fighting crime with Batman.” https://vimeo.com/77458547 - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I was a chef at a fancy steakhouse in Jacksonville Florida, one day my proprietor came To me and said this is Stacy the new girl she’ll be training with you, I look over and it’s this adorable little girl in a bright pink chef coat. I babysat my little cousins at the time So I was actually pretty used to entertaining 10-year-old girls at the time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-So I showed her the ropes, we made all kinds of stuff, that were on the surface kind of random, candied bacon, cornbread, prosciutto-wrapped Boursin cheese-stuffed asparagus, a sweet tea brined pork chop, a sorel garnish salad type thing and some other Cool garnishes. We were having fun, I then made a purée out of the cornbread and let her plate up the dish a few different ways to show how you can play with ingredients and height to showcase different parts of the dish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-She had a blast. It was only at the end when the father came up to me In tears that I realized what was goin on. In the moment I was a little upset because nobody told me. But I realized after it was for the best. I probably would not have been as bright and vibrant with the “lessons” had I of known. But it was a fulfilling experience for sure. I hope there family is doing well. Side note( I have re-worked and re-ran the dish as a special a few times in memory of that day, it was that impactful)” - jayblaze521</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I worked at a hospice and we had a wishing program. One of our patients, 24 year old with brain cancer, wanted to hold a sloth. Apparently, sloths are very nervous creatures, so its a little tricky to actually hold one. I found a local company that does visits to schools and whatnot who had a sloth. Sloths only poop about once a week and the sloth could only travel the day after he pooped (because they get nervous, any longer than that and the sloth has stress diarrhea). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-So basically, we had to wait until the sloth pooped and then set up the visit for the next day. The sloth pooped on Thanksgiving, so we set up the visit for the next morning. The patient was able to hold and pet a very sweet sloth. The patient died about three weeks later, and I am very happy I was able to help give her some joy in her final weeks.” - ByteAboutTown</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I worked at a LEGO retail store in the 2000s and Make-A-Wish approached us for a child with terminal Osteosarcoma who wanted to be in the store for a day. LEGO, unfortunately, denied the request (which surprised myself and the rest of the staff because LEGO was a pretty great company). Staff decided to honor the request ourselves. We closed the store early on a Sunday, then invited the kid and family in. He had a full run of the store, we collectively paid for like $1000 worth of toys for him to take home, and just spent the entire evening building w/e he wanted. He died a few months later </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “There was a Make-a-Wish kid in a class I taught once and their wish was to tour a pickle factory. Pickles were their all-time favorite food and they wanted to see how the sausage was made so to speak. Apparently, Vlasic rose to the occasion in a major way and she had the time of her life.” - ligamentary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I was approached by a similar organization who wanted to arrange a day for a kid to shadow a veterinarian. I’m just a small animal veterinarian with a small hospital so I found it odd that I’d be approached. I said yes (who tf would say no?) and we picked a day and had our regular patients in the hospital and the kid got to watch us do our thing for a day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-We gave him a lab coat and a stethoscope and let him tag along and see x-rays and ultrasounds and watch surgeries. I brought my dog in so he could try the ultrasound on her. He seemed to enjoy it. It wasn’t a terribly strange request really, it just seems like my day-to-day isn’t something anyone would consider their dream experience.” - TankVet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “In wizard 101 there’s a quest with an NPC named Brandon, named after a make a wish kid who played the game, and his request was to design a side quest for the game. You meet Brandon and go help him clear out this dungeon with 2 really fucking hard bosses, was a lotta fun. At the end U get a gem you can socket that lets you summon Brandon into battle as a follower, pretty cool. Not sure what ended up happening to Brandon, but it’s really cool that thousands of ppl have gotten to enjoy being a part of his wish tbh” - Arkneryyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “My cousin was a Make a Wish kid. He loved golf, like had a scholarship to go play college, he loved it so much. He got to meet and play a round of golf with Payne Stewart. Unfortunately, he died not too long after that. F**k cancer.” - crochetawayhpff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191603.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">15 People Who Had Some Epic Fails</a><br>
-
-<span style="font-size:4em">1. “My friend should probably invest in sunscreen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “One of my mozzarella sticks tonight”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My fiancée wanted to be nice and make some ribs. Turns out Pyrex can shatter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I ordered a plain burger with cheese. I got a plain burger. With cheese.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “The weather was nice outside yesterday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “My graduation photo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Just a little bit more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “2 pizzas I bought to bake in my hotel that has no oven.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Late night flight canceled. The airline was unable to put us in a hotel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197099.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My pillow in my €120 a night hotel”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My hot oil burn from earlier today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Sun through the skylight is a direct hit to the record player.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I guess they won’t be driving anywhere anytime soon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My sister got me a new book for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I was looking forward to moving to the empty window seat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197105.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">People of Walmart Who Ran Out of F**ks to Give</a><br>
+## <a href="#linky16" id="linky15">People of Walmart Who Ran Out of F**ks to Give</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196169.jpg" style="width:100%"><br>
 
@@ -763,87 +849,83 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">23 Dank Memes Found Underneath the Floorboards </a><br>
+## <a href="#linky17" id="linky16">People Asked to be Roasted, and Got Burned to a Crisp</a><br>
 
-<span style="font-size:4em">1. Come on, do something. Youre not trying hard enough. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195414.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Heartbroken musician, make me cry.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123527/87196518/roast3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195415.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Do your roast. I’m sure this will be easy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123632/87196531/roast15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I love lamp. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195416.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Metalhead trash looking for a laugh. Do your worst.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123546/87196520/roast-13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195417.png" style="width:100%"><br>
+<span style="font-size:4em">4. Scrap yard worker. Lets see what happens.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123550/87196521/roast4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Life imitates art, it always has. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195418.png" style="width:100%"><br>
+<span style="font-size:4em">5. A lot to work with. Im always down for a good laugh, so have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123555/87196522/roast5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195419.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I have a Masters in Civil Engineering but am still unemployed. Recently got dumped after a 6 year relationship. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123558/87196523/roast6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195421.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Tell me something I haven’t heard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123605/87196524/roast7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. What if we called them desktops, oh wait thats already a thing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195422.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Got a man, a car, a house, and a sick body. Make me sob.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123607/87196525/roast8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195412.png" style="width:100%"><br>
+<span style="font-size:4em">9. Lost soul. Just love being roasted tbh. F me up bruh.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123610/87196526/roast9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195423.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. You guys suck, my mom said.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123622/87196529/roast12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195424.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Roast my friend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123515/87196517/roast2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195425.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Currently coping with the feeling of loss and regret in regards to a woman, yet illusorily optimistic in adapting a hedonist lifestyle and fulfilling my artistic passion of becoming a film director. Despair is compensated by countless films and literature of which I have lost count. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123539/87196519/roast1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Gotta have a little bit of flair. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195426.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My gf gave me brand new makeup. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123617/87196527/roast10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195427.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Roast me if you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123619/87196528/roast11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. You know hes got a pretty good point here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195430.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. This is not the sign we were hoping for. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195432.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195433.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87195435.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. My life is a mess and I am a disaster. Let me have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123630/87196530/roast14.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">15 Trends People Will Regret in the Next Ten Years</a><br>
+## <a href="#linky18" id="linky17">20 Movies That Best Predict The Future Of Mankind</a><br>
 
-<span style="font-size:4em">1. “Posting way too much Information or pictures of your toddlers and children on social media. It will stay on the internet forever and some of the posts will be very embarrassing later on. It isnt like the kid really understands or consents to have their pics posted to social media.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/101608/87196451/trendsreplace.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Her. Surprisingly mundane; different but not spectacular; exciting new AI tech seems poised to make life incredible, but as it gains more intelligence it loses interest in us completely and disappears to do its own thing.” - NotABonobo 
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “posting about almost every aspect of your life on social media. I posted some pretty cringe stuff as a kid that is still floating around somewhere, and that was before social media became big. I cant imagine what its going to be like now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195051.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Don’t look up. Maybe not with an actual meteor, but this is how we will probably actually respond to a major threat to humanity.” - Dutch_Fudge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Ape nfts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195059.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Not a movie but a show. Black Mirror is really convincingly creepy. More than a handful of the episodes have had a we only need the technology but once we have it, this is what is going to happen, and we arent far off on the tech now vibe.” - Ginger_Chick</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Ignoring criminal acts by politicians.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195058.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Somewhere between Black Mirror and Gattaca. Right now it is a trend to foresee the “end of the world” or r/collapse of civilization but imo that probably isn’t going to happen. Its just the modern day version of Y2K/flying cars in the year 2000. the real future is going to be more like a slow/mundane decay, with some hard ethical questions” - False-Wolverine-7457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I think people are just starting to regret naming their kids Danerys and Sansa.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195053.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Which is why it was my favorite of the Best Picture nominees (until I saw Drive My Car). The it shouldve been more subtle/funny people piss me off. ITS A MOVIE ABOUT HOW HUMANITY IS DESTROYING ITSELF ASSHOLES!! THATS NOT A MESSAGE THAT NEEDS TO BE SUBTLE OR FUNNY.” - MuNansen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Facebook has explicitly encouraged its users to break down privacy barriers between different aspects of their life, e.g. work, school, and family. This is not a theoretical effect but an intentional one; Zuck has explicitly said that in his view, people who maintain boundaries between different parts of their life lack integrity and that its Facebooks goal to promote integrity in this specific sense. This is deeply dysfunctional.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195054.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Planet of the Apes, dont worry about why, just keep letting those researches from Pfizer test the brain enhancement drugs on large apes, nothing to worry about and nothing that has already gone wrong. Definitely no super-intelligent apes preparing a mass enlightenment of animal kind and world war + enslavement of humans” - pdxblazer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Quirky misspelling of names.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195055.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Anyone remember Stephen Kings The Stand? How about 1 nation going for germ warfare on another, but they have the only cure. Once everyones dead, that first nation waltzes in and takes control.” - willc453</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Too much plastic surgery, fillers and Botox on young people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195056.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “I think about both Idiocracy and Wall-E every single time I go to Walmart..” - TimesThreeTheHighest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195031.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Those eyebrows. Holy crap, there’s no way people wont regret those weird eyebrows.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195057.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Terry Gilliams Brazil is probably the most accurate Dystopian film when compared to current times.” - Oopeeyay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “The destruction of public education (squeezing and outright sabotage of public schools, prohibitive costs for secondary education). The normalization of being undereducated, either through apathy or because of forces outside your control. The idea that opinion is equal to fact and that sticking to your original viewpoint is heroic. Yeah, your studies may say that, but this is how I FEEL about it and similar arguments. The reason we are no longer a minor species of omnivorous hunter-gatherers is our ability to pass along knowledge to others. Each generation building on the achievements of prior generations is the path to progress in health, quality of life, equality, production and so much more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195060.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Minority Report. But instead of 3 people, its simply an algorithm.” - Soyoulikedonutseh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Mommy bloggers who post constant pics and details of their children. Robbing children of privacy for likes and money is sickening. Don’t even get me started on ones with sick kids…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195052.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “The Expanse. Until we find out exactly whats on Pheobe its a possibility” - StewofPuppies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Some body modification trends. People in my age group are already regretting some of what they did to themselves in their early 20s. I cant imagine that this generation will fare any better.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195062.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “The little mermaid. The sea levels do be rising” - Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Letting companies freely track our online behaviors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195063.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Not really a movie, but 1984. Were quite literally living in it. Government blatantly spying on us, a constant blast of entertainment to distract the masses, mass surveillance on a global scale, etc. Its like governments and corporations used the book as a fucking instruction guide than anything else.” - Faithless195</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Cruel pranks on strangers for views.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195064.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Simpsons Movie.” - GenoSnas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “$1200 sneakers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195065.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Yes. Interstellar. Just the life on Earth part, not the escaping Earth part.” - Tider99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Little bit of Fahrenheit 451, dash of equilibrium and a sprinkle of Back to the Future 2” - b0r3dw0rk3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “The Day After - 1980s nuclear holocaust film” - Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Blade runner with even more sex replicants. City is kind of dirty but the noodles look good.” - mxxiestorc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Mad Max: Fury Road gets a lot of elements of what I see happening over the next 50 years right. Water scarcity and desertification is upon us already.” - makingclaims</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “The Fifth Element! I love that movie, I think the vibrancy and capitalist expanse fits our current trajectory quite well. Advertisements and junk food everywhere all the time, bright neon and funky fashion, it’s all going to happen!” - candycrunch1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87195049.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
