@@ -1,173 +1,101 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/22/2022-18:47:18
+Last updated: 06/22/2022-19:47:18
 <br>
-## <a href="#linky2" id="linky1">50 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky2" id="linky1">30 Historical Photos Brought To Life With Color</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192839.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. New York, Dock Stevedore At The Fulton Fish Market Holding Giant Lobster Claws,1943 May-June.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192840.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Portrait Of John Smith, Also Known As The White Wolf, Elderly Native American Chippewa Of Cass Lake, Minnesota, In Traditional Dress, 1914. (Probably Born Between 1822 And 1826, Although Presumably As Early As 1784; Died In February 6, 1922)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192841.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A Funny Photograph Of The First World War, German Soldier In The Snow With Only A Helmet, Boots And A Tank Top With A Cat On His Head. 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192842.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Mailman N. Sorenson Poses With His Heavy Load Of Christmas Mail And Parcels, Chicago, 1929</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192843.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The O’halloran Sisters — Armed With Poles And Boiling Water, They Fended Off The Officers Evicting Their Family During The Irish Land War, In The Year 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192844.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Two American Soldiers Proudly Show Off Their Personalized Easter Eggs (155mm Artillery Shells) Made Especially For Adolf Hitler, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192845.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The Cutter Sisters | Alfred Cheney Johnson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192846.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Ukrainian Bride In Traditional Folk Costume, In The Year 1875</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192847.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Photo Of Charlie Chaplin As A Young Man Without Makeup On In Circa, 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192848.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Monumental Love Story Of Richard And Mildred Loving LED To The Historic Supreme Court Case Sweeping Away The Latest Segregation Laws In America.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192849.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Samson Beaver, His Wife Leah, And Their Daughter Frances Louise, In Canada In The Year 1907</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192850.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Elvis Presley And His Parents, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192851.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Vincent Van Gogh At The Age Of 19, 1872.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192852.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “The Blanket Weaver” - A Navajo Woman Weaving Under A Cottonwood Tree In Canyon De Chelly, Arizona. Photographed By Edward S. Curtis In Ca. 1905</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192853.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Boxing Aboard The U.s.s. New York In The Year 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192854.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Amelia Earhart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192855.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Benito Mussolini Is Arrested, 1915</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192856.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Joseph Stalin, Franklin D. Roosevelt And Winston Churchill, During The First Big Three Conference, November 1943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192857.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Sophie Scholl, Founder Of The White Rose Student Resistance Group During The Nazi Regime, Arrested For Distributing Anti-Nazi Leaflets With Her Brother, Executed By Guillotine At Age 22 For High Treason. She Wouldve Been 100 This Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192859.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Hakone, Japan, A Tree-Lined Avenue Ending In A Flight Of Stairs To A Temple, Photographed By Felice Beato In Ca. 1868</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192860.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. The Peaky Blinders Were A Criminal Gang Active In Birmingham In The 19th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192861.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Phone In The Trench, 1915, Ww1, 4th Battery Of The 10th Artillery Brigade Of The Western Front, Imperial Russian Army</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192862.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Frida Kahlo Keeps A Sugar Skull, 1951.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192863.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Serbian-American Inventor Nikola Tesla, Probably In His New York Laboratory In The 1890s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192864.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Halloween In The Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192865.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Sorrento, On The Amalfian Coast, Italy In The Year 1888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192866.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Stan Lee, Head Of Marvel Comics, Shown In His Offices At 575 Madison Ave., NYC. 1/3/1980.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192867.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Group Of Women With Their Automobile Outside The White House, In The Year 1922</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192868.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. During The First World War, Ernest Hemingway Volunteered To Serve In Italy As An Ambulance Driver With The American Red Cross.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192888.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. The Bin Ladens In Sweden, 1971</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197186.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 Make-A-Wish Employees Reveal The Craziest Wishes They Granted Kids</a><br>
+## <a href="#linky3" id="linky2">People Asked to be Roasted, and Got Burned to a Crisp</a><br>
 
-<span style="font-size:4em">1. “I shot an internal promotional video for Make a Wish once. I got to read through a big book of wishes they had granted. Some of them were so extravagant and amazing. Family vacations, celebrity meetings. And then I saw a 3 year old who wished for a banana split for breakfast. And thats what they gave him. No one was like ayo. Wish higher. - josiemarcellino </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191579.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Heartbroken musician, make me cry.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123527/87196518/roast3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “I helped host a visit to a planetarium by a kid whose wish was to go to the moon. The front office folks thought I could just give her a personal tour of the planetarium and show her some nice high-resolution visuals, but I thought she deserved better than that. I commissioned a jeweler friend and meteorite enthusiast to make a silver crescent moon necklace, which he graciously donated to the cause, and I donated a small lunar meteorite from my own collection. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191580.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Do your roast. I’m sure this will be easy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123632/87196531/roast15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-It was a gorgeous necklace very much to the credit of my friends artistry and generosity. We couldnt take her to the moon so we gave it to her instead. She was thrilled, but later said her real highlight of the trip was the astronaut ice cream. Ah, kids.” - aluminum26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191581.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Metalhead trash looking for a laugh. Do your worst.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123546/87196520/roast-13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “My daughter was a Make A Wish kid. She asked to go to Australia to meet the Wiggles. Unfortunately, she wasnt able to travel that far (we live in the US) health-wise. She made a second wish, to meet Captain America. We never told Cap that he was a backup wish after the Wiggles were a no-go. LOL” - Allyson244</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191582.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Scrap yard worker. Lets see what happens.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123550/87196521/roast4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “When my sister was 5 and I was 8, she had cancer and had the opportunity to make a wish. When our mom and the make-a-wish person sat down with her, they told her she could wish for whatever she wanted. She just kept saying she wanted macaroni. They kept saying but it can be anything you want!, yet she simply wanted macaroni and cheese. After some strong encouragement to think bigger, and the make-a-wish person suggesting Disneyland, she chose to go to Disneyland.” - tinbasher97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191583.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A lot to work with. Im always down for a good laugh, so have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123555/87196522/roast5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “My friend, I’m 14 and my good buddy had ALL leukemia. He asked for a ride in a fighter jet and he somehow got it! I was surprised because the doctors would say how his bones were getting fragile and weaker and I guess I thought the G force of the jet would hurt him but he was fine and had a blast. He’s doing better now and is scheduled out in about 3 months :)” - IronNuggetsYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191584.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I have a Masters in Civil Engineering but am still unemployed. Recently got dumped after a 6 year relationship. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123558/87196523/roast6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I was granted a wish after beating brain cancer in 2015. They flew my mum and I out to the capital city of our state and we stayed in the flashiest, most expensive hotel suite with all the bells and whistles. We got free dinner, drinks, and dessert on arrival, and got to chill in the VIP lounge while we were waiting for our room. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191585.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Tell me something I haven’t heard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123605/87196524/roast7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-Our room was decorated with teddy bears and chocolates and MAW decorations. The next day we were chauffeured to the local mall in a limo and I went on an eleven hour shopping spree with a pre-loaded VISA card and bought every solitary thing you would imagine a 16 year old girl wanting. I ended up having to buy another suitcase to take everything home with me but it was the most epic 3 days of my life. I’ll never forget it.” - lizzierose456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191586.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Got a man, a car, a house, and a sick body. Make me sob.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123607/87196525/roast8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “A friend of mine is a K9 police officer. He helped Make-A-Wish grants a wish to a set of twins with the deadliest form of Cystic Fibrosis. Most of the time kids with CF aren’t allowed to be around others with it because of cross-infecting bacteria. Them being twins shortens their life expectancy even more. Well, these 10-year-old boys wanted to meet a police dog. My friend and some of his buddies upped the wish and during their meeting of his dog they got called to help solve three “crimes” in their town. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191587.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Lost soul. Just love being roasted tbh. F me up bruh.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123610/87196526/roast9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
- They pulled over a high jacker, found and arrested a robber and helped find a “missing” six-year old (my friend’s nephew). The town police department gave them certificates and honorary police badges for their work. Around 200 people showed up to where they got their awards to cheer them on. At their eleventh birthday they gave my friend a plaque they made with their dad thanking him for the best day ever.” - hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191588.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. You guys suck, my mom said.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123622/87196529/roast12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “To be a “merman” (a boy mermaid). He got a tail and swam in the giant tank with other mermaids at the aquarium.” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191589.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Roast my friend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123515/87196517/roast2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “To play football with “the red team” (no pro or college preference - just had to be red). USC made it happen. https://vimeo.com/40635685 “ - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191590.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Currently coping with the feeling of loss and regret in regards to a woman, yet illusorily optimistic in adapting a hedonist lifestyle and fulfilling my artistic passion of becoming a film director. Despair is compensated by countless films and literature of which I have lost count. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123539/87196519/roast1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “To be a “cool kid”: Got a limo ride to the mall.. red carpet entrance with cheering fans signed autographs, a shopping spree for clothes. 5 years old- So cute- and very “cool”. https://youtu.be/GenVMbnFvLQ” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191591.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My gf gave me brand new makeup. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123617/87196527/roast10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “To be Robin (not Batman.. he said he wasn’t ready for that). Went on an epic adventure fighting crime with Batman.” https://vimeo.com/77458547 - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191592.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Roast me if you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123619/87196528/roast11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I was a chef at a fancy steakhouse in Jacksonville Florida, one day my proprietor came To me and said this is Stacy the new girl she’ll be training with you, I look over and it’s this adorable little girl in a bright pink chef coat. I babysat my little cousins at the time So I was actually pretty used to entertaining 10-year-old girls at the time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-So I showed her the ropes, we made all kinds of stuff, that were on the surface kind of random, candied bacon, cornbread, prosciutto-wrapped Boursin cheese-stuffed asparagus, a sweet tea brined pork chop, a sorel garnish salad type thing and some other Cool garnishes. We were having fun, I then made a purée out of the cornbread and let her plate up the dish a few different ways to show how you can play with ingredients and height to showcase different parts of the dish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-She had a blast. It was only at the end when the father came up to me In tears that I realized what was goin on. In the moment I was a little upset because nobody told me. But I realized after it was for the best. I probably would not have been as bright and vibrant with the “lessons” had I of known. But it was a fulfilling experience for sure. I hope there family is doing well. Side note( I have re-worked and re-ran the dish as a special a few times in memory of that day, it was that impactful)” - jayblaze521</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I worked at a hospice and we had a wishing program. One of our patients, 24 year old with brain cancer, wanted to hold a sloth. Apparently, sloths are very nervous creatures, so its a little tricky to actually hold one. I found a local company that does visits to schools and whatnot who had a sloth. Sloths only poop about once a week and the sloth could only travel the day after he pooped (because they get nervous, any longer than that and the sloth has stress diarrhea). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-So basically, we had to wait until the sloth pooped and then set up the visit for the next day. The sloth pooped on Thanksgiving, so we set up the visit for the next morning. The patient was able to hold and pet a very sweet sloth. The patient died about three weeks later, and I am very happy I was able to help give her some joy in her final weeks.” - ByteAboutTown</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I worked at a LEGO retail store in the 2000s and Make-A-Wish approached us for a child with terminal Osteosarcoma who wanted to be in the store for a day. LEGO, unfortunately, denied the request (which surprised myself and the rest of the staff because LEGO was a pretty great company). Staff decided to honor the request ourselves. We closed the store early on a Sunday, then invited the kid and family in. He had a full run of the store, we collectively paid for like $1000 worth of toys for him to take home, and just spent the entire evening building w/e he wanted. He died a few months later </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “There was a Make-a-Wish kid in a class I taught once and their wish was to tour a pickle factory. Pickles were their all-time favorite food and they wanted to see how the sausage was made so to speak. Apparently, Vlasic rose to the occasion in a major way and she had the time of her life.” - ligamentary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I was approached by a similar organization who wanted to arrange a day for a kid to shadow a veterinarian. I’m just a small animal veterinarian with a small hospital so I found it odd that I’d be approached. I said yes (who tf would say no?) and we picked a day and had our regular patients in the hospital and the kid got to watch us do our thing for a day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-We gave him a lab coat and a stethoscope and let him tag along and see x-rays and ultrasounds and watch surgeries. I brought my dog in so he could try the ultrasound on her. He seemed to enjoy it. It wasn’t a terribly strange request really, it just seems like my day-to-day isn’t something anyone would consider their dream experience.” - TankVet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “In wizard 101 there’s a quest with an NPC named Brandon, named after a make a wish kid who played the game, and his request was to design a side quest for the game. You meet Brandon and go help him clear out this dungeon with 2 really fucking hard bosses, was a lotta fun. At the end U get a gem you can socket that lets you summon Brandon into battle as a follower, pretty cool. Not sure what ended up happening to Brandon, but it’s really cool that thousands of ppl have gotten to enjoy being a part of his wish tbh” - Arkneryyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “My cousin was a Make a Wish kid. He loved golf, like had a scholarship to go play college, he loved it so much. He got to meet and play a round of golf with Payne Stewart. Unfortunately, he died not too long after that. F**k cancer.” - crochetawayhpff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191603.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. My life is a mess and I am a disaster. Let me have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123630/87196530/roast14.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -277,137 +205,51 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Odd Finds and Strange Things People Stumbled Across </a><br>
+## <a href="#linky6" id="linky5">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
 
-<span style="font-size:4em">1. “A scorpion I just happened to find in my bra before putting it on”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195847.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I asked for a raise.” - Flounder_guppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191557.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “This hole I accidentally made with a laser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195841.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Never pay full price for anything unless I absolutely have to.” - ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191558.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “At the Muse concert last night when suddenly...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195836.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Cancelled cable TV.” - MR_Butt-Licker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191559.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “My dog thinks he’s a lap dog and crushed my poor colleague.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195828.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “I talked to the owners of the MMA gym I’ve trained at for 11 years, and they cut my monthly membership fee by 30% in exchange for occasionally leading classes as a substitute.” - drunkn_mastr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191560.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Took a pic of my cat. She’s blinking, and her reflection is not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195829.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I buy meth instead of gas so I can just run to work.” - MasterFicus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191561.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195830.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Been shaving my head at home because barbershop prices have gone up so much since the pandemic.” - Hrekires</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191562.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “This is what you see when you turn your porch light on in Arkansas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195831.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “I moved in with my mom because there’s literally no where to cut down.” - Same-Entertainer8038</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191565.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “My onion has non-concentric rings and looks like a cabbage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195832.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “No branded food items (especially cereal, sauces and tins.) No take out or eating out - this includes buying drinks etc, take a bottle/thermos.” - Jebbo87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191563.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My light bulb burnt out in an interesting way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195853.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Eating less meat and more vegetarian meals. Unsubscribed from Disney plus and Amazon, started growing my own green onions and other herbs, and I cut my own hair now.” - Crazylivykid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191564.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “My new shoes apparently show dirt on the sole in a foot-bone pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195833.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Road trips for one. Im driving to the necessary places only. Ive been hunting for most of the meat and wouldnt be above getting a road kill tag either and eating that. Planting vegetables, buying fruit bearing trees although they will take a while.” - nsmith0723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191566.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “This carrot baby won’t let go of its momma.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195834.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “If you’re trying to lose weight, consider buying less food to save money. I’ve already lost 9 lbs by eating less calories and going on walks.” - Burrito_Loyalist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191567.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195835.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Bought a bike instead of buying gas for my car. Glad my work isnt that far from where I live. Now I can never skip leg day.” - Densetsu___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191568.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Come on, were going for a ride. I would pay good money to take a trip in this whip. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195837.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “I quit drinking and smoking.” - Qfn4g02016</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191569.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I left my artichoke out of the fridge and it bloomed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195838.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I found r/MealPrepSunday and I only cook once a week. I have healthy, tasty homemade meals ready to go every week. It has significantly improved my quality of life.” - Nudiusterian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191570.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “The pattern on this blanket doesn’t show up on an infrared camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195839.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Not buying a new car. One I have is all paid off and it works, so...why go spending?” - AgoraiosBum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191571.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “My sister works at a driving school. She sent me this picture from her desk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195840.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “I got a flatmate. Id been living in my own place for six years. The transition hasnt been easy, learning to share common space again, well, sucks.” - Evolves_Rapidly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191572.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Found out today that my great-uncle is dog walking buddies with Stephen King.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195842.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “I cut out my daily 7 dollar coffees and Im not going to do fabric softener. Detergent will make it smell good enough, fabric softener is just pizzazz. Im trying to do more generic brands for now too. Also trying to keep my gas tank above 3/4 cause paying 20 to top it off is better than 60 to fill all the way.” - AnnieBanannie1004</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191573.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “A sea lion I saw napping on a bench.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195843.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “I got rid of all my subscriptions. Netflix, Amazon, Sirius, Doordash etc. There are ways of entertaining myself without. Like countless hours on Reddit.” - TeazeUrMind </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191556.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “His name is Meevin and he’s got horn-like ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195844.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Got rid of my car. - IDoNotFuckDogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191574.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Mose on a trampoline. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A rock that looks like a heart. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Cookie Monster, is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “I was told I look like a Mexican Michael Scott.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “There’s a family of foxes living under my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. He looks pretty comfortable up there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195858.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Working more. Switched to only buying family packs of TimTams and only if theyre on special.” - VagrancyHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191575.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">30 Toilets That Are Oddly Terrifying</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124219/87196534/doll.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124224/87196535/clock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124235/87196537/carpet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124241/87196538/eye.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124247/87196539/drunk.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124252/87196540/full.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124230/87196536/door.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124303/87196542/grill.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124309/87196543/hall.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124315/87196544/hang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124320/87196545/grate.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124326/87196546/holes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124257/87196541/green.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124331/87196547/lawn.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124336/87196548/lars.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124342/87196549/london.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124347/87196550/light.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124353/87196551/next.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124417/87196555/patrick.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124358/87196552/open.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124406/87196553/paper.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124410/87196554/nope.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124421/87196556/seats.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124429/87196557/stair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124432/87196558/rock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124440/87196559/wet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124443/87196560/stones.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124452/87196561/wicker.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124455/87196562/wtf.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124503/87196563/yikes.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">20 Movie Facts Courtesy of Rotten Tomatoes</a><br>
+## <a href="#linky7" id="linky6">20 Movie Facts Courtesy of Rotten Tomatoes</a><br>
 
 <span style="font-size:4em">1. Ashton Kutcher has never been in a film that was certified fresh on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035009/87196689/ashton.jpg" style="width:100%"><br>
 
@@ -451,7 +293,7 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">46 Choice Pics of Assorted Random Goodness </a><br>
+## <a href="#linky8" id="linky7">46 Choice Pics of Assorted Random Goodness </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196371.jpg" style="width:100%"><br>
 
@@ -547,7 +389,7 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">37 Hump Day Memes to Ease the Struggle</a><br>
+## <a href="#linky9" id="linky8">37 Hump Day Memes to Ease the Struggle</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196776.jpg" style="width:100%"><br>
 
@@ -625,7 +467,7 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">15 People Who Had Some Epic Fails</a><br>
+## <a href="#linky10" id="linky9">15 People Who Had Some Epic Fails</a><br>
 
 <span style="font-size:4em">1. “My friend should probably invest in sunscreen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197091.jpg" style="width:100%"><br>
 
@@ -659,163 +501,303 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">28 Memes to Help You Reign Supreme</a><br>
+## <a href="#linky11" id="linky10">50 Funny Photos To Make Your Work Go Away</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192888.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">People Asked to be Roasted, and Got Burned to a Crisp</a><br>
+## <a href="#linky12" id="linky11">Odd Finds and Strange Things People Stumbled Across </a><br>
 
-<span style="font-size:4em">1. Heartbroken musician, make me cry.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123527/87196518/roast3.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “A scorpion I just happened to find in my bra before putting it on”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Do your roast. I’m sure this will be easy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123632/87196531/roast15.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “This hole I accidentally made with a laser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Metalhead trash looking for a laugh. Do your worst.  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123546/87196520/roast-13.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “At the Muse concert last night when suddenly...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Scrap yard worker. Lets see what happens.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123550/87196521/roast4.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “My dog thinks he’s a lap dog and crushed my poor colleague.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. A lot to work with. Im always down for a good laugh, so have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123555/87196522/roast5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Took a pic of my cat. She’s blinking, and her reflection is not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I have a Masters in Civil Engineering but am still unemployed. Recently got dumped after a 6 year relationship. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123558/87196523/roast6.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Tell me something I haven’t heard.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123605/87196524/roast7.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “This is what you see when you turn your porch light on in Arkansas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Got a man, a car, a house, and a sick body. Make me sob.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123607/87196525/roast8.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “My onion has non-concentric rings and looks like a cabbage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Lost soul. Just love being roasted tbh. F me up bruh.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123610/87196526/roast9.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “My light bulb burnt out in an interesting way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. You guys suck, my mom said.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123622/87196529/roast12.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “My new shoes apparently show dirt on the sole in a foot-bone pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Roast my friend.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123515/87196517/roast2.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “This carrot baby won’t let go of its momma.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Currently coping with the feeling of loss and regret in regards to a woman, yet illusorily optimistic in adapting a hedonist lifestyle and fulfilling my artistic passion of becoming a film director. Despair is compensated by countless films and literature of which I have lost count. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123539/87196519/roast1.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My gf gave me brand new makeup. Do your worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123617/87196527/roast10.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Come on, were going for a ride. I would pay good money to take a trip in this whip. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Roast me if you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123619/87196528/roast11.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I left my artichoke out of the fridge and it bloomed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. My life is a mess and I am a disaster. Let me have it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/123630/87196530/roast14.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “The pattern on this blanket doesn’t show up on an infrared camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My sister works at a driving school. She sent me this picture from her desk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Found out today that my great-uncle is dog walking buddies with Stephen King.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “A sea lion I saw napping on a bench.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “His name is Meevin and he’s got horn-like ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Mose on a trampoline. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A rock that looks like a heart. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Cookie Monster, is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “I was told I look like a Mexican Michael Scott.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “There’s a family of foxes living under my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. He looks pretty comfortable up there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195858.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Savage Memes to Take Your Breath Away</a><br>
+## <a href="#linky13" id="linky12">30 Toilets That Are Oddly Terrifying</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195318.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124219/87196534/doll.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195319.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124224/87196535/clock.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195320.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124235/87196537/carpet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195321.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124241/87196538/eye.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195322.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124247/87196539/drunk.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195323.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124252/87196540/full.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195324.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124230/87196536/door.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195325.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124303/87196542/grill.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195327.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124309/87196543/hall.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195328.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124315/87196544/hang.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195329.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124320/87196545/grate.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195331.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124326/87196546/holes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195332.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124257/87196541/green.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195333.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124331/87196547/lawn.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195334.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124336/87196548/lars.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195335.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124342/87196549/london.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195336.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124347/87196550/light.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195337.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124353/87196551/next.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195338.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124417/87196555/patrick.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195339.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124358/87196552/open.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195340.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124406/87196553/paper.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195341.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124410/87196554/nope.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195342.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124421/87196556/seats.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195343.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124429/87196557/stair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195344.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124432/87196558/rock.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195345.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124440/87196559/wet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195346.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124443/87196560/stones.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195347.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124452/87196561/wicker.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195348.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124455/87196562/wtf.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195349.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124503/87196563/yikes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195350.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">25 Make-A-Wish Employees Reveal The Craziest Wishes They Granted Kids</a><br>
+
+<span style="font-size:4em">1. “I shot an internal promotional video for Make a Wish once. I got to read through a big book of wishes they had granted. Some of them were so extravagant and amazing. Family vacations, celebrity meetings. And then I saw a 3 year old who wished for a banana split for breakfast. And thats what they gave him. No one was like ayo. Wish higher. - josiemarcellino </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I helped host a visit to a planetarium by a kid whose wish was to go to the moon. The front office folks thought I could just give her a personal tour of the planetarium and show her some nice high-resolution visuals, but I thought she deserved better than that. I commissioned a jeweler friend and meteorite enthusiast to make a silver crescent moon necklace, which he graciously donated to the cause, and I donated a small lunar meteorite from my own collection. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+It was a gorgeous necklace very much to the credit of my friends artistry and generosity. We couldnt take her to the moon so we gave it to her instead. She was thrilled, but later said her real highlight of the trip was the astronaut ice cream. Ah, kids.” - aluminum26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My daughter was a Make A Wish kid. She asked to go to Australia to meet the Wiggles. Unfortunately, she wasnt able to travel that far (we live in the US) health-wise. She made a second wish, to meet Captain America. We never told Cap that he was a backup wish after the Wiggles were a no-go. LOL” - Allyson244</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “When my sister was 5 and I was 8, she had cancer and had the opportunity to make a wish. When our mom and the make-a-wish person sat down with her, they told her she could wish for whatever she wanted. She just kept saying she wanted macaroni. They kept saying but it can be anything you want!, yet she simply wanted macaroni and cheese. After some strong encouragement to think bigger, and the make-a-wish person suggesting Disneyland, she chose to go to Disneyland.” - tinbasher97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “My friend, I’m 14 and my good buddy had ALL leukemia. He asked for a ride in a fighter jet and he somehow got it! I was surprised because the doctors would say how his bones were getting fragile and weaker and I guess I thought the G force of the jet would hurt him but he was fine and had a blast. He’s doing better now and is scheduled out in about 3 months :)” - IronNuggetsYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I was granted a wish after beating brain cancer in 2015. They flew my mum and I out to the capital city of our state and we stayed in the flashiest, most expensive hotel suite with all the bells and whistles. We got free dinner, drinks, and dessert on arrival, and got to chill in the VIP lounge while we were waiting for our room. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+Our room was decorated with teddy bears and chocolates and MAW decorations. The next day we were chauffeured to the local mall in a limo and I went on an eleven hour shopping spree with a pre-loaded VISA card and bought every solitary thing you would imagine a 16 year old girl wanting. I ended up having to buy another suitcase to take everything home with me but it was the most epic 3 days of my life. I’ll never forget it.” - lizzierose456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “A friend of mine is a K9 police officer. He helped Make-A-Wish grants a wish to a set of twins with the deadliest form of Cystic Fibrosis. Most of the time kids with CF aren’t allowed to be around others with it because of cross-infecting bacteria. Them being twins shortens their life expectancy even more. Well, these 10-year-old boys wanted to meet a police dog. My friend and some of his buddies upped the wish and during their meeting of his dog they got called to help solve three “crimes” in their town. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+ They pulled over a high jacker, found and arrested a robber and helped find a “missing” six-year old (my friend’s nephew). The town police department gave them certificates and honorary police badges for their work. Around 200 people showed up to where they got their awards to cheer them on. At their eleventh birthday they gave my friend a plaque they made with their dad thanking him for the best day ever.” - hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “To be a “merman” (a boy mermaid). He got a tail and swam in the giant tank with other mermaids at the aquarium.” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “To play football with “the red team” (no pro or college preference - just had to be red). USC made it happen. https://vimeo.com/40635685 “ - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “To be a “cool kid”: Got a limo ride to the mall.. red carpet entrance with cheering fans signed autographs, a shopping spree for clothes. 5 years old- So cute- and very “cool”. https://youtu.be/GenVMbnFvLQ” - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “To be Robin (not Batman.. he said he wasn’t ready for that). Went on an epic adventure fighting crime with Batman.” https://vimeo.com/77458547 - scootercomputes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I was a chef at a fancy steakhouse in Jacksonville Florida, one day my proprietor came To me and said this is Stacy the new girl she’ll be training with you, I look over and it’s this adorable little girl in a bright pink chef coat. I babysat my little cousins at the time So I was actually pretty used to entertaining 10-year-old girls at the time. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+So I showed her the ropes, we made all kinds of stuff, that were on the surface kind of random, candied bacon, cornbread, prosciutto-wrapped Boursin cheese-stuffed asparagus, a sweet tea brined pork chop, a sorel garnish salad type thing and some other Cool garnishes. We were having fun, I then made a purée out of the cornbread and let her plate up the dish a few different ways to show how you can play with ingredients and height to showcase different parts of the dish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+She had a blast. It was only at the end when the father came up to me In tears that I realized what was goin on. In the moment I was a little upset because nobody told me. But I realized after it was for the best. I probably would not have been as bright and vibrant with the “lessons” had I of known. But it was a fulfilling experience for sure. I hope there family is doing well. Side note( I have re-worked and re-ran the dish as a special a few times in memory of that day, it was that impactful)” - jayblaze521</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I worked at a hospice and we had a wishing program. One of our patients, 24 year old with brain cancer, wanted to hold a sloth. Apparently, sloths are very nervous creatures, so its a little tricky to actually hold one. I found a local company that does visits to schools and whatnot who had a sloth. Sloths only poop about once a week and the sloth could only travel the day after he pooped (because they get nervous, any longer than that and the sloth has stress diarrhea). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+So basically, we had to wait until the sloth pooped and then set up the visit for the next day. The sloth pooped on Thanksgiving, so we set up the visit for the next morning. The patient was able to hold and pet a very sweet sloth. The patient died about three weeks later, and I am very happy I was able to help give her some joy in her final weeks.” - ByteAboutTown</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I worked at a LEGO retail store in the 2000s and Make-A-Wish approached us for a child with terminal Osteosarcoma who wanted to be in the store for a day. LEGO, unfortunately, denied the request (which surprised myself and the rest of the staff because LEGO was a pretty great company). Staff decided to honor the request ourselves. We closed the store early on a Sunday, then invited the kid and family in. He had a full run of the store, we collectively paid for like $1000 worth of toys for him to take home, and just spent the entire evening building w/e he wanted. He died a few months later </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “There was a Make-a-Wish kid in a class I taught once and their wish was to tour a pickle factory. Pickles were their all-time favorite food and they wanted to see how the sausage was made so to speak. Apparently, Vlasic rose to the occasion in a major way and she had the time of her life.” - ligamentary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I was approached by a similar organization who wanted to arrange a day for a kid to shadow a veterinarian. I’m just a small animal veterinarian with a small hospital so I found it odd that I’d be approached. I said yes (who tf would say no?) and we picked a day and had our regular patients in the hospital and the kid got to watch us do our thing for a day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+We gave him a lab coat and a stethoscope and let him tag along and see x-rays and ultrasounds and watch surgeries. I brought my dog in so he could try the ultrasound on her. He seemed to enjoy it. It wasn’t a terribly strange request really, it just seems like my day-to-day isn’t something anyone would consider their dream experience.” - TankVet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “In wizard 101 there’s a quest with an NPC named Brandon, named after a make a wish kid who played the game, and his request was to design a side quest for the game. You meet Brandon and go help him clear out this dungeon with 2 really fucking hard bosses, was a lotta fun. At the end U get a gem you can socket that lets you summon Brandon into battle as a follower, pretty cool. Not sure what ended up happening to Brandon, but it’s really cool that thousands of ppl have gotten to enjoy being a part of his wish tbh” - Arkneryyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “My cousin was a Make a Wish kid. He loved golf, like had a scholarship to go play college, he loved it so much. He got to meet and play a round of golf with Payne Stewart. Unfortunately, he died not too long after that. F**k cancer.” - crochetawayhpff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191603.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -883,93 +865,129 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">People of Walmart Who Ran Out of F**ks to Give</a><br>
+## <a href="#linky16" id="linky15">28 Memes to Help You Reign Supreme</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196169.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196658/memes4lyfe3.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196171.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013921/87196659/memes4lyfe1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196172.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013934/87196660/memes4lyfe2.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196173.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013945/87196661/memes4lyfe4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196174.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/013957/87196662/memes4lyfe5.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196175.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014008/87196663/memes4lyfe6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196170.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014020/87196664/memes4lyfe7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196176.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014031/87196665/memes4lyfe9.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196178.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014040/87196666/memes4lyfe8.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196179.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014042/87196667/memes4lyfe10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196180.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014052/87196668/memes4lyfe11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196181.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014053/87196669/memes4lyfe12.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196177.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014103/87196670/memes4lyfe13.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196182.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014105/87196671/memes4lyfe14.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196183.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014114/87196672/memes4lyfe15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196184.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014116/87196673/memes4lyfe16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196185.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014126/87196674/memes4lyfe17.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196186.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014128/87196675/memes4lyfe18.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196187.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014137/87196676/memes4lyfe19.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196188.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014139/87196677/memes4lyfe20.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87196189.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014148/87196678/memes4lyfe21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014151/87196679/memes4lyfe22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014200/87196680/memes4lyfe23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014202/87196681/memes4lyfe24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014211/87196682/memes4lyfe25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014213/87196683/memes4lyfe26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014224/87196684/memes4lyfe27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/014235/87196685/memes4lyfe28.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">Drastic and Absurd Ways People Are Trying to Save Money</a><br>
+## <a href="#linky17" id="linky16">Savage Memes to Take Your Breath Away</a><br>
 
-<span style="font-size:4em">1. “I asked for a raise.” - Flounder_guppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191557.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195318.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Never pay full price for anything unless I absolutely have to.” - ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191558.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195319.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Cancelled cable TV.” - MR_Butt-Licker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191559.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I talked to the owners of the MMA gym I’ve trained at for 11 years, and they cut my monthly membership fee by 30% in exchange for occasionally leading classes as a substitute.” - drunkn_mastr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191560.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I buy meth instead of gas so I can just run to work.” - MasterFicus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191561.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Been shaving my head at home because barbershop prices have gone up so much since the pandemic.” - Hrekires</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191562.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195323.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “I moved in with my mom because there’s literally no where to cut down.” - Same-Entertainer8038</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191565.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195324.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “No branded food items (especially cereal, sauces and tins.) No take out or eating out - this includes buying drinks etc, take a bottle/thermos.” - Jebbo87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191563.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195325.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Eating less meat and more vegetarian meals. Unsubscribed from Disney plus and Amazon, started growing my own green onions and other herbs, and I cut my own hair now.” - Crazylivykid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191564.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Road trips for one. Im driving to the necessary places only. Ive been hunting for most of the meat and wouldnt be above getting a road kill tag either and eating that. Planting vegetables, buying fruit bearing trees although they will take a while.” - nsmith0723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191566.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195328.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “If you’re trying to lose weight, consider buying less food to save money. I’ve already lost 9 lbs by eating less calories and going on walks.” - Burrito_Loyalist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191567.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Bought a bike instead of buying gas for my car. Glad my work isnt that far from where I live. Now I can never skip leg day.” - Densetsu___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191568.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195331.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I quit drinking and smoking.” - Qfn4g02016</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191569.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I found r/MealPrepSunday and I only cook once a week. I have healthy, tasty homemade meals ready to go every week. It has significantly improved my quality of life.” - Nudiusterian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191570.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195333.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Not buying a new car. One I have is all paid off and it works, so...why go spending?” - AgoraiosBum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191571.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195334.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “I got a flatmate. Id been living in my own place for six years. The transition hasnt been easy, learning to share common space again, well, sucks.” - Evolves_Rapidly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191572.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195335.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “I cut out my daily 7 dollar coffees and Im not going to do fabric softener. Detergent will make it smell good enough, fabric softener is just pizzazz. Im trying to do more generic brands for now too. Also trying to keep my gas tank above 3/4 cause paying 20 to top it off is better than 60 to fill all the way.” - AnnieBanannie1004</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191573.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195336.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “I got rid of all my subscriptions. Netflix, Amazon, Sirius, Doordash etc. There are ways of entertaining myself without. Like countless hours on Reddit.” - TeazeUrMind </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191556.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195337.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Got rid of my car. - IDoNotFuckDogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191574.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195338.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Working more. Switched to only buying family packs of TimTams and only if theyre on special.” - VagrancyHD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87191575.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87195350.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
