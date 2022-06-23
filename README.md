@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/23/2022-06:47:18
+Last updated: 06/23/2022-07:47:18
 <br>
 ## <a href="#linky2" id="linky1">40 Fascinating and WTF Statistics We Can't Believe </a><br>
 
@@ -83,51 +83,161 @@ Last updated: 06/23/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Movie Facts Courtesy of Rotten Tomatoes</a><br>
+## <a href="#linky3" id="linky2">Odd Finds and Strange Things People Stumbled Across </a><br>
 
-<span style="font-size:4em">1. Ashton Kutcher has never been in a film that was certified fresh on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035009/87196689/ashton.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “A scorpion I just happened to find in my bra before putting it on”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Screenwriter Blake Snyder, author of Save the Cat: The Last Book on Screenwriting Youll Ever Need has only two writing credits. Blank Check and Stop! Or My Mom Will Shoot. They have 9% and 11% ratings respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035020/87196690/blake.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “This hole I accidentally made with a laser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Bodyguard soundtrack is the 4th best selling album OF ALL TIME. Meanwhile the movie sits at 32% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035032/87196691/body.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “At the Muse concert last night when suddenly...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Movie 43 has a 5% rating after 10 years of production and multiple writers, actors, and directors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035039/87196692/43.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “My dog thinks he’s a lap dog and crushed my poor colleague.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Deep Blue Sea 2 received a 0% rating, while Deep Blue Sea 3 would go onto to grab a score of 71%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035044/87196693/deepblue.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Took a pic of my cat. She’s blinking, and her reflection is not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Final Fantasy: The Spirits Within holds the highest ranking (44%) for any movie based on a video game ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035050/87196694/final.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Christopher Nolans lowest rated movie is The Prestige at 75%. The director has never had a movie rated Rotten.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035125/87196700/nolan.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “This is what you see when you turn your porch light on in Arkansas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Adam Sandlers production company Happy Madison, has never had a film rate higher than 68% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035056/87196695/happy.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “My onion has non-concentric rings and looks like a cabbage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The first film that James Cameron ever directed is titled Piranha 2: The Spawning and holds a 6% rating on the site.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035101/87196696/james.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “My light bulb burnt out in an interesting way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The 1986 film, Rad has the largest discrepancy between audience and critic ratings. 0% critic and 89% audience.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196707/rad.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “My new shoes apparently show dirt on the sole in a foot-bone pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Forrest Gump only received a 71% rating. Blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035112/87196698/gump.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “This carrot baby won’t let go of its momma.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Comcast/NBC Universal own 70% of Rotten Tomatoes with Warner Bros holding the remaining 30%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035118/87196699/NBC.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. John Ratzenberger is the highest rated American actor on the site, basically because hes been featured in nearly every Pixar film.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035129/87196701/johnratz.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Come on, were going for a ride. I would pay good money to take a trip in this whip. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Of all movies, Spy Kids received a 93% rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196706/spy.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I left my artichoke out of the fridge and it bloomed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Michael Bays The Rock starring Nicholas Cage is Bays only film to be certified fresh at 66%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035136/87196702/rock.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “The pattern on this blanket doesn’t show up on an infrared camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Extremely Loud & Incredibly Close is the only best picture nominated film to have a Rotten rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035140/87196703/rotten.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “My sister works at a driving school. She sent me this picture from her desk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Jaws: The Revenge has a 0% rating. While the original Jaws sits at 100%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035107/87196697/jaws.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Found out today that my great-uncle is dog walking buddies with Stephen King.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Samuel L. Jackson has a movie rated 100% (Unforgivable Blackness: The Rise and Fall of Jack Johnson) and a movie rated 0% (Kite.)</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035147/87196704/sam.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “A sea lion I saw napping on a bench.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The hit or miss 9th and final season of Scrubs has a 50% rating, mainly because it was the only season ever ranked.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035152/87196705/scrub.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “His name is Meevin and he’s got horn-like ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The original Toy Story trilogy is the most critically acclaimed trilogy of all time, according to Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035203/87196708/trilogy.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Mose on a trampoline. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A rock that looks like a heart. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Cookie Monster, is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “I was told I look like a Mexican Michael Scott.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “There’s a family of foxes living under my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. He looks pretty comfortable up there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195858.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">37 Hump Day Memes to Ease the Struggle</a><br>
+## <a href="#linky4" id="linky3">25 Insane Facts About Mickey Mouse</a><br>
+
+<span style="font-size:4em">1. By 1932, Mickey Mouse had lost his edge since becoming a role model for children. Disney wanted to create a character to portray more negative character traits, which could no longer be bestowed on Mickey. That’s when Disney started working on a short-tempered character named Donald Duck. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/122912/87196515/0.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> -u/doozersworkhard9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The earliest surviving graphic novel depicting the Holocaust was created in an internment camp in 1942 and starred Mickey Mouse.-u/BardBardia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Because the USA is unlikely to extend its copyright term again, Disney has been extensively using the Steamboat Willie Mickey Mouse in its marketing to keep the character indefinitely protected under trademark law instead.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Warner Bros. allowed Bugs Bunny to appear in Who Framed Roger Rabbit? under the stipulation that he only appear opposite Mickey Mouse, and that the two receive the same amount of screen time. The resulting scene is the only time in film history that the two have shared the screen together.-u/dabams23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Adolf Galland, one of the top-scoring German aces of WWII, often flew missions in just his swimming trunks, smoking a cigar, and with a plane emblazoned with Mickey Mouse art. Ive always liked Mickey Mouse, he said when asked about the strange behavior.-u/NordyNed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Mickey Mouses predecessor was a character named Oswald the Lucky Rabbit, who had to be replaced because his rights were owned by Universal Studios.-u/BigOldQueer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jim Henson is on the Hollywood Walk of Fame as both himself and Kermit The Frog. Only three other people have received this honor. Walt Disney and Mickey Mouse; Mel Blanc and Bugs Bunny; and Mike Myers and Shrek.-u/thevernanator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The last thing on BBC Television before it was switched off on the eve of the Second World War was a Mickey Mouse show which was aired at around 12.35pm on 1st September 1939. Seven years later BBC Television returned with a repeat of the same Mickey Mouse program.-u/MistressGravity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Malcolm in the Middle theme song and the Mickey Mouse Clubhouse theme song were written by the same people, They Might Be Giants.-u/honestbobiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Walt Disney and his wife Lillian invented Mickey Mouse during a train ride from Manhattan to Hollywood. Much later on theyd also make an animated short “Mickey’s Choo-Choo”, where Mickey is a train engineer.-u/bemmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Mickey Mouse in Steamboat Willie (1938) was one of the first sound cartoons. Mickey was voiced by Walt Disney himself.-u/Jimbos013</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Walt Disney based movements of Mickey Mouse and of animatronic characters in Disneyland rides on the captured dancing and walking of Buddy Ebsen, later TVs Jed Clampett and Barnaby Jones.-u/L0st_in_the_Stars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In 1935, Mickey Mouse was banned in Romania, since authorities believed children would be scared seeing a giant mouse on the screen.-u/thk_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When Jim Henson died, Disney Imagineers sent a drawing of Mickey Mouse consoling Kermit the Frog to his mourning company.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Minnie Moo is a real cow owned by Disney World that had spots that looked like Mickey Mouse.-u/fuzzypurplestuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Walt Disney helped the Army design a Mickey Mouse gas mask in the 40s to make chemical warfare less frightening to kids.-u/abigillygal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Emperor Hirohito of Japan was a huge fan of Mickey Mouse. He was given a Mickey Mouse watch as a gift during his special tour of Disneyland in 1975. For years, even on formal occasions, His Majesty was observed wearing the watch.-u/sraynor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Disney was planning on making a short film featuring Mickey Mouse as Christopher Colombus discovering America. It got canceled because the animation team was unsure how to animate the native people Mickey would have to encounter in a non-offensive way.-u/Tsukamori</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Disney created a short called The Sorcerers Apprentice to boost Mickey Mouses fading popularity. As production costs began to mount, they decided to include it as part of a feature film set to classical music. This became the classic Disney film, Fantasia.-u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Walt Disney was once filmed physically performing the role of Mickey Mouse as a reference for the animators of a 1930s short. Sadly, no known copies of the footage exists.-u/-Paraprax-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There is a Mickey Mouse-shaped solar farm at Disney World, Florida.-u/footyDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194916.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Mickey Mouse once broke up with Minnie and made multiple suicide attempts.-u/quivorian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Hitler admired Disney cartoons. He was delighted when Joseph Goebbels gifted him eighteen Mickey Mouse films as a Christmas present in 1937.-u/chillmaticx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The reason Mickey Mouse wears gloves is so that his hands can be seen when theyre in front of his body.-u/gerryhanes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194919.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">15 People Who Had Some Epic Fails</a><br>
+
+<span style="font-size:4em">1. “My friend should probably invest in sunscreen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “One of my mozzarella sticks tonight”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My fiancée wanted to be nice and make some ribs. Turns out Pyrex can shatter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I ordered a plain burger with cheese. I got a plain burger. With cheese.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The weather was nice outside yesterday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My graduation photo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Just a little bit more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “2 pizzas I bought to bake in my hotel that has no oven.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Late night flight canceled. The airline was unable to put us in a hotel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197099.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My pillow in my €120 a night hotel”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My hot oil burn from earlier today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Sun through the skylight is a direct hit to the record player.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I guess they won’t be driving anywhere anytime soon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My sister got me a new book for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I was looking forward to moving to the empty window seat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197105.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">37 Hump Day Memes to Ease the Struggle</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196776.jpg" style="width:100%"><br>
 
@@ -205,41 +315,7 @@ Last updated: 06/23/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">15 People Who Had Some Epic Fails</a><br>
-
-<span style="font-size:4em">1. “My friend should probably invest in sunscreen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “One of my mozzarella sticks tonight”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My fiancée wanted to be nice and make some ribs. Turns out Pyrex can shatter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I ordered a plain burger with cheese. I got a plain burger. With cheese.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “The weather was nice outside yesterday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “My graduation photo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Just a little bit more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “2 pizzas I bought to bake in my hotel that has no oven.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Late night flight canceled. The airline was unable to put us in a hotel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197099.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My pillow in my €120 a night hotel”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My hot oil burn from earlier today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Sun through the skylight is a direct hit to the record player.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I guess they won’t be driving anywhere anytime soon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My sister got me a new book for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I was looking forward to moving to the empty window seat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197105.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">50 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky7" id="linky6">50 Funny Photos To Make Your Work Go Away</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192839.jpg" style="width:100%"><br>
 
@@ -338,70 +414,6 @@ Last updated: 06/23/2022-06:47:18
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192887.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192888.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">30 Historical Photos Brought To Life With Color</a><br>
-
-<span style="font-size:4em">1. New York, Dock Stevedore At The Fulton Fish Market Holding Giant Lobster Claws,1943 May-June.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Portrait Of John Smith, Also Known As The White Wolf, Elderly Native American Chippewa Of Cass Lake, Minnesota, In Traditional Dress, 1914. (Probably Born Between 1822 And 1826, Although Presumably As Early As 1784; Died In February 6, 1922)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A Funny Photograph Of The First World War, German Soldier In The Snow With Only A Helmet, Boots And A Tank Top With A Cat On His Head. 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Mailman N. Sorenson Poses With His Heavy Load Of Christmas Mail And Parcels, Chicago, 1929</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The O’halloran Sisters — Armed With Poles And Boiling Water, They Fended Off The Officers Evicting Their Family During The Irish Land War, In The Year 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Two American Soldiers Proudly Show Off Their Personalized Easter Eggs (155mm Artillery Shells) Made Especially For Adolf Hitler, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The Cutter Sisters | Alfred Cheney Johnson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ukrainian Bride In Traditional Folk Costume, In The Year 1875</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Photo Of Charlie Chaplin As A Young Man Without Makeup On In Circa, 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Monumental Love Story Of Richard And Mildred Loving LED To The Historic Supreme Court Case Sweeping Away The Latest Segregation Laws In America.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Samson Beaver, His Wife Leah, And Their Daughter Frances Louise, In Canada In The Year 1907</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Elvis Presley And His Parents, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Vincent Van Gogh At The Age Of 19, 1872.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “The Blanket Weaver” - A Navajo Woman Weaving Under A Cottonwood Tree In Canyon De Chelly, Arizona. Photographed By Edward S. Curtis In Ca. 1905</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Boxing Aboard The U.s.s. New York In The Year 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Amelia Earhart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Benito Mussolini Is Arrested, 1915</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Joseph Stalin, Franklin D. Roosevelt And Winston Churchill, During The First Big Three Conference, November 1943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Sophie Scholl, Founder Of The White Rose Student Resistance Group During The Nazi Regime, Arrested For Distributing Anti-Nazi Leaflets With Her Brother, Executed By Guillotine At Age 22 For High Treason. She Wouldve Been 100 This Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hakone, Japan, A Tree-Lined Avenue Ending In A Flight Of Stairs To A Temple, Photographed By Felice Beato In Ca. 1868</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Peaky Blinders Were A Criminal Gang Active In Birmingham In The 19th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Phone In The Trench, 1915, Ww1, 4th Battery Of The 10th Artillery Brigade Of The Western Front, Imperial Russian Army</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Frida Kahlo Keeps A Sugar Skull, 1951.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Serbian-American Inventor Nikola Tesla, Probably In His New York Laboratory In The 1890s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Halloween In The Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Sorrento, On The Amalfian Coast, Italy In The Year 1888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Stan Lee, Head Of Marvel Comics, Shown In His Offices At 575 Madison Ave., NYC. 1/3/1980.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Group Of Women With Their Automobile Outside The White House, In The Year 1922</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. During The First World War, Ernest Hemingway Volunteered To Serve In Italy As An Ambulance Driver With The American Red Cross.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The Bin Ladens In Sweden, 1971</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197186.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -541,13 +553,67 @@ Last updated: 06/23/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
+## <a href="#linky10" id="linky9">30 Historical Photos Brought To Life With Color</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. New York, Dock Stevedore At The Fulton Fish Market Holding Giant Lobster Claws,1943 May-June.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Portrait Of John Smith, Also Known As The White Wolf, Elderly Native American Chippewa Of Cass Lake, Minnesota, In Traditional Dress, 1914. (Probably Born Between 1822 And 1826, Although Presumably As Early As 1784; Died In February 6, 1922)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A Funny Photograph Of The First World War, German Soldier In The Snow With Only A Helmet, Boots And A Tank Top With A Cat On His Head. 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Mailman N. Sorenson Poses With His Heavy Load Of Christmas Mail And Parcels, Chicago, 1929</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The O’halloran Sisters — Armed With Poles And Boiling Water, They Fended Off The Officers Evicting Their Family During The Irish Land War, In The Year 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Two American Soldiers Proudly Show Off Their Personalized Easter Eggs (155mm Artillery Shells) Made Especially For Adolf Hitler, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The Cutter Sisters | Alfred Cheney Johnson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Ukrainian Bride In Traditional Folk Costume, In The Year 1875</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Photo Of Charlie Chaplin As A Young Man Without Makeup On In Circa, 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The Monumental Love Story Of Richard And Mildred Loving LED To The Historic Supreme Court Case Sweeping Away The Latest Segregation Laws In America.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Samson Beaver, His Wife Leah, And Their Daughter Frances Louise, In Canada In The Year 1907</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Elvis Presley And His Parents, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Vincent Van Gogh At The Age Of 19, 1872.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “The Blanket Weaver” - A Navajo Woman Weaving Under A Cottonwood Tree In Canyon De Chelly, Arizona. Photographed By Edward S. Curtis In Ca. 1905</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Boxing Aboard The U.s.s. New York In The Year 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Amelia Earhart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Benito Mussolini Is Arrested, 1915</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Joseph Stalin, Franklin D. Roosevelt And Winston Churchill, During The First Big Three Conference, November 1943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Sophie Scholl, Founder Of The White Rose Student Resistance Group During The Nazi Regime, Arrested For Distributing Anti-Nazi Leaflets With Her Brother, Executed By Guillotine At Age 22 For High Treason. She Wouldve Been 100 This Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Hakone, Japan, A Tree-Lined Avenue Ending In A Flight Of Stairs To A Temple, Photographed By Felice Beato In Ca. 1868</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Peaky Blinders Were A Criminal Gang Active In Birmingham In The 19th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Phone In The Trench, 1915, Ww1, 4th Battery Of The 10th Artillery Brigade Of The Western Front, Imperial Russian Army</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Frida Kahlo Keeps A Sugar Skull, 1951.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Serbian-American Inventor Nikola Tesla, Probably In His New York Laboratory In The 1890s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Halloween In The Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Sorrento, On The Amalfian Coast, Italy In The Year 1888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Stan Lee, Head Of Marvel Comics, Shown In His Offices At 575 Madison Ave., NYC. 1/3/1980.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Group Of Women With Their Automobile Outside The White House, In The Year 1922</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. During The First World War, Ernest Hemingway Volunteered To Serve In Italy As An Ambulance Driver With The American Red Cross.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The Bin Ladens In Sweden, 1971</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197186.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -597,123 +663,65 @@ Last updated: 06/23/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Odd Finds and Strange Things People Stumbled Across </a><br>
+## <a href="#linky12" id="linky11">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
 
-<span style="font-size:4em">1. “A scorpion I just happened to find in my bra before putting it on”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195847.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “This hole I accidentally made with a laser.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195841.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “At the Muse concert last night when suddenly...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My dog thinks he’s a lap dog and crushed my poor colleague.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Took a pic of my cat. She’s blinking, and her reflection is not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “This is what you see when you turn your porch light on in Arkansas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “My onion has non-concentric rings and looks like a cabbage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “My light bulb burnt out in an interesting way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My new shoes apparently show dirt on the sole in a foot-bone pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “This carrot baby won’t let go of its momma.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Come on, were going for a ride. I would pay good money to take a trip in this whip. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I left my artichoke out of the fridge and it bloomed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “The pattern on this blanket doesn’t show up on an infrared camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My sister works at a driving school. She sent me this picture from her desk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Found out today that my great-uncle is dog walking buddies with Stephen King.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A sea lion I saw napping on a bench.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “His name is Meevin and he’s got horn-like ears.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Mose on a trampoline. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A rock that looks like a heart. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Cookie Monster, is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “I was told I look like a Mexican Michael Scott.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “There’s a family of foxes living under my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. He looks pretty comfortable up there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195858.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">25 Insane Facts About Mickey Mouse</a><br>
+## <a href="#linky13" id="linky12">The Dankest of Memes For Your Laughing Needs </a><br>
 
-<span style="font-size:4em">1. By 1932, Mickey Mouse had lost his edge since becoming a role model for children. Disney wanted to create a character to portray more negative character traits, which could no longer be bestowed on Mickey. That’s when Disney started working on a short-tempered character named Donald Duck. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/122912/87196515/0.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. So this is what my pizza rolls see at 3:20 in the morning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194058.png" style="width:100%"><br>
 
-<span style="font-size:4em"> -u/doozersworkhard9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194897.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. They do have a point,  too bad its not a good one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The earliest surviving graphic novel depicting the Holocaust was created in an internment camp in 1942 and starred Mickey Mouse.-u/BardBardia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194898.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Because the USA is unlikely to extend its copyright term again, Disney has been extensively using the Steamboat Willie Mickey Mouse in its marketing to keep the character indefinitely protected under trademark law instead.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194899.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Warner Bros. allowed Bugs Bunny to appear in Who Framed Roger Rabbit? under the stipulation that he only appear opposite Mickey Mouse, and that the two receive the same amount of screen time. The resulting scene is the only time in film history that the two have shared the screen together.-u/dabams23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194900.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Adolf Galland, one of the top-scoring German aces of WWII, often flew missions in just his swimming trunks, smoking a cigar, and with a plane emblazoned with Mickey Mouse art. Ive always liked Mickey Mouse, he said when asked about the strange behavior.-u/NordyNed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194901.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. So this is how feels to be an adult? Were all just winging it? Right? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Mickey Mouses predecessor was a character named Oswald the Lucky Rabbit, who had to be replaced because his rights were owned by Universal Studios.-u/BigOldQueer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194902.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Jim Henson is on the Hollywood Walk of Fame as both himself and Kermit The Frog. Only three other people have received this honor. Walt Disney and Mickey Mouse; Mel Blanc and Bugs Bunny; and Mike Myers and Shrek.-u/thevernanator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194903.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Sometimes as a kid the nuanced messages go over our heads. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194065.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. The last thing on BBC Television before it was switched off on the eve of the Second World War was a Mickey Mouse show which was aired at around 12.35pm on 1st September 1939. Seven years later BBC Television returned with a repeat of the same Mickey Mouse program.-u/MistressGravity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194896.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. He bro Im trying to sleep here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The Malcolm in the Middle theme song and the Mickey Mouse Clubhouse theme song were written by the same people, They Might Be Giants.-u/honestbobiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194904.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Walt Disney and his wife Lillian invented Mickey Mouse during a train ride from Manhattan to Hollywood. Much later on theyd also make an animated short “Mickey’s Choo-Choo”, where Mickey is a train engineer.-u/bemmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194905.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194068.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Mickey Mouse in Steamboat Willie (1938) was one of the first sound cartoons. Mickey was voiced by Walt Disney himself.-u/Jimbos013</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194906.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194069.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Walt Disney based movements of Mickey Mouse and of animatronic characters in Disneyland rides on the captured dancing and walking of Buddy Ebsen, later TVs Jed Clampett and Barnaby Jones.-u/L0st_in_the_Stars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194907.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194070.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. In 1935, Mickey Mouse was banned in Romania, since authorities believed children would be scared seeing a giant mouse on the screen.-u/thk_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194908.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194071.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. When Jim Henson died, Disney Imagineers sent a drawing of Mickey Mouse consoling Kermit the Frog to his mourning company.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194909.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Minnie Moo is a real cow owned by Disney World that had spots that looked like Mickey Mouse.-u/fuzzypurplestuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194910.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Walt Disney helped the Army design a Mickey Mouse gas mask in the 40s to make chemical warfare less frightening to kids.-u/abigillygal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194911.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Emperor Hirohito of Japan was a huge fan of Mickey Mouse. He was given a Mickey Mouse watch as a gift during his special tour of Disneyland in 1975. For years, even on formal occasions, His Majesty was observed wearing the watch.-u/sraynor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194912.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194075.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. Disney was planning on making a short film featuring Mickey Mouse as Christopher Colombus discovering America. It got canceled because the animation team was unsure how to animate the native people Mickey would have to encounter in a non-offensive way.-u/Tsukamori</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194913.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194076.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. Disney created a short called The Sorcerers Apprentice to boost Mickey Mouses fading popularity. As production costs began to mount, they decided to include it as part of a feature film set to classical music. This became the classic Disney film, Fantasia.-u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194914.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194077.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Walt Disney was once filmed physically performing the role of Mickey Mouse as a reference for the animators of a 1930s short. Sadly, no known copies of the footage exists.-u/-Paraprax-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194915.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. There is a Mickey Mouse-shaped solar farm at Disney World, Florida.-u/footyDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194916.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Mickey Mouse once broke up with Minnie and made multiple suicide attempts.-u/quivorian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194917.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Hitler admired Disney cartoons. He was delighted when Joseph Goebbels gifted him eighteen Mickey Mouse films as a Christmas present in 1937.-u/chillmaticx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The reason Mickey Mouse wears gloves is so that his hands can be seen when theyre in front of his body.-u/gerryhanes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87194919.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Okay, here we go, brain try your best to pay attention. No, dont think about that time in 5th grade when you got a touchdown in recess. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194081.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -785,7 +793,51 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">46 Choice Pics of Assorted Random Goodness </a><br>
+## <a href="#linky15" id="linky14">20 Movie Facts Courtesy of Rotten Tomatoes</a><br>
+
+<span style="font-size:4em">1. Ashton Kutcher has never been in a film that was certified fresh on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035009/87196689/ashton.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Screenwriter Blake Snyder, author of Save the Cat: The Last Book on Screenwriting Youll Ever Need has only two writing credits. Blank Check and Stop! Or My Mom Will Shoot. They have 9% and 11% ratings respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035020/87196690/blake.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Bodyguard soundtrack is the 4th best selling album OF ALL TIME. Meanwhile the movie sits at 32% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035032/87196691/body.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Movie 43 has a 5% rating after 10 years of production and multiple writers, actors, and directors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035039/87196692/43.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Deep Blue Sea 2 received a 0% rating, while Deep Blue Sea 3 would go onto to grab a score of 71%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035044/87196693/deepblue.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Final Fantasy: The Spirits Within holds the highest ranking (44%) for any movie based on a video game ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035050/87196694/final.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Christopher Nolans lowest rated movie is The Prestige at 75%. The director has never had a movie rated Rotten.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035125/87196700/nolan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Adam Sandlers production company Happy Madison, has never had a film rate higher than 68% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035056/87196695/happy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The first film that James Cameron ever directed is titled Piranha 2: The Spawning and holds a 6% rating on the site.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035101/87196696/james.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The 1986 film, Rad has the largest discrepancy between audience and critic ratings. 0% critic and 89% audience.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196707/rad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Forrest Gump only received a 71% rating. Blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035112/87196698/gump.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Comcast/NBC Universal own 70% of Rotten Tomatoes with Warner Bros holding the remaining 30%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035118/87196699/NBC.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. John Ratzenberger is the highest rated American actor on the site, basically because hes been featured in nearly every Pixar film.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035129/87196701/johnratz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Of all movies, Spy Kids received a 93% rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035159/87196706/spy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Michael Bays The Rock starring Nicholas Cage is Bays only film to be certified fresh at 66%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035136/87196702/rock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Extremely Loud & Incredibly Close is the only best picture nominated film to have a Rotten rating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035140/87196703/rotten.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Jaws: The Revenge has a 0% rating. While the original Jaws sits at 100%.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035107/87196697/jaws.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Samuel L. Jackson has a movie rated 100% (Unforgivable Blackness: The Rise and Fall of Jack Johnson) and a movie rated 0% (Kite.)</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035147/87196704/sam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The hit or miss 9th and final season of Scrubs has a 50% rating, mainly because it was the only season ever ranked.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035152/87196705/scrub.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The original Toy Story trilogy is the most critically acclaimed trilogy of all time, according to Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/035203/87196708/trilogy.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">46 Choice Pics of Assorted Random Goodness </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87196371.jpg" style="width:100%"><br>
 
@@ -881,7 +933,7 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">30 Toilets That Are Oddly Terrifying</a><br>
+## <a href="#linky17" id="linky16">30 Toilets That Are Oddly Terrifying</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124219/87196534/doll.jpg" style="width:100%"><br>
 
@@ -942,58 +994,6 @@ We gave him a lab coat and a stethoscope and let him tag along and see x-rays an
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124455/87196562/wtf.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/21/124503/87196563/yikes.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">The Dankest of Memes For Your Laughing Needs </a><br>
-
-<span style="font-size:4em">1. So this is what my pizza rolls see at 3:20 in the morning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194058.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. They do have a point,  too bad its not a good one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. So this is how feels to be an adult? Were all just winging it? Right? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Sometimes as a kid the nuanced messages go over our heads. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194065.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. He bro Im trying to sleep here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194068.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194069.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194070.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194071.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194075.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194076.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194077.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Okay, here we go, brain try your best to pay attention. No, dont think about that time in 5th grade when you got a touchdown in recess. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87194081.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
