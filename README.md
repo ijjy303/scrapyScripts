@@ -1,53 +1,135 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/23/2022-17:47:18
+Last updated: 06/23/2022-18:47:18
 <br>
-## <a href="#linky2" id="linky1">Fresh Memes Crisper than a Morning Breeze</a><br>
+## <a href="#linky2" id="linky1">30 Times Safety Was Not a Priority</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125126/87198426/dads.png" style="width:100%"><br>
+<span style="font-size:4em">1. I hope the ER has a 2 for 1 special.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125138/87198427/ducks.png" style="width:100%"><br>
+<span style="font-size:4em">2. He told me, “The boss said this is how we always do it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198215.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125149/87198429/ebw.png" style="width:100%"><br>
+<span style="font-size:4em">3. 3 persons = 6 feet; 6 feet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198216.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125220/87198434/homies.png" style="width:100%"><br>
+<span style="font-size:4em">4. Forklifts do not win against concrete pillars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125157/87198430/farts.png" style="width:100%"><br>
+<span style="font-size:4em">5. At least they’re wearing high-vis gear. Just don’t look down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125200/87198431/food.png" style="width:100%"><br>
+<span style="font-size:4em">6. Speaking of forklifts vs. concrete pillars, luckily they only hit the air pipe and not the 480 V box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125322/87198445/zombie.png" style="width:100%"><br>
+<span style="font-size:4em">7. This ladder on my job site that is held together with a strip of house wrap & a strap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198219.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125146/87198428/crash.png" style="width:100%"><br>
+<span style="font-size:4em">8. Thanks to the store owners’ refusal to spend any money until the last minute, we now have load bearing cardboard boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125208/87198432/glans.png" style="width:100%"><br>
+<span style="font-size:4em">9. This is safe? Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125213/87198433/harry.png" style="width:100%"><br>
+<span style="font-size:4em">10. Wanna play dominoes?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198223.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125224/87198435/joke.png" style="width:100%"><br>
+<span style="font-size:4em">11. Padlocked fire exit during office renovation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125232/87198436/kim.png" style="width:100%"><br>
+<span style="font-size:4em">12. That should do it . . .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198225.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125235/87198437/parent.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Just a man on a stack of pallets raised by a forklift changing the bulb on a street light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125243/87198438/pop.png" style="width:100%"><br>
+<span style="font-size:4em">14. New bossfight?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125115/87198425/death.png" style="width:100%"><br>
+<span style="font-size:4em">15. The ol’ safety squints for eye protection! (It was on a company’s website!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125246/87198439/pain.png" style="width:100%"><br>
+<span style="font-size:4em">16. Why yes, that is a ladder tied to ammonia piping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198229.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125255/87198440/squints.png" style="width:100%"><br>
+<span style="font-size:4em">17. This was being used to tow a kubota backhoe. 5,500-9,500 lbs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125258/87198441/tim.png" style="width:100%"><br>
+<span style="font-size:4em">18. You ever just feel like lounging in a wood chipper?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125307/87198442/uno.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Apparently these are legal to sell?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125310/87198443/vill.png" style="width:100%"><br>
+<span style="font-size:4em">20. House nearly toppled over by high winds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125318/87198444/wings.png" style="width:100%"><br>
+<span style="font-size:4em">21. Don’t worry, I won’t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Stairway to Heaven?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Introducing Donkey Kong arcade level scaffolding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Just a small jump and it’ll move again, nothing to worry about Jim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Safety 100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. New OSHA certified self-greasing outlets. You’ll never have to worry about struggling to pull out again!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Labor foreman didn’t feel like moving the lift, so this is how he wants us to unload.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. New guy (somehow still here), had a bit too much fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Ladder is on truck bumper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. This safety violation still made me smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198244.gif" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">15 People Who Had Some Epic Fails</a><br>
+## <a href="#linky3" id="linky2">30 Historical Photos Brought To Life With Color</a><br>
+
+<span style="font-size:4em">1. New York, Dock Stevedore At The Fulton Fish Market Holding Giant Lobster Claws,1943 May-June.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Portrait Of John Smith, Also Known As The White Wolf, Elderly Native American Chippewa Of Cass Lake, Minnesota, In Traditional Dress, 1914. (Probably Born Between 1822 And 1826, Although Presumably As Early As 1784; Died In February 6, 1922)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A Funny Photograph Of The First World War, German Soldier In The Snow With Only A Helmet, Boots And A Tank Top With A Cat On His Head. 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Mailman N. Sorenson Poses With His Heavy Load Of Christmas Mail And Parcels, Chicago, 1929</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The O’halloran Sisters — Armed With Poles And Boiling Water, They Fended Off The Officers Evicting Their Family During The Irish Land War, In The Year 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Two American Soldiers Proudly Show Off Their Personalized Easter Eggs (155mm Artillery Shells) Made Especially For Adolf Hitler, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The Cutter Sisters | Alfred Cheney Johnson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Ukrainian Bride In Traditional Folk Costume, In The Year 1875</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Photo Of Charlie Chaplin As A Young Man Without Makeup On In Circa, 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The Monumental Love Story Of Richard And Mildred Loving LED To The Historic Supreme Court Case Sweeping Away The Latest Segregation Laws In America.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Samson Beaver, His Wife Leah, And Their Daughter Frances Louise, In Canada In The Year 1907</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Elvis Presley And His Parents, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Vincent Van Gogh At The Age Of 19, 1872.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “The Blanket Weaver” - A Navajo Woman Weaving Under A Cottonwood Tree In Canyon De Chelly, Arizona. Photographed By Edward S. Curtis In Ca. 1905</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Boxing Aboard The U.s.s. New York In The Year 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Amelia Earhart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Benito Mussolini Is Arrested, 1915</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Joseph Stalin, Franklin D. Roosevelt And Winston Churchill, During The First Big Three Conference, November 1943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Sophie Scholl, Founder Of The White Rose Student Resistance Group During The Nazi Regime, Arrested For Distributing Anti-Nazi Leaflets With Her Brother, Executed By Guillotine At Age 22 For High Treason. She Wouldve Been 100 This Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Hakone, Japan, A Tree-Lined Avenue Ending In A Flight Of Stairs To A Temple, Photographed By Felice Beato In Ca. 1868</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Peaky Blinders Were A Criminal Gang Active In Birmingham In The 19th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Phone In The Trench, 1915, Ww1, 4th Battery Of The 10th Artillery Brigade Of The Western Front, Imperial Russian Army</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Frida Kahlo Keeps A Sugar Skull, 1951.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Serbian-American Inventor Nikola Tesla, Probably In His New York Laboratory In The 1890s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Halloween In The Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Sorrento, On The Amalfian Coast, Italy In The Year 1888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Stan Lee, Head Of Marvel Comics, Shown In His Offices At 575 Madison Ave., NYC. 1/3/1980.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Group Of Women With Their Automobile Outside The White House, In The Year 1922</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. During The First World War, Ernest Hemingway Volunteered To Serve In Italy As An Ambulance Driver With The American Red Cross.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The Bin Ladens In Sweden, 1971</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197186.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">15 People Who Had Some Epic Fails</a><br>
 
 <span style="font-size:4em">1. “My friend should probably invest in sunscreen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197091.jpg" style="width:100%"><br>
 
@@ -78,88 +160,6 @@ Last updated: 06/23/2022-17:47:18
 <span style="font-size:4em">14. “My sister got me a new book for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197104.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">15. “I was looking forward to moving to the empty window seat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197105.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">40 Fascinating and WTF Statistics We Can't Believe </a><br>
-
-<span style="font-size:4em">1. Of the 30 fastest 100 meter sprint times, 21 were run by athletes who tested positive for performance enhancing drugs.The other 9 were Usain Bolt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Innocent people will admit to a crime they never committed 43% of the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Despite making up less than 4% of the population, Americans produce over 20% of the garbage in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. 34 percent of adults and 75 percent of children sleep with a stuffed animal or a blanket, or other sentimental object as their comfort object.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. 67% of statistics are made up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A full 6 percent of Americans reckon they could beat a grizzly bear in unarmed combat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. 48% of British people wouldn’t go to space even if their safety was guaranteed with the most popular reason being that they just simply didn’t have any interest in going</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Genghis Khan killed so many people that he cooled the earth by a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There are 1.9 popes per square mile in the Vatican City</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. There have been 288 mass shootings at schools since 2009 in the USA. The country with the next highest amount has………….. 8. To be clear they have 2.7% of the mass shootings at school that we do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Chopping wood for an hour results in a 48% increase in testosterone in men.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. There are more Panda Express restaurants than actual Pandas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. 50% of human DNA is shared with bananas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. That belly button bacteria study was wild. 60 belly buttons sampled. 2368 different species of bacteria found. The study indicated that 1458 of them may be new to science. One had a rare bacteria found in Japanese soil and they had never been to Japan. Two had rare bacteria that thrived on ice caps and thermal vents. Not a single bacteria was common to all buttons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The human eye blinks about 4.2 million times a year on average</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. There are more privately owned guns than people in the U.S. (Washington Post June 19, 2018)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The leading cause of death for ages 5 to 18 (correction 1 through 18) has recently switched from car crashes to gun violence in the US.Your school age child is more likely to die from gun violence than any other cause, including car crashes. 21% gun violence, 20% car crashes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The job with the highest death rate historically in the US is President</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The Birthday Paradox: It only takes 23 people in the same room for there to be a 50% chance two of them share the same birthday.Difference between a million and a billion. When put in perspective by units of time, one million seconds is 12 days, one billion seconds is 31 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. 20% of the mammal species on our planet are different types of bats.Theres about 5000 species of mammals, and about 1000 of them are varieties of our little winged buddies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Dragonflies have a 95% hunt success rate. Making them the most effective hunters in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. That the remains found in Machu Picchu are 80% female.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. You have far more chances to die from  a coconut fall than by a shark attack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In 2020, overdose with a synthetic opioid (primarily fentanyl) became the LEADING cause of death in all Americans ages 18 to 45. Motor vehicle accidents were the former leading cause for this age group.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. If you made $295,000 every single day since the birth of Christ, you still wouldnt be worth what Elon Musk is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I read somewhere that about 80% of Indians feel that if theyre too happy something bad is around the corner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Residents of large cities, on average, spend 6 months of their lives waiting for the green light of a traffic light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The risk of a heart attack is about 20% greater on Mondays for adult men, and 15% greater for adult women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Miscarriages are going up 1% each year and sperm count of men have gone down 50% since 1970 (US)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Survey of Fortune 500 executives found that 93% agree the golf reflects life.86% admit to cheating at golf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. 30% of people can juggle. 75% of people dislike juggling. So that means 5% of people who can juggle don’t like juggling. (I can juggle and I honestly don’t enjoy it either).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. A jellyfish is about 96~98% water (it’s the best I got)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Watching every game of American football for a single team throughout a season (excluding playoffs and Superbowl) is the equivalent of watching 11 seasons worth of anime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. After oil, the worlds 2nd most traded commodity is coffee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Used to work as a meteorologist. More people die from flooding each year than from every other natural disaster added together. A good portion, at least, are people who think their cars can make it through the water when they obviously cannot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. Islam is the 1st growing religion while Christianity is slowly dying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. The most obese state in the country in 1990 (Mississippi, 15%) was still far skinnier than the least obese state in the country in 2020 (Colorado, 24%)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. If you take away every single goal Wayne Gretzky scored in his career, he would still be the All Time points leader, with just his assists alone.That’s 894 goals, 1,963 assists, for 2,857 total points. Gretzky is the GOAT of sports.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. 86 percent of British citizens reside within 8 miles of their birthplace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179799.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -839,7 +839,53 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">42 Worst Things Guests Have Ever Done</a><br>
+## <a href="#linky13" id="linky12">Fresh Memes Crisper than a Morning Breeze</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125126/87198426/dads.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125138/87198427/ducks.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125149/87198429/ebw.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125220/87198434/homies.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125157/87198430/farts.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125200/87198431/food.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125322/87198445/zombie.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125146/87198428/crash.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125208/87198432/glans.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125213/87198433/harry.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125224/87198435/joke.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125232/87198436/kim.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125235/87198437/parent.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125243/87198438/pop.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125115/87198425/death.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125246/87198439/pain.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125255/87198440/squints.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125258/87198441/tim.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125307/87198442/uno.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125310/87198443/vill.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125318/87198444/wings.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">People Reveal the Worst Guests They’ve Ever Had Over</a><br>
 
 <span style="font-size:4em">1. They broke our one TV and didnt pay for a replacement. My family has always been dirt poor and my mom busted her a*s to buy that shi*ty tube TV, too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195576.jpg" style="width:100%"><br>
 
@@ -967,7 +1013,7 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">38 Spectacular Things People Found in the Wild</a><br>
+## <a href="#linky15" id="linky14">38 Spectacular Things People Found in the Wild</a><br>
 
 <span style="font-size:4em">1. “Discovered that my tooth implant doesn’t glow like the rest of my teeth under black light. Regular photo for comparison.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178069.jpg" style="width:100%"><br>
 
@@ -1047,7 +1093,89 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">26 Memes That Are Hard to Argue With</a><br>
+## <a href="#linky16" id="linky15">40 Fascinating and WTF Statistics We Can't Believe </a><br>
+
+<span style="font-size:4em">1. Of the 30 fastest 100 meter sprint times, 21 were run by athletes who tested positive for performance enhancing drugs.The other 9 were Usain Bolt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Innocent people will admit to a crime they never committed 43% of the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Despite making up less than 4% of the population, Americans produce over 20% of the garbage in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. 34 percent of adults and 75 percent of children sleep with a stuffed animal or a blanket, or other sentimental object as their comfort object.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. 67% of statistics are made up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A full 6 percent of Americans reckon they could beat a grizzly bear in unarmed combat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. 48% of British people wouldn’t go to space even if their safety was guaranteed with the most popular reason being that they just simply didn’t have any interest in going</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Genghis Khan killed so many people that he cooled the earth by a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. There are 1.9 popes per square mile in the Vatican City</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. There have been 288 mass shootings at schools since 2009 in the USA. The country with the next highest amount has………….. 8. To be clear they have 2.7% of the mass shootings at school that we do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Chopping wood for an hour results in a 48% increase in testosterone in men.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. There are more Panda Express restaurants than actual Pandas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. 50% of human DNA is shared with bananas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. That belly button bacteria study was wild. 60 belly buttons sampled. 2368 different species of bacteria found. The study indicated that 1458 of them may be new to science. One had a rare bacteria found in Japanese soil and they had never been to Japan. Two had rare bacteria that thrived on ice caps and thermal vents. Not a single bacteria was common to all buttons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The human eye blinks about 4.2 million times a year on average</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. There are more privately owned guns than people in the U.S. (Washington Post June 19, 2018)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The leading cause of death for ages 5 to 18 (correction 1 through 18) has recently switched from car crashes to gun violence in the US.Your school age child is more likely to die from gun violence than any other cause, including car crashes. 21% gun violence, 20% car crashes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The job with the highest death rate historically in the US is President</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Birthday Paradox: It only takes 23 people in the same room for there to be a 50% chance two of them share the same birthday.Difference between a million and a billion. When put in perspective by units of time, one million seconds is 12 days, one billion seconds is 31 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. 20% of the mammal species on our planet are different types of bats.Theres about 5000 species of mammals, and about 1000 of them are varieties of our little winged buddies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Dragonflies have a 95% hunt success rate. Making them the most effective hunters in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. That the remains found in Machu Picchu are 80% female.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. You have far more chances to die from  a coconut fall than by a shark attack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In 2020, overdose with a synthetic opioid (primarily fentanyl) became the LEADING cause of death in all Americans ages 18 to 45. Motor vehicle accidents were the former leading cause for this age group.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. If you made $295,000 every single day since the birth of Christ, you still wouldnt be worth what Elon Musk is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I read somewhere that about 80% of Indians feel that if theyre too happy something bad is around the corner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Residents of large cities, on average, spend 6 months of their lives waiting for the green light of a traffic light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The risk of a heart attack is about 20% greater on Mondays for adult men, and 15% greater for adult women.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Miscarriages are going up 1% each year and sperm count of men have gone down 50% since 1970 (US)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Survey of Fortune 500 executives found that 93% agree the golf reflects life.86% admit to cheating at golf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. 30% of people can juggle. 75% of people dislike juggling. So that means 5% of people who can juggle don’t like juggling. (I can juggle and I honestly don’t enjoy it either).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. A jellyfish is about 96~98% water (it’s the best I got)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Watching every game of American football for a single team throughout a season (excluding playoffs and Superbowl) is the equivalent of watching 11 seasons worth of anime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. After oil, the worlds 2nd most traded commodity is coffee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Used to work as a meteorologist. More people die from flooding each year than from every other natural disaster added together. A good portion, at least, are people who think their cars can make it through the water when they obviously cannot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. Islam is the 1st growing religion while Christianity is slowly dying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. The most obese state in the country in 1990 (Mississippi, 15%) was still far skinnier than the least obese state in the country in 2020 (Colorado, 24%)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. If you take away every single goal Wayne Gretzky scored in his career, he would still be the All Time points leader, with just his assists alone.That’s 894 goals, 1,963 assists, for 2,857 total points. Gretzky is the GOAT of sports.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. 86 percent of British citizens reside within 8 miles of their birthplace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179799.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">26 Memes That Are Hard to Argue With</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122730/87197417/notmemes7.png" style="width:100%"><br>
 
@@ -1103,7 +1231,63 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">50 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky18" id="linky17">21 People Who Thought They Were Tougher than the Sun</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115741/87197388/arm.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115750/87197389/back.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115752/87197390/ankle.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115801/87197391/bed.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115803/87197392/chest.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115812/87197393/dogs.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115739/87197387/alien.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115814/87197394/hands.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115823/87197395/face.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115825/87197396/hat.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115834/87197397/legs.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115836/87197398/line.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115845/87197399/maze.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115847/87197400/night.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115859/87197402/purp.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115909/87197403/red.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115857/87197401/pink.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115911/87197404/strap.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115920/87197405/tank.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115922/87197406/tat.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115932/87197407/white.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky19" id="linky18">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky20" id="linky19">50 Funny Photos To Make Your Work Go Away</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192839.jpg" style="width:100%"><br>
 
@@ -1202,126 +1386,6 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192887.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192888.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">30 Historical Photos Brought To Life With Color</a><br>
-
-<span style="font-size:4em">1. New York, Dock Stevedore At The Fulton Fish Market Holding Giant Lobster Claws,1943 May-June.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Portrait Of John Smith, Also Known As The White Wolf, Elderly Native American Chippewa Of Cass Lake, Minnesota, In Traditional Dress, 1914. (Probably Born Between 1822 And 1826, Although Presumably As Early As 1784; Died In February 6, 1922)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A Funny Photograph Of The First World War, German Soldier In The Snow With Only A Helmet, Boots And A Tank Top With A Cat On His Head. 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Mailman N. Sorenson Poses With His Heavy Load Of Christmas Mail And Parcels, Chicago, 1929</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The O’halloran Sisters — Armed With Poles And Boiling Water, They Fended Off The Officers Evicting Their Family During The Irish Land War, In The Year 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Two American Soldiers Proudly Show Off Their Personalized Easter Eggs (155mm Artillery Shells) Made Especially For Adolf Hitler, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The Cutter Sisters | Alfred Cheney Johnson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ukrainian Bride In Traditional Folk Costume, In The Year 1875</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Photo Of Charlie Chaplin As A Young Man Without Makeup On In Circa, 1916.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Monumental Love Story Of Richard And Mildred Loving LED To The Historic Supreme Court Case Sweeping Away The Latest Segregation Laws In America.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Samson Beaver, His Wife Leah, And Their Daughter Frances Louise, In Canada In The Year 1907</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Elvis Presley And His Parents, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Vincent Van Gogh At The Age Of 19, 1872.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “The Blanket Weaver” - A Navajo Woman Weaving Under A Cottonwood Tree In Canyon De Chelly, Arizona. Photographed By Edward S. Curtis In Ca. 1905</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Boxing Aboard The U.s.s. New York In The Year 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Amelia Earhart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Benito Mussolini Is Arrested, 1915</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Joseph Stalin, Franklin D. Roosevelt And Winston Churchill, During The First Big Three Conference, November 1943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Sophie Scholl, Founder Of The White Rose Student Resistance Group During The Nazi Regime, Arrested For Distributing Anti-Nazi Leaflets With Her Brother, Executed By Guillotine At Age 22 For High Treason. She Wouldve Been 100 This Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hakone, Japan, A Tree-Lined Avenue Ending In A Flight Of Stairs To A Temple, Photographed By Felice Beato In Ca. 1868</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Peaky Blinders Were A Criminal Gang Active In Birmingham In The 19th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Phone In The Trench, 1915, Ww1, 4th Battery Of The 10th Artillery Brigade Of The Western Front, Imperial Russian Army</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Frida Kahlo Keeps A Sugar Skull, 1951.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Serbian-American Inventor Nikola Tesla, Probably In His New York Laboratory In The 1890s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Halloween In The Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Sorrento, On The Amalfian Coast, Italy In The Year 1888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Stan Lee, Head Of Marvel Comics, Shown In His Offices At 575 Madison Ave., NYC. 1/3/1980.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Group Of Women With Their Automobile Outside The White House, In The Year 1922</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. During The First World War, Ernest Hemingway Volunteered To Serve In Italy As An Ambulance Driver With The American Red Cross.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The Bin Ladens In Sweden, 1971</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197186.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky19" id="linky18">21 People Who Thought They Were Tougher than the Sun</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115741/87197388/arm.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115750/87197389/back.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115752/87197390/ankle.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115801/87197391/bed.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115803/87197392/chest.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115812/87197393/dogs.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115739/87197387/alien.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115814/87197394/hands.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115823/87197395/face.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115825/87197396/hat.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115834/87197397/legs.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115836/87197398/line.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115845/87197399/maze.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115847/87197400/night.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115859/87197402/purp.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115909/87197403/red.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115857/87197401/pink.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115911/87197404/strap.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115920/87197405/tank.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115922/87197406/tat.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115932/87197407/white.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
