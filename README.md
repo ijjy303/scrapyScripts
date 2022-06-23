@@ -1,139 +1,241 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/23/2022-14:47:18
+Last updated: 06/23/2022-15:47:18
 <br>
-## <a href="#linky2" id="linky1">The World’s Greatest Unsolved Mysteries</a><br>
+## <a href="#linky2" id="linky1">30 Strange Encounters With Strange People</a><br>
 
-<span style="font-size:4em">1. The aerial school landings in Zimbabwe. 60+ school children saw crafts landing and beings coming out of them. The kids interacted with the beings. They were put under evaluation by a Harvard psychiatrist. They all told virtually the same story and drew the same drawings. It was concluded that they were telling the truth.
+<span style="font-size:4em">1. I was at Busch Gardens in Virginia, maybe 9 years old when an elderly man walked up to me and gave me a 1 million dollar bill with his face on it. I still have it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I was in Boston one night with friends and started to sing show me the way to go home. A girl on the other side of the street walking in the other direction sang every other verse with me for over a block and a half. We were quite loud before we ended.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I guess not really strange, but its stuck in my mind for over 10 years.
 
--u/Equivalent-Quail3995</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The identity of the Zodiac Killer hands down. It hasnt been solved despite what you read about Gary Post.
+I had just moved halfway across the country for work. After a couple of months there, my great grandmother passed just before her 101st birthday. I got an early morning flight back to my home state. The lady next to me was probably just near retirement age.
 
--u/1man2barrels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197684.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. The disappearance of the Springfield Three is a top contender for me.
-Long story short, in the early morning hours of June 7, 1992, these three women, Sherrill Levitt (47), her daughter Suzanne Suzie Streeter (19), and Suzies friend Stacy McCall (18) all vanished from Sherrill and Suzies home following a night of fun and partying as it was the girls high school graduation.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-All their personal belongings, their cars, purses, and even the little dog was left behind. There were no signs of a struggle or foul play, however, the front porch lights glass globe was broken and not swept up, and there was a weird message on the answering machine that accidentally got deleted. Yet, no trace of the three women has ever been found and the case remains unsolved 30 years later.
+I wasnt crying, but just keeping to myself as one does when traveling with things on their mind. Once we were able to let our trays down, I dropped mine and laid my head and arms on the tray, and just watched the city lights out the window. For nearly the entire flight, this woman started rubbing my back and told me everything would be okay.
 
--u/Bjnboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197687.jpg" style="width:100%"><br>
+I normally hate being touched, and honestly dont seek comfort very often. But that was one of the most comforting things thats ever happened, and I just let it happen. So wholesome strange I guess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My favorite is the Chicago TV hijacking. During a Dr. Who rerun in 1987 somebody dressed as Max Headroom hijacked the tv signal for a minute and a half during which he exposed his a** and got spanked by a woman and mocked coca-cola. FCC has been investigating for years and nobody has been charged.
+<span style="font-size:4em">4. Im Canadian, so keep that in mind... (also pre-covid)
 
--u/KhaosKake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. One I’m always fascinated with is I believe in the mid-2000’s a student at Ohio State mysteriously disappeared and to this day, they have no idea what happened to him. Basically, he went out to a popular bar with friends, the security camera sees him walking into the bar and this is the only entrance/exit as the bar is in a larger building but it never sees him leave the bar at the end of the night. His name was Brian Shaffer. It’s an interesting story/mystery to take a look at.
+I bought a coffee and package of cookies and sat outside on a bench to enjoy the summer day. I sat on one end and put my things in the middle of the bench.
 
--u/TrainingRegistration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. What the hell happened to the 3 escapees of the inescapable Alcatraz? Whether they did survive or not, but if they did, thats one hell of a plan to escape undetected till to this day.
+Another guy sat down on the other end of the bench and put his things down. Then he opened my cookies and ate one.
 
--u/Leveolizan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The disappearance of Asha Degree. In 2000, 9-year-old girl that packed a bag in the middle of a storm and was last seen walking down a highway. A driver approached her to help and she ran into the woods and was never seen again.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Nothing suggests why she would run away. Her book bag was found a year later. Most likely she was abducted while walking but why did she leave her house in the middle of a “raging storm”?
+I was surprised.
 
--u/palabear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Where is the tomb of Alexander the Great?
+I reached over and took a cookie and ate it. He looked at me sharply, then, keeping eye contact, he reached out and took another cookie and ate it.
 
--u/bdaydeedayday</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The mystery of Kasper Hauser, a youth found wandering Germany in 1828 wearing undersized clothes and no communication skills. After being educated, he claimed to have grown up in the total isolation of a darkened cell. Years later he died after being stabbed by a stranger who gave Kasper a cryptic note, but officials suspected he stabbed himself.
+I was again surprised and Im sure it showed on my face.
 
--u/Neon_Parrott</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Where is Shelly Miscavige?
+I reached out and took another cookie and ate it, washing it down with coffee. He did the same.
 
--u/Bucketlist074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Americas lost child AKA The boy  in the box. He was discovered in Philadelphia, Pennsylvania on February 25th, 1953 having a fresh haircut, nail trims but had been severely beaten. Police ruled it off as a homicide and the case is still open to find the murderer.
+We continued on that way, each eating a cookie and staring at the other.
 
--u/OldmanHosea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197696.jpg" style="width:100%"><br>
+When I ate the last cookie I stood up and picked up my things. Thats when I saw the unopened pack of cookies under my coat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Adam case, where a little boys torso was found in the River Thames. Investigators believe that he was trafficked from Nigeria to be murdered in a ritual sacrifice, but his body has never been formally identified.
+<span style="font-size:4em">5. In Portland OR I was walking into the Pearl District around 7:00am, I was the only one walking on my side of the street and a guy walking the other way on the other side crossed over and came *right up to me*. I took my headphones out when I saw him coming and thought oh this cant be good and then he asks me very intensely,
 
--u/whitewidow33B</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Who really murdered the Princes in the Tower?
+**DO YOU LIKE THE X-MAN WOLVERINE**?
 
--u/MRCHalifax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Collapse of the Bronze Age.
+Took me by surprise but I answered uh, yeah? and he extended his hand to shake and said,
 
--u/guitar_collector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Wow! signal. A strong narrowband radio signal detected on August 15, 1977, by the Ohio State Universitys Big Ear radio telescope in the United States.
+**HI IM WOLVERINE**.
 
--u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197699.jpg" style="width:100%"><br>
+This was a clean shaved blonde white dude, about 61 150 pounds with busted up knuckles, and while he was presenting as friendly he was *not* trying to make a joke about his identity. He believed what he was saying. So I just rolled with it and said Oh cool man, good to meet you. Yeah, I didnt recognize you without the costume. We talked for a second and then I did the I-have-to-go stutter walk thing and as I left I told him to watch out for Magneto.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The Vegas mass shooter who was a perfectly contented millionaire with a happy life and just opened fire on people from a hotel room…. Wtf was that about?
+<span style="font-size:4em">6. I was in a grocery store and I happened to be in the ice cream/frozen desserts aisle. While I was walking this random dude came up to me and offered to buy a gallon of pecans and cream(or something like that) icecream for me?? I said no, but he kept insisting and then talked about how much he loved the ice cream flavor. He apparently has eaten it everyday ever since he was 20(He said he was 70) and wants to one day form a religion based around the ice cream where every Wednesday theyd gather in a circle and eat a gallon each??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was around 16 (F) at the time and at the mall with my two guy friends. We split up in the food court and while I was aimlessly walking around trying to pick out food, someone bumped into me from behind. I assumed it was my friends but as I turned, I was handed a BABY from a man I’ve never met. He then backed away towards a woman and they started laughing. It looked like she was taking pictures of me with her phone. They spoke in a language I didn’t recognize and kept backing up further away while looking at me and laughing almost as if trying to make me follow them. All the while I’m holding a strange baby in the middle of the mall food court too stunned to move. After what felt like hours but was maybe a minute or so, my friends walked over to me very confused and why I had a baby. Before I could even utter a word, the man and woman ran over, took the baby and left. 11 years later I still have no explanation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I was in a mostly empty locker room at a pool, a random older man walked up to me and asked, Do you want a pickle? I answered no, and he responded, How about a nickel? He proceeded to hand me a nickel. Very odd.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Quick background: Im from the UK, Im a recovering alcoholic (nearly 4 months sober now) and used to sit in this beach shelter at night after work and drink 8-10 beers. One night this guy came over holding a glass of wine and randomly started chatting to me. He said he regularly jogs past that shelter in the mornings and picks up the empty beer cans and bins them. He basically got me to admit it was me, he knew my name and where Id bought the beers. This freaked me out at first but it turns out hed been picking up the receipts id been leaving there which had my name and the shop location on cos of my clubcard.
 
--u/fernincornwall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197700.jpg" style="width:100%"><br>
+Anyway, he basically went on to ask why I drank so much and if there was anything that had happened in my life to make me live that way. For some reason I told him some of the dark secrets from my past that made me turn to drink. It turns out he was a policeman, and not just any policeman, but the one who arrested Roy Whiting (the killer of sarah payne) and after a bit of a conversation he told me about himself, and what he said to me Ill never forget. He said I have 4 kids, and you never know, you could be number 5 and that hit me hard. A random stranger just decided to talk to me and offer me a love that he somehow knew Id never been given. Well fast forward a year or so and i no longer drink, we stay in contact on Facebook and whenever i see him around we have a hug and a catch up. He always beeps me when he drives past. Thankyou, Paul.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The Chicago Tylenol murders in 1982. Who would do such a thing and why? Was it one person acting alone? Did they do it at the distribution center, or did they go to different locations to tamper with the bottles?
+<span style="font-size:4em">10. I was in a bakery in my small town USA, when the patissier was slack jaw staring at me. She told me she was from Germany and I looked like her daughter--even my glasses looked the same. She thought her daughter had come over from Germany to visit her. Sorry to disappoint and even sorrier she didnt have a pic to compare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Just arrived at a music festival in the Faroe Islands back in 2005 with my friends and this girl Id never seen before leaps around my neck, gives me a kiss on the cheek and wishes me a happy birthday before running off into the night, check my phone and its literally just struck midnight on my 21st birthday.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. No one in my family wanted to ride the Aerosmith Rock ‘n’ Rollercoaster with me so I went solo and got seated next to a guy who didn’t speak English. I knew ahead of time that they take your picture as the ride blasts off so I made a face (rock fist, tongue out). At the end of the ride, my ride partner and I went to look at our photo and amazingly, unknown to the other, we had both made the same face and gesture. We both laughed when we saw it. He said something to me I didn’t understand, gave me a hug, and we parted ways. I still think about him 6 years later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I work in a hospital on the third floor. One evening I was washing up in the coffee room the sink is next to a window. It was getting dark, and I glanced out the window, and at exactly the same time a woman on the other side of the street glanced up at my window. I decided to wave, and as I raised my hand she simultaneously raised hers. We both had a little chuckle about it and went on with our lives. The whole thing took about 5 seconds but I still think about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Was at a horror convention. My wife, and two friends we met at the con were at the after party. It was an out door event at the hotels pool with a death metal band and Sid Haig serving people drinks with the money going to charity.
 
--u/kboody22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197701.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Who was Jack the Ripper?
+We were just laughing and joking around when out of the blue an older man entered our conversation. He started by laughing at whatever story we were talking about and we all kind of stopped to look at this dude.
 
--u/Supraman83</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The consciousness. A child is conceived, and at some point, once the brain becomes complex enough, it starts to develop a feeling of self. It starts to perceive itself as the center of something, and everything else is outside. We naturally distinguish the “I” from the rest of the world. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-This is a light that goes on in the head at some point. In deep sleep, under narcotics or after injury, the light can flicker or go out. When we die, the thing that is me is gone forever. Or is it? Religion says it’s not. It’s an everyday mystery that gets more mysterious the more we think about it. I find this to be the most fascinating question there is.
+This guy was dressed to the nines in all purple. A purple stripped suit, a purple cane and a purple tophat with ribbons. His white beard was dyed purple as was his mustache. He had purple gloves on, purple dress pants, and purple shoes. And this was no cheap cosplay - these were pretty damn expensive looking clothes.
 
--u/Speedperson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197704.jpg" style="width:100%"><br>
+Immediately we are fascinated with him. We welcomed him to the circle. He introduced himself as Mr. Purple. and that he was Curious to what was going on at the party. Apparently he had no idea there was a horror convention going on - that he was just somewhere nearby and saw the after party and decided to come by.
+
+He was not odd or unpleasant. He was actually quite nice, joyous, and fun to talk to. He never got into who he was or what he did or why he was purple ; but just made small talk with all of us as we continued sharing stories. Eventually he tipped his hat and thanked us for chatting with him before heading off. We did not see him for the rest of the party.
+
+I will never forget you Mr. Purple. Whomever you are.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A woman who was clearly not sound of mind in a macdonalds told me with deep and serious certainty that we are not to eat figs as they are the fruit of the devil.
+
+
+I had watched a nature documentary the previous day and explained to her in great detail the anatomy of a fig (which is in fact, a flower) and the life cycle of wasps and how they use figs to their advantage.
+
+
+She was very confused.
+Then she turned around and went to find somebody else to hassle about not eating the devils fruit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I was in the backseat of my friend’s car, one friend driving and one in the passenger seat. At an intersection a truck pulls up next to us and in the most Southern U.S. smoker accent he says out the window, “Hey kid! What do you know?” And my friend replied “I know a lot of things, what do you know?” And this crazy dude, without missing a beat, said “two plus five equals nine and crime is only illegal if you get caught, so drunk drive safely. Have a day!” And then sped off, timing the light perfectly somehow so that it switched to green as he finished the sentence. Felt like something out of a fever dream.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Not sure if this is the strangest but fresh in my mind. Bought a Honda Odyssey for the family car. Had a guy stop me in a parking lot, maybe mid to late 50s, asked me if I wanted to join his odyssey club. He then proceeded to tell me it’s more of a cult and I can’t have any felonies but must be willing to commit one. He was clearly joking about that but dead serious about the club. I regret not finding out more but I was just so confused at the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A few stick in my mind, but this one I have just never understood.
+
+Im at a busy downtown intersection, on a sunny Saturday, waiting for the light to cross. Guy beside me starts making small talk. Very chatty. We had quite a wait for the light for ... some reason I dont remember... so it was a bit of a chat.
+
+He made some unusual remarks asking me about my ethnicity (somewhat accurate). Then it was him telling me his life story, out of the blue.
+
+Ok, maybe hes hyper for some reason. Id just moved to the city from a more rural area so I was polite and didnt elbow him away. Not sure if maybe I should have. His story about himself was just a bit memorable because it involved some globetrotting and a few other random details.
+
+I thought nothing more about it after crossing the street and we went separate ways.
+
+Then a couple of months later Im in a downtown mall. Same guy walks up to me, out of nowhere, and starts chatting to me again. I interrupted him and said Yeah, I remember meeting you before, and I repeated the life story ramble that hed done earlier. At that point he does a disappearing act.
+
+I have no clue to this day what that was about. Just odd.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I was studying in a uni library when I see the guy sitting next to me turn his head to look at me for a moment too long. I turn to look at him and he sticks his arm out and offers me some cheetos. I politely turn him down and we both go back to studying, he doesnt make any attempt to interact with me again.
+
+Fast forward a few months, Im heading back to my home State from a completely different State 3 hours away on a bus with assigned seating. Its relatively empty other than maybe 10 others max all in random areas of the bus. Im minding my own business when the guy in front of me gets up on his knees on the seat and turns around to face me. It is the same guy from the library. And what does he do? Stick his arm out and offer me cheetos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. One day I met an Indonesian guy at the airport, I was 20, I was waiting for my flight so I was reading a book (The Subtle Art Of Not Giving a F*ck) and he came to me asking what the book was talking about and ended up having a deep conversation about life, happiness, even futilities. At the end of the conversation he asked me my Facebook, we exchanged contacts and we became friends. It’s kinda sad bc he told me he would be happy to meet me in Indonesia one day, show me his culture, and watch a soccer game (cause we’re both fans of Chelsea FC), on my side I told him that I’d be happy to see him in my home country, but now 4y later we lost touch. There’s some cool guys in this world. Yeah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. On a two month trip to Costa Rica with one of my besties. Another friend was meeting us about 2 weeks in.
+
+When we first arrived in San Jose, we stayed for a few days. Started going to this tiny piano bar. There was this Jamaican man there every time we went, and he would stare at us the whole time we were there. No smile, no hello, just hours long staring.
+
+We soon set off to a different locale for almost 2 weeks and returned to San Jose to meet up with our friend. That night, we took her to the piano bar and our buddy was there. As usual.
+
+So we had a few drinks and caught up. We were all holding hands on the table, and dude comes over, says something under his breath in a different language. He then puts his hand over ours, and says the third witch has finally arrived and threw some John the Conqueror root in the ashtray on out table, then left.
+
+We came back to San Jose a couple more times before we left, and that guy always seemed to find us. 2 nights he followed us around town. Kinda freaky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Was sitting in a Brooklyn McDonalds. Middle-aged white guy wanders up to my table and asks me if I’ve ever seen the TV show “Empire.” I tell him no. He tells me that it is based on his life and then immediately leaves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. A pleasant looking middle aged woman came up to me on a bus, sat beside me, and then told me in a whisper my teeth are trying to kill me. And then sat out the ride in silence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Ive shared this story before, but one New Years Eve, a friend of mine and I were standing outside of a liquor store. Both of us were underage, but another friend of ours was 21, so he was buying the alcohol for the night. 
+
+I was smoking a cigarette and out of the corner of my eye, I saw a man approaching. He looked homeless and I assumed he wanted a cigarette or some change. the first words out of his mouth were, Happy New Years gentlemen, how you doing? We both said we were good and commented about how nice it was. Although it was mid-winter, it wasnt that cold that year in Chicago. 
+
+He laughed and said, Yeah, me too. Yall got any plans? We told him we were going to meet up with some friends after our buddy came out of the store. He smiled and said, Well, yall be safe now. Me, I got myself a joint from the Mexicans at the car shop. Im gonna go to my spot in the alley, smoke, put out my sign when I dont want nobody around, *Do not disturb the rat in the hole*. Then they know, this is the condominium and leave me alone. 
+
+My friend and I both looked at each other right after he said that. We were both writers and instantly recognized how beautifully weird what he had just said was. I asked if he wanted a cigarette, but he declined saying, Nah, thanks.
+
+Our friend came out of the store at that point and we told him we had to go. He shook our hands and the hand of our other friend and told us again to stay safe. As we were walking away, we heard him shout to us, Happy New Year!
+
+He never asked for change or a cigarette and even declined my offer to have one. He just genuinely wanted to talk to us, which is rare in Chicago. He didnt want anything, but he did give me an anecdote and a phrase that has stuck with me for years; *Do not disturb the rat in the hole.*</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Every conversation I have ever had…and I wish I was joking there…but while
+In Roswell at the alien museum a lady started talking to me about Legoland after she asked if we were on vacation and I told her I was taking my son and nephews there…anyway, all of sudden she said, “You know…I’ve been abducted by aliens my entire life.”…sweet I thought, I can’t wait to hear this…she told me it all started with her mother who was abducted by the “greys”, there are three alien races btw and the only thing right about the lizard ones are the way their eyes close…anyway, her mom was abducted several times and was impregnated with this lady by one of the greys. So after she was born they started abducting her and you shouldn’t believe what the TV says because the greys are not nice aliens…so she has three trackers in her body, one behind her ear, one in her arm pit and one behind where her knee bends and she’s had them removed before, but finally stopped because she didn’t want them to abduct her again just to put a new one in. She ended it by telling me that she can’t tell me why, but she knew that I was the person she was supposed to tell this to, she just a had feeling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A store cashier once blessed me for being tall, so that was interesting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. My family and I were traveling cross-country and stopped in this tiny rural coffee shop for lunch. The waitress came out to take our order, she took one look at me and said “Hey Kim, how’s your mom doing? I said “I’m sorry, I think you’re mistaking me for someone else, I don’t live around here and I’m not Kim.” She kept insisting that I was just joking around and teasing her. This went on for quite some time, until I had to convince her with my drivers license that I was not this person that she knew. She was blown away and said I could be a twin to this person that she knew, as I look exactly like Kim, talk like Kim, everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Two that happened to my best friend, years ago.
+
+1. He’s walking across campus and some guy walks up to him, holding an unwrapped Twinkie. He puts it close to my friend’s face and says, “Look at it! Look at it! YOU CAN SEE THE PRESERVATIVES!”
+
+2. He’s in the men’s room in the physics building after an astronomy seminar. Some guy comes in and stands next to him at the urinal, staring at him, and says, “The Earth is flat. You know it is.”
+
+And one that happened to me.
+
+I’m in a restaurant in Washington DC, a thousand miles from home. It’s my first time in the District, I’m eating alone, so I decide to sit at the bar instead of taking up a table. A man my age sits down next to me, somehow we get to talking, and long story short, my mom was one of his mom’s bridesmaids and I’m named after his grandfather.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Going into my hotel room. (This was a s**t hotel, I was low on money and just needed somewhere to stay for a couple of nights.)
+
+On the phone with my husband, a guy walks up to me as Im pulling out my key card. He gestures at himself and the door, in a can I come in kind of way.
+
+I say No and look at him, he keeps standing there, then he goes a few steps away. I stupidly think were done and open the door and he moved forward to come in with me. I slam the door without entering and book it down the stairs to the front reception desk.
+
+If I hadnt been on the phone, distracted and tired, I would never have let him get so close to me. What could have happened but didnt? Just so strange.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. in the dollar store by the hollywood theater in portland oregon, (its like 20 miles from my house) i was buying some soda when i saw a guy in a vietnam veteran jacket. i, being the patriotic m**********r that i am, said that i appreciated his service. then he said that will be $100. i thought he was joking. he was not. i did not have $100, and i said to him as much. he said well give me anything you have. i gave him five cents, as i only carry what i need to buy stuff on me, and that was the change. he just walked away without thanking me. it was weird as all hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197227.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">15 People Who Had Some Epic Fails</a><br>
+## <a href="#linky3" id="linky2">37 Hump Day Memes to Ease the Struggle</a><br>
 
-<span style="font-size:4em">1. “My friend should probably invest in sunscreen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197091.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “One of my mozzarella sticks tonight”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197092.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “My fiancée wanted to be nice and make some ribs. Turns out Pyrex can shatter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197094.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I ordered a plain burger with cheese. I got a plain burger. With cheese.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197095.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The weather was nice outside yesterday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197096.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “My graduation photo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197097.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Just a little bit more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197093.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “2 pizzas I bought to bake in my hotel that has no oven.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197098.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Late night flight canceled. The airline was unable to put us in a hotel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197099.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “My pillow in my €120 a night hotel”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197100.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “My hot oil burn from earlier today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197101.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Sun through the skylight is a direct hit to the record player.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197102.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I guess they won’t be driving anywhere anytime soon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197103.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “My sister got me a new book for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197104.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I was looking forward to moving to the empty window seat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197105.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196793.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -623,7 +725,41 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">26 WTF Wrong Number Texts</a><br>
+## <a href="#linky11" id="linky10">15 Infamous Criminals Who We’d Let Cuff Us Up</a><br>
+
+<span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Andria Kerchner - Kerchner was named an accomplice to murder in 2012. A Florida police officer was shot and killed by Andrias boyfriend while she was in the car.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033624/87198593/akerch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Amber Hilberling - In 2013, Amber was accused of pushing her husband out of his apartment window sending him 25 floors down to his death. She claims it was self-defense.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033630/87198594/amber.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Charles Schmid - AKA the Pied Piper of Tucson. No thats not Elvis Presley. Thats good old Chuck Schmid. Aptly named for how friendly he was with the teens in his town. He would go on to murder three young girls. What a catch.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033636/87198595/charlesschmid.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Casey Anthony - Arguably the hottest criminal on this list, Casey was arrested in 2008 and charged with the murder of her daughter Caylee. She was never convicted.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033641/87198596/casey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. H.H. Holmes - The man with the immaculate mustache is known for being one of Americas first documented serial killers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033647/87198597/holmes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jeffrey Dahmer - Cannibal. Serial iller. Sex offender. All of that aside he was a fairly good-looking guy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033653/87198598/jeff.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Charles Manson - The infamous cult-leader and musician had his followers murder multiple people including actress Sharon Tate. He looks much worse today than he did in these photos.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033658/87198599/chuck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Jodi Arias - Arias stabbed her ex-boyfriend nearly 29 times and shot him in the head. She claimed self-defense. Id let her hurt me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033705/87198600/jodi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Joe Exotic - Oh Joe. Joe was arrested for a murder-for-hire attempt, as we learned in the Netflix documentary Tiger King. Joe is a fun-loving party animal who isnt afraid to fall in love, again, and again.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033710/87198601/joe.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Paul John Knowles - AKA the Casanova Killer. He claimed to have killed up to 35 people. He was named the Casanova Killer for his charm and good looks, while also idolizing criminals such as Bonnie and Clyde and Jesse James.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033716/87198602/john.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lorena Bobbitt - Yikes, Lorena. If you dont know about her...welp. Just google it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033721/87198603/lorena.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Richard Ramirez - The Night Stalker. He racked up a total of 19 death sentences. He would eventually go on to die on death row. Women apparently think hes attractive.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033727/87198604/richard.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">26 WTF Wrong Number Texts</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197534.jpg" style="width:100%"><br>
 
@@ -679,7 +815,109 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">30 Historical Photos Brought To Life With Color</a><br>
+## <a href="#linky13" id="linky12">25 Unsolved Mysteries That Still Have Us Stumped</a><br>
+
+<span style="font-size:4em">1. The aerial school landings in Zimbabwe. 60+ school children saw crafts landing and beings coming out of them. The kids interacted with the beings. They were put under evaluation by a Harvard psychiatrist. They all told virtually the same story and drew the same drawings. It was concluded that they were telling the truth.
+
+-u/Equivalent-Quail3995</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The identity of the Zodiac Killer hands down. It hasnt been solved despite what you read about Gary Post.
+
+-u/1man2barrels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197684.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. The disappearance of the Springfield Three is a top contender for me.
+Long story short, in the early morning hours of June 7, 1992, these three women, Sherrill Levitt (47), her daughter Suzanne Suzie Streeter (19), and Suzies friend Stacy McCall (18) all vanished from Sherrill and Suzies home following a night of fun and partying as it was the girls high school graduation.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+All their personal belongings, their cars, purses, and even the little dog was left behind. There were no signs of a struggle or foul play, however, the front porch lights glass globe was broken and not swept up, and there was a weird message on the answering machine that accidentally got deleted. Yet, no trace of the three women has ever been found and the case remains unsolved 30 years later.
+
+-u/Bjnboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My favorite is the Chicago TV hijacking. During a Dr. Who rerun in 1987 somebody dressed as Max Headroom hijacked the tv signal for a minute and a half during which he exposed his a** and got spanked by a woman and mocked coca-cola. FCC has been investigating for years and nobody has been charged.
+
+-u/KhaosKake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. One I’m always fascinated with is I believe in the mid-2000’s a student at Ohio State mysteriously disappeared and to this day, they have no idea what happened to him. Basically, he went out to a popular bar with friends, the security camera sees him walking into the bar and this is the only entrance/exit as the bar is in a larger building but it never sees him leave the bar at the end of the night. His name was Brian Shaffer. It’s an interesting story/mystery to take a look at.
+
+-u/TrainingRegistration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. What the hell happened to the 3 escapees of the inescapable Alcatraz? Whether they did survive or not, but if they did, thats one hell of a plan to escape undetected till to this day.
+
+-u/Leveolizan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The disappearance of Asha Degree. In 2000, 9-year-old girl that packed a bag in the middle of a storm and was last seen walking down a highway. A driver approached her to help and she ran into the woods and was never seen again.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Nothing suggests why she would run away. Her book bag was found a year later. Most likely she was abducted while walking but why did she leave her house in the middle of a “raging storm”?
+
+-u/palabear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Where is the tomb of Alexander the Great?
+
+-u/bdaydeedayday</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The mystery of Kasper Hauser, a youth found wandering Germany in 1828 wearing undersized clothes and no communication skills. After being educated, he claimed to have grown up in the total isolation of a darkened cell. Years later he died after being stabbed by a stranger who gave Kasper a cryptic note, but officials suspected he stabbed himself.
+
+-u/Neon_Parrott</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Where is Shelly Miscavige?
+
+-u/Bucketlist074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Americas lost child AKA The boy  in the box. He was discovered in Philadelphia, Pennsylvania on February 25th, 1953 having a fresh haircut, nail trims but had been severely beaten. Police ruled it off as a homicide and the case is still open to find the murderer.
+
+-u/OldmanHosea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Adam case, where a little boys torso was found in the River Thames. Investigators believe that he was trafficked from Nigeria to be murdered in a ritual sacrifice, but his body has never been formally identified.
+
+-u/whitewidow33B</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Who really murdered the Princes in the Tower?
+
+-u/MRCHalifax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Collapse of the Bronze Age.
+
+-u/guitar_collector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Wow! signal. A strong narrowband radio signal detected on August 15, 1977, by the Ohio State Universitys Big Ear radio telescope in the United States.
+
+-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Vegas mass shooter who was a perfectly contented millionaire with a happy life and just opened fire on people from a hotel room…. Wtf was that about?
+
+-u/fernincornwall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Chicago Tylenol murders in 1982. Who would do such a thing and why? Was it one person acting alone? Did they do it at the distribution center, or did they go to different locations to tamper with the bottles?
+
+-u/kboody22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197701.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Who was Jack the Ripper?
+
+-u/Supraman83</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The consciousness. A child is conceived, and at some point, once the brain becomes complex enough, it starts to develop a feeling of self. It starts to perceive itself as the center of something, and everything else is outside. We naturally distinguish the “I” from the rest of the world. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+This is a light that goes on in the head at some point. In deep sleep, under narcotics or after injury, the light can flicker or go out. When we die, the thing that is me is gone forever. Or is it? Religion says it’s not. It’s an everyday mystery that gets more mysterious the more we think about it. I find this to be the most fascinating question there is.
+
+-u/Speedperson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197704.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">30 Historical Photos Brought To Life With Color</a><br>
 
 <span style="font-size:4em">1. New York, Dock Stevedore At The Fulton Fish Market Holding Giant Lobster Claws,1943 May-June.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197188.jpg" style="width:100%"><br>
 
@@ -743,7 +981,7 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">50 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky15" id="linky14">50 Funny Photos To Make Your Work Go Away</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87192839.jpg" style="width:100%"><br>
 
@@ -845,7 +1083,107 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">38 Spectacular Things People Found in the Wild</a><br>
+## <a href="#linky16" id="linky15">26 Memes That Are Hard to Argue With</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122730/87197417/notmemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122718/87197415/notmemes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122708/87197413/notmemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122710/87197414/notmemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122700/87197412/notmemes2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122657/87197411/notmemes3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122721/87197416/notmemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122732/87197418/notmemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122741/87197419/notmemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122743/87197420/notmemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122752/87197421/notmemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122755/87197422/notmemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122804/87197423/notmemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122806/87197424/notmemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122816/87197425/notmemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122817/87197426/notmemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122827/87197427/notmemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122829/87197428/notmemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122838/87197429/notmemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122840/87197430/notmemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122850/87197431/notmemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122851/87197432/notmemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122900/87197433/notmemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122902/87197434/notmemes24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122911/87197435/notmemes25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122913/87197436/notmemes26.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">15 People Who Had Some Epic Fails</a><br>
+
+<span style="font-size:4em">1. “My friend should probably invest in sunscreen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “One of my mozzarella sticks tonight”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My fiancée wanted to be nice and make some ribs. Turns out Pyrex can shatter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I ordered a plain burger with cheese. I got a plain burger. With cheese.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The weather was nice outside yesterday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My graduation photo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Just a little bit more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “2 pizzas I bought to bake in my hotel that has no oven.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Late night flight canceled. The airline was unable to put us in a hotel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197099.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My pillow in my €120 a night hotel”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My hot oil burn from earlier today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Sun through the skylight is a direct hit to the record player.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I guess they won’t be driving anywhere anytime soon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My sister got me a new book for my birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I was looking forward to moving to the empty window seat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197105.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky19" id="linky18">38 Spectacular Things People Found in the Wild</a><br>
 
 <span style="font-size:4em">1. “Discovered that my tooth implant doesn’t glow like the rest of my teeth under black light. Regular photo for comparison.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178069.jpg" style="width:100%"><br>
 
@@ -922,150 +1260,6 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 <span style="font-size:4em">37. “The snow melted and slid down the wire in a spiral form.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178093.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">38. “The inside of this apple was eaten by wasps.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178095.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">37 Hump Day Memes to Ease the Struggle</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87196793.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">26 Memes That Are Hard to Argue With</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122730/87197417/notmemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122718/87197415/notmemes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122708/87197413/notmemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122710/87197414/notmemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122700/87197412/notmemes2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122657/87197411/notmemes3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122721/87197416/notmemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122732/87197418/notmemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122741/87197419/notmemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122743/87197420/notmemes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122752/87197421/notmemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122755/87197422/notmemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122804/87197423/notmemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122806/87197424/notmemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122816/87197425/notmemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122817/87197426/notmemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122827/87197427/notmemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122829/87197428/notmemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122838/87197429/notmemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122840/87197430/notmemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122850/87197431/notmemes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122851/87197432/notmemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122900/87197433/notmemes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122902/87197434/notmemes24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122911/87197435/notmemes25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/122913/87197436/notmemes26.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
