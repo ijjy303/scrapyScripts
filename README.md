@@ -1,37 +1,41 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/24/2022-17:47:18
+Last updated: 06/24/2022-18:47:18
 <br>
-## <a href="#linky2" id="linky1">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
+## <a href="#linky2" id="linky1">19 Photos Chock Full of WTF</a><br>
 
-<span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Andria Kerchner - Kerchner was named an accomplice to murder in 2012. A Florida police officer was shot and killed by Andrias boyfriend while she was in the car.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033624/87198593/akerch.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Is my glass full or empty?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198637.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Amber Hilberling - In 2013, Amber was accused of pushing her husband out of his apartment window sending him 25 floors down to his death. She claims it was self-defense.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033630/87198594/amber.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. My sleeping cat looks like it has 2 tails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198638.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Charles Schmid - AKA the Pied Piper of Tucson. No thats not Elvis Presley. Thats good old Chuck Schmid. Aptly named for how friendly he was with the teens in his town. He would go on to murder three young girls. What a catch.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033636/87198595/charlesschmid.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Thanks roomie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198639.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. H.H. Holmes - The man with the immaculate mustache is known for being one of Americas first documented serial killers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033647/87198597/holmes.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This photo of a man that looks like Albert Einstein beside the Waldo arm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Jeffrey Dahmer - Cannibal. Serial iller. Sex offender. All of that aside he was a fairly good-looking guy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033653/87198598/jeff.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The picture on my coffee creamer for my flight from Iceland is of a worker at a slaughterhouse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Casey Anthony - Arguably the hottest criminal on this list, Casey was arrested in 2008 and charged with the murder of her daughter Caylee. She was never convicted.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033641/87198596/casey.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Target! Why is there a head of cabbage in a bouquet of flowers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Charles Manson - The infamous cult-leader and musician had his followers murder multiple people including actress Sharon Tate. He looks much worse today than he did in these photos.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033658/87198599/chuck.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Found this car covered in artificial grass on the way home from a car show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Joe Exotic - Oh Joe. Joe was arrested for a murder-for-hire attempt, as we learned in the Netflix documentary Tiger King. Joe is a fun-loving party animal who isnt afraid to fall in love, again, and again.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033710/87198601/joe.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Tampa Police cruiser is in real trouble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Paul John Knowles - AKA the Casanova Killer. He claimed to have killed up to 35 people. He was named the Casanova Killer for his charm and good looks, while also idolizing criminals such as Bonnie and Clyde and Jesse James.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033716/87198602/john.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Candle has stopped candling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Lorena Bobbitt - Yikes, Lorena. If you dont know about her...welp. Just google it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033721/87198603/lorena.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My family recently had a wake up call.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Jodi Arias - Arias stabbed her ex-boyfriend nearly 29 times and shot him in the head. She claimed self-defense. Id let her hurt me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033705/87198600/jodi.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Snoopy’s real face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Richard Ramirez - The Night Stalker. He racked up a total of 19 death sentences. He would eventually go on to die on death row. Women apparently think hes attractive.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033727/87198604/richard.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A choice of grapes on one branch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Copy-paste gone wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Regret doing that photo shoot yet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198650.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -99,79 +103,7 @@ Last updated: 06/24/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">34 Dank Memes That Have Overstayed Their Dankness</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198002.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198003.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198004.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198020.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">18 Celebrities We Didn't Know Were Still Alive</a><br>
+## <a href="#linky4" id="linky3">18 Celebrities We Didn't Know Were Still Alive</a><br>
 
 <span style="font-size:4em">1. Mel Brooks - At 95, the iconic comedian is still blazing in his saddle. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020324/87198541/stillalive2.jpg" style="width:100%"><br>
 
@@ -211,107 +143,7 @@ Last updated: 06/24/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Fresh Memes Crisper than a Morning Breeze</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125126/87198426/dads.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125138/87198427/ducks.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125149/87198429/ebw.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125220/87198434/homies.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125157/87198430/farts.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125200/87198431/food.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125322/87198445/zombie.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125146/87198428/crash.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125208/87198432/glans.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125213/87198433/harry.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125224/87198435/joke.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125232/87198436/kim.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125235/87198437/parent.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125243/87198438/pop.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125115/87198425/death.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125246/87198439/pain.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125255/87198440/squints.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125258/87198441/tim.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125307/87198442/uno.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125310/87198443/vill.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125318/87198444/wings.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">25 Breaking Bad Facts You Never Knew </a><br>
-
-<span style="font-size:4em">1. The fictional tequila Zafiro Añejo in Breaking Bad/BCS was created by the writers because they couldn’t get a real brand to do product placement due to a scene where several people die after drinking it.-u/Kanobe24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Breaking Bad character Mike Ehrmantraut was created because Bob Odenkirk (Saul Goodman) was unavailable for one of the episodes of Breaking Bad as he had to shoot for How I Met Your Mother.-u/prasiptasp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Breaking Bad team was offered $75 million to produce three additional episodes after the final season. This much money was stated to be more than the profits they had made in five years. The team refused, saying that the final episodes did not lend themselves to additional installments.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Jonathan Banks of Breaking Bad appears in 70s period PSA titled Linda’s Film on Menstruation.-u/Buck_Thorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The people who own the housing Breaking Bad was filmed in had to construct a 6 ft. wrought iron fence to stop people from constantly throwing pizzas on their garage roof.-u/Bluest_waters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Vince Gilligan strongly regretted introducing the machine gun to Breaking Bads last season and found writing a convincing explanation for it so difficult that he nearly abandoned the plot device out of frustration.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In the Breaking Bad episode “Ozymandias”, the shows producers secured special permission from the Hollywood guilds to delay the credits (which would normally appear after the main title sequence) until 19 minutes into the episode, in order to preserve the impact of the beginning scene.-u/kevoooandres</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. 4 months after Florida man Ryan Lee Carroll won a Breaking Bad contest to meet the cast, he was charged with running a drug distribution operation when he was found with $1M in synthetic marijuana. Also seized was a souvenir Hazmat suit signed by the Breaking Bad cast.-u/Miskatonica</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. After Breaking Bad showed blue meth, real drug dealers made their meth blue to copy the show.-u/links-Shield632</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In the Breaking Bad episode Ozymandias, baby Holly crying mama in the gas station bathroom following her abduction by Walt was an unscripted fluke that Cranston just rolled with. In that moment, Walt was supposed to look at Holly and realize on his own that he should return her to Skyler.-u/hehyougotme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In the episode of Breaking Bad where Walt throws a whole pizza onto the roof of his house in anger, the pizza was real and Bryan Cranston nailed it in one take.-u/Dan_Gleeballz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197492.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. There was a Breaking Bad Fan-Edit Film created by 2 dedicated fans of the series, simply titled Breaking Bad: The Movie, which condensed the entire series into a two-hour feature film.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197493.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Breaking Bad has a shot-for-shot Spanish remake titled Metástasis featuring Walter Blanco, a struggling high school chemistry teacher in Bogotá, Colombia, who teams up with his previous student José to cook methamphetamine.-u/Raischuu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There really is a Schraderbrau Beer - the beer Hank Schrader brewed in the TV series Breaking Bad. Actor Dean Norris helped launch it in 2019.-u/RyanDanielst</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Albuquerque held a funeral for Walter White to celebrate the series finale of Breaking Bad.-u/mynameisarrgh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. After marathoning Breaking Bad, Anthony Hopkins wrote Bryan Cranston a fan letter, saying (among other things) Your performance as Walter White was the best acting I have seen – ever.-u/DoctorSauce</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Rian Johnson directed both the much-maligned The Last Jedi and the Breaking Bad episode Ozymandias which is widely considered one of the best episodes in the best series in the history of television.-u/kdryan1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. George R. R. Martin, writer of ASOIAF (Game of Thrones) referred to Breaking Bad as Amazing and noted that Walter White is a bigger monster than anyone in Westeros, then said it has influenced him to make an even worse character in future books to fix this.-u/STOP-ENJOYING-THINGS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. AMC gave the writers of Breaking Bad permission to use only one f*ck each season, which led to giant discussions when to use the one f*ck. Because the pilot episode was independent, they used a bunch of f*cks there.-u/neveneffecten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. HBO, Showtime and FX all turned down Breaking Bad.-u/Watnot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Walt Jr. never encountered Jessie in all 62 episodes of Breaking Bad.-u/IsellCarpet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Giancarlo Esposito, who portrayed the villain Gustavo Fring in Breaking Bad, has such a poor Spanish accent that some native speakers have described it as Nails on chalkboard.-u/G_man252</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. There is a Breaking Bad alternate ending of the series finale on the last season DVD. It involves Bryan Cranston playing the role of his Malcolm in the Middle character Hal waking up from a nightmare which happens to be the events of Breaking Bad.-u/xaxnxdxrxexax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The DEA taught Bryan Cranston how to make meth for Breaking Bad.-u/v3ryfuzzyc00t3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Breaking Bad executives were initially wary of casting Bryan Cranston as Walter White, and so offered the role to John Cusack and Matthew Broderick, who both turned it down.-u/Breeze_in_the_Trees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197506.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
+## <a href="#linky5" id="linky4">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
 
 <span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
 
@@ -375,65 +207,187 @@ Last updated: 06/24/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">The Funniest and Freshest Memes of the Week </a><br>
+## <a href="#linky6" id="linky5">25 Breaking Bad Facts You Never Knew </a><br>
 
-<span style="font-size:4em">1. Hes real to me doc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198092.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. The fictional tequila Zafiro Añejo in Breaking Bad/BCS was created by the writers because they couldn’t get a real brand to do product placement due to a scene where several people die after drinking it.-u/Kanobe24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198093.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Breaking Bad character Mike Ehrmantraut was created because Bob Odenkirk (Saul Goodman) was unavailable for one of the episodes of Breaking Bad as he had to shoot for How I Met Your Mother.-u/prasiptasp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198094.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. The Breaking Bad team was offered $75 million to produce three additional episodes after the final season. This much money was stated to be more than the profits they had made in five years. The team refused, saying that the final episodes did not lend themselves to additional installments.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Oh yes, this is what Im talking about. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198095.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Jonathan Banks of Breaking Bad appears in 70s period PSA titled Linda’s Film on Menstruation.-u/Buck_Thorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This is the future venture capitalists want. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198096.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. The people who own the housing Breaking Bad was filmed in had to construct a 6 ft. wrought iron fence to stop people from constantly throwing pizzas on their garage roof.-u/Bluest_waters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. *Just Girly Things* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198097.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Vince Gilligan strongly regretted introducing the machine gun to Breaking Bads last season and found writing a convincing explanation for it so difficult that he nearly abandoned the plot device out of frustration.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Bro, let him eat his steak however he wants. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198098.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. In the Breaking Bad episode “Ozymandias”, the shows producers secured special permission from the Hollywood guilds to delay the credits (which would normally appear after the main title sequence) until 19 minutes into the episode, in order to preserve the impact of the beginning scene.-u/kevoooandres</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198099.png" style="width:100%"><br>
+<span style="font-size:4em">8. 4 months after Florida man Ryan Lee Carroll won a Breaking Bad contest to meet the cast, he was charged with running a drug distribution operation when he was found with $1M in synthetic marijuana. Also seized was a souvenir Hazmat suit signed by the Breaking Bad cast.-u/Miskatonica</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. You know, he does make a good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198100.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. After Breaking Bad showed blue meth, real drug dealers made their meth blue to copy the show.-u/links-Shield632</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198101.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. In the Breaking Bad episode Ozymandias, baby Holly crying mama in the gas station bathroom following her abduction by Walt was an unscripted fluke that Cranston just rolled with. In that moment, Walt was supposed to look at Holly and realize on his own that he should return her to Skyler.-u/hehyougotme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Would you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198102.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. In the episode of Breaking Bad where Walt throws a whole pizza onto the roof of his house in anger, the pizza was real and Bryan Cranston nailed it in one take.-u/Dan_Gleeballz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197492.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198103.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. There was a Breaking Bad Fan-Edit Film created by 2 dedicated fans of the series, simply titled Breaking Bad: The Movie, which condensed the entire series into a two-hour feature film.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197493.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198104.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. Breaking Bad has a shot-for-shot Spanish remake titled Metástasis featuring Walter Blanco, a struggling high school chemistry teacher in Bogotá, Colombia, who teams up with his previous student José to cook methamphetamine.-u/Raischuu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198105.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. There really is a Schraderbrau Beer - the beer Hank Schrader brewed in the TV series Breaking Bad. Actor Dean Norris helped launch it in 2019.-u/RyanDanielst</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198106.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. Albuquerque held a funeral for Walter White to celebrate the series finale of Breaking Bad.-u/mynameisarrgh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198107.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. After marathoning Breaking Bad, Anthony Hopkins wrote Bryan Cranston a fan letter, saying (among other things) Your performance as Walter White was the best acting I have seen – ever.-u/DoctorSauce</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198109.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. Rian Johnson directed both the much-maligned The Last Jedi and the Breaking Bad episode Ozymandias which is widely considered one of the best episodes in the best series in the history of television.-u/kdryan1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Its what you deserve babe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198110.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. George R. R. Martin, writer of ASOIAF (Game of Thrones) referred to Breaking Bad as Amazing and noted that Walter White is a bigger monster than anyone in Westeros, then said it has influenced him to make an even worse character in future books to fix this.-u/STOP-ENJOYING-THINGS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. We in the clear boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198111.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. AMC gave the writers of Breaking Bad permission to use only one f*ck each season, which led to giant discussions when to use the one f*ck. Because the pilot episode was independent, they used a bunch of f*cks there.-u/neveneffecten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198112.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. HBO, Showtime and FX all turned down Breaking Bad.-u/Watnot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197501.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Thats facts, bro, no cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198113.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. Walt Jr. never encountered Jessie in all 62 episodes of Breaking Bad.-u/IsellCarpet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197502.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Aww he looks cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198114.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. Giancarlo Esposito, who portrayed the villain Gustavo Fring in Breaking Bad, has such a poor Spanish accent that some native speakers have described it as Nails on chalkboard.-u/G_man252</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Some men just want to watch the world burn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198115.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. There is a Breaking Bad alternate ending of the series finale on the last season DVD. It involves Bryan Cranston playing the role of his Malcolm in the Middle character Hal waking up from a nightmare which happens to be the events of Breaking Bad.-u/xaxnxdxrxexax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197504.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198116.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. The DEA taught Bryan Cranston how to make meth for Breaking Bad.-u/v3ryfuzzyc00t3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Damn, I do be looking good though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198117.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. Breaking Bad executives were initially wary of casting Bryan Cranston as Walter White, and so offered the role to John Cusack and Matthew Broderick, who both turned it down.-u/Breeze_in_the_Trees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198118.png" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198119.jpeg" style="width:100%"><br>
+## <a href="#linky7" id="linky6">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
 
-<span style="font-size:4em">28. Lmao, the picture of this will live in my head the rest of my life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198120.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Get it, because there was none. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198121.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Andria Kerchner - Kerchner was named an accomplice to murder in 2012. A Florida police officer was shot and killed by Andrias boyfriend while she was in the car.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033624/87198593/akerch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Amber Hilberling - In 2013, Amber was accused of pushing her husband out of his apartment window sending him 25 floors down to his death. She claims it was self-defense.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033630/87198594/amber.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Charles Schmid - AKA the Pied Piper of Tucson. No thats not Elvis Presley. Thats good old Chuck Schmid. Aptly named for how friendly he was with the teens in his town. He would go on to murder three young girls. What a catch.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033636/87198595/charlesschmid.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. H.H. Holmes - The man with the immaculate mustache is known for being one of Americas first documented serial killers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033647/87198597/holmes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Jeffrey Dahmer - Cannibal. Serial iller. Sex offender. All of that aside he was a fairly good-looking guy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033653/87198598/jeff.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Casey Anthony - Arguably the hottest criminal on this list, Casey was arrested in 2008 and charged with the murder of her daughter Caylee. She was never convicted.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033641/87198596/casey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Charles Manson - The infamous cult-leader and musician had his followers murder multiple people including actress Sharon Tate. He looks much worse today than he did in these photos.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033658/87198599/chuck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Joe Exotic - Oh Joe. Joe was arrested for a murder-for-hire attempt, as we learned in the Netflix documentary Tiger King. Joe is a fun-loving party animal who isnt afraid to fall in love, again, and again.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033710/87198601/joe.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Paul John Knowles - AKA the Casanova Killer. He claimed to have killed up to 35 people. He was named the Casanova Killer for his charm and good looks, while also idolizing criminals such as Bonnie and Clyde and Jesse James.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033716/87198602/john.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Lorena Bobbitt - Yikes, Lorena. If you dont know about her...welp. Just google it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033721/87198603/lorena.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Jodi Arias - Arias stabbed her ex-boyfriend nearly 29 times and shot him in the head. She claimed self-defense. Id let her hurt me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033705/87198600/jodi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Richard Ramirez - The Night Stalker. He racked up a total of 19 death sentences. He would eventually go on to die on death row. Women apparently think hes attractive.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033727/87198604/richard.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">27 Jokes That People Just Didn’t Get</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123452/87198393/jokegetting1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123456/87198394/jokegetting2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123510/87198396/jokegetting4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125547/87198447/who-would-win-.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123516/87198397/jokegetting5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123521/87198398/jokegetting6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123527/87198399/jokegetting7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123532/87198400/jokegetting8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123538/87198401/jokegetting9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123543/87198402/jokegetting10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123549/87198403/jokegetting11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123554/87198404/jokegetting12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123601/87198405/jokegetting13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123606/87198406/jokegetting14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123613/87198407/jokegetting15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123617/87198408/jokegetting16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123625/87198409/jokegetting17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123628/87198410/jokegetting18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123636/87198411/jokegetting19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123640/87198412/jokegetting20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123648/87198413/jokegetting21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123651/87198414/jokegetting22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123659/87198415/jokegetting23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123701/87198416/jokegetting24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123710/87198417/jokegetting25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123712/87198418/jokegetting26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123722/87198419/jokegetting27.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">17 Interesting Facts We'd Never Heard</a><br>
+
+<span style="font-size:4em">1. This is how huge a moose’s tooth is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Some movie theaters have the answer to the question that’s on literally everyone’s mind after a movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. You can’t put cartoons on food packaging in Chile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. George Jetson is about to be born.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Boston Bruins know how to party… (From their 2011 Stanley Cup Final win).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A “modern” tomato vs. one grown from 150-year-old seeds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The Portuguese care about their cellphone tower aesthetics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The inside of the Leaning Tower of Pisa is… underwhelming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This is what Pangea looks like with modern borders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. There IS a difference between jam, jelly, preserves, and butter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Alabama got real big snakes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Coconuts can be polished and they look sick when you do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This is what the mold Goldfish are made out of looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If you sever a nerve in your finger it won’t prune anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Some remotes have a button just for soccer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Revolving fridges exist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. On September 2nd, 2019, an incredible thing happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197787.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -541,103 +495,7 @@ Last updated: 06/24/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">17 Interesting Facts We'd Never Heard</a><br>
-
-<span style="font-size:4em">1. This is how huge a moose’s tooth is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Some movie theaters have the answer to the question that’s on literally everyone’s mind after a movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. You can’t put cartoons on food packaging in Chile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. George Jetson is about to be born.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Boston Bruins know how to party… (From their 2011 Stanley Cup Final win).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A “modern” tomato vs. one grown from 150-year-old seeds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The Portuguese care about their cellphone tower aesthetics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The inside of the Leaning Tower of Pisa is… underwhelming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This is what Pangea looks like with modern borders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. There IS a difference between jam, jelly, preserves, and butter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Alabama got real big snakes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Coconuts can be polished and they look sick when you do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. This is what the mold Goldfish are made out of looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If you sever a nerve in your finger it won’t prune anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Some remotes have a button just for soccer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Revolving fridges exist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. On September 2nd, 2019, an incredible thing happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197787.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">27 Jokes That People Just Didn’t Get</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123452/87198393/jokegetting1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123456/87198394/jokegetting2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123510/87198396/jokegetting4.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125547/87198447/who-would-win-.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123516/87198397/jokegetting5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123521/87198398/jokegetting6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123527/87198399/jokegetting7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123532/87198400/jokegetting8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123538/87198401/jokegetting9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123543/87198402/jokegetting10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123549/87198403/jokegetting11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123554/87198404/jokegetting12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123601/87198405/jokegetting13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123606/87198406/jokegetting14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123613/87198407/jokegetting15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123617/87198408/jokegetting16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123625/87198409/jokegetting17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123628/87198410/jokegetting18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123636/87198411/jokegetting19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123640/87198412/jokegetting20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123648/87198413/jokegetting21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123651/87198414/jokegetting22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123659/87198415/jokegetting23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123701/87198416/jokegetting24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123710/87198417/jokegetting25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123712/87198418/jokegetting26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123722/87198419/jokegetting27.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Things We’re Living In the "Golden Age" Of</a><br>
+## <a href="#linky11" id="linky10">25 Things We’re Living In the "Golden Age" Of</a><br>
 
 <span style="font-size:4em">1. Photography. Now almost everyone has a camera, usually in their phone. And they are so simple to use its easy to take decent photos. It used to be a camera was a dedicated device you had to learn how to use properly and have the film developed by someone, or yourself if you had a darkroom and knowledge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197706.jpg" style="width:100%"><br>
 
@@ -690,6 +548,140 @@ Last updated: 06/24/2022-17:47:18
 <span style="font-size:4em">
 
 You can eat, drink, or vape it. People are not losing their freedom as much over it and its becoming less of a social stigma. One problem I do see is how ridiculous the potency is with the new-age THC products and not everyone can handle 80-90%+ THC. Sometimes it feels like a borderline psychedelic. I remember having this one particular strain of weed that got me so high that I felt like I did a bump of ketamine.-u/SirGanjaSpliffington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197731.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">The Funniest and Freshest Memes of the Week </a><br>
+
+<span style="font-size:4em">1. Hes real to me doc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198092.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198093.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198094.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh yes, this is what Im talking about. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198095.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This is the future venture capitalists want. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198096.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. *Just Girly Things* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198097.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Bro, let him eat his steak however he wants. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198098.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198099.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. You know, he does make a good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198100.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198101.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Would you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198102.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198103.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198104.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198105.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198106.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198107.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198109.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Its what you deserve babe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198110.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. We in the clear boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198111.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198112.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Thats facts, bro, no cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198113.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Aww he looks cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198114.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Some men just want to watch the world burn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198115.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198116.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Damn, I do be looking good though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198117.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198118.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198119.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Lmao, the picture of this will live in my head the rest of my life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198120.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Get it, because there was none. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198121.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">34 Dank Memes That Have Overstayed Their Dankness</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198020.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
