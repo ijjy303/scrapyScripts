@@ -1,237 +1,117 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/24/2022-08:47:18
+Last updated: 06/24/2022-09:47:18
 <br>
-## <a href="#linky2" id="linky1">25 Things We’re Living In the "Golden Age" Of</a><br>
+## <a href="#linky2" id="linky1">The Funniest and Freshest Memes of the Week </a><br>
 
-<span style="font-size:4em">1. Photography. Now almost everyone has a camera, usually in their phone. And they are so simple to use its easy to take decent photos. It used to be a camera was a dedicated device you had to learn how to use properly and have the film developed by someone, or yourself if you had a darkroom and knowledge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197706.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Hes real to me doc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198092.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em"> And the photos you could take were limited by the film roll. Use up a 36 exposure roll? Youll have to stop and put in a new roll. Using ISO 200 film, but you want to take low-light photos? Youll have to stop, remove the 200 roll, and put in an ISO 400 (or higher) roll.-u/Chrome_Armadillo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197711.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198093.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Id say cleanliness when compared to past ages, but something about The Golden Age of Showers doesnt sit right…-u/Xx-BlackSheep-xX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197712.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198094.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Disabled person here. We live in a golden age of accessibility tools based on technological advancements. Just take the car industry as an example. The amount of aftermarket accessibility accessories that were invented in the past 10 years alone have made driving accessible to many people with disabilities.-u/Cristal1337</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197713.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Oh yes, this is what Im talking about. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198095.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I was just thinking the other day: Juice. My mom LOVED juice but she passed away in 00 and when I realized I had a full OJ-sized jug of straight-up Watermelon Juice in my fridge, I got sad that she missed out on even the POM craze and just really a bunch of super tasty juice from fruits that she may not have even knew existed like açai and sh*t.-u/Hambulance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197714.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This is the future venture capitalists want. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198096.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Entertainment. Its wild, Im overwhelmed by my choices when it comes to picking out shows/movies to watch, music to listen to, fashion, and other trends to follow. Its definitely unsustainable, though.-u/Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197715.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. *Just Girly Things* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198097.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Self-education. YouTube should be remembered as an important of an invention as the television. We can teach ourselves almost anything, watching enough videos and reading about it online.-u/Countrydiscipline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197709.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Bro, let him eat his steak however he wants. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198098.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The ease of listening to music is pretty incredible right now.-u/hypo-osmotic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197716.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198099.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. PALEONTOLOGY. The things we know now about the prehistoric world are mind-blowing. More and more is being worked out about the looks and behavior of dinosaurs and all their fellow extinct organisms. Compared to what was happening when I was a kid we’ve moved on in leaps and bounds.If you haven’t yet, check out Sir David and the BBC’s Prehistoric World. Awesome.Oops. Prehistoric Planet, not Prehistoric World.-u/cold-hard-steel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197717.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. You know, he does make a good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The golden age for scammers.-u/Error404DudeNotFound</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197718.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198101.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Artistic creation. As a musician born in the early 1970s, Im constantly astounded by how cheap and easy it is to record and release high-quality music.-u/ThunderClap_Fween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197719.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Would you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198102.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Board games.-u/sstair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197720.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198103.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Phones and depression.-u/CARCAR1555</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197721.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198104.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Consumerism and instant gratification.-u/CandidJudgement</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197707.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198105.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Envy. Never has it been so easy to witness so many people having so many things youd wish youd have, so excessively. People used to envy the popular guy in their town, the pretty girl, the rich family. The modern world is Hell for the enviously inclined.-u/Redditforgoit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197722.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198106.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A**. The 90s/00s everyone was trying to have small asses. The phrase does my bum look big in this? was so common it was a cliche. Now its the reverse. Plus yoga pants are considered normal fashion. Bikini bottoms have gotten way smaller and are worn way higher. It truly is the golden age.-u/privatetudor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197723.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198107.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Doing stupid sh*t for fake internet points.-u/I_N_C_O_M_I_N_G</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197724.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198109.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Combustion Engines. They are at their most efficient brought on by the push towards hybrids and electric, and the rising cost of fuel. Factory delivered 4 cylinders, 2-liter engines are over 400 horsepower now. With a warranty. And they still do 40mpg! So I think were in the golden age of the combustion engine, which will be slow and drawn out, giving way to the new age of electronic, hybrid, and perhaps even hydrogen, powered vehicles.-u/Spazloy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197725.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Its what you deserve babe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198110.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Beer. Amazing microbreweries have proliferated over the past 25 years in the US. Sometimes I get choice paralysis at my local liquor store.-u/bubbygups</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197726.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. We in the clear boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198111.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Remote work. We got it during the pandemic and now we need to make it the norm. The ability to make good money and live anywhere is a luxury that was hard to imagine just 10 years ago.-u/Aldebaran7790</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197727.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198112.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The golden age of misinformation and sensory overload. Never before had humans had to deal with so much information thrown at them. Every time you put effort into discrediting an information piece as a fake, 10x the amount gets thrown at you again before you finished. No matter how much effort you put into sorting truth from fake, you will never keep up until at some point you either give up and accept information as is or withdraw from letting information reach you.-u/TonkatsuRa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197728.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Thats facts, bro, no cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198113.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Porn. OF, Loyalfans, Instagram, TikTok, etc., are just full of people making x-rated content or thirst traps. Man, you used to have to go to dedicated sites for porn, but you can get it anywhere these days.-u/BeanieGuy234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197708.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Aww he looks cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198114.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Astronomy. We happen to exist for a brief moment in cosmological time where we can actually see other galaxies, and get a sense of the huge scale of the universe. Eventually, in the far future, space will be expanding too fast for the light of distant galaxies or the afterglow of the big bang to reach us.-u/Arc125</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197729.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Some men just want to watch the world burn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198115.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Marijuana. Its becoming more and more legal so more people are experimenting with it and creating all sorts of insane potent strains and concentrates. The weed industry brings in so much money its ridiculous. New discoveries are being made, new medicines are being created from it, and you dont even have to smoke it anymore. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197730.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198116.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-You can eat, drink, or vape it. People are not losing their freedom as much over it and its becoming less of a social stigma. One problem I do see is how ridiculous the potency is with the new-age THC products and not everyone can handle 80-90%+ THC. Sometimes it feels like a borderline psychedelic. I remember having this one particular strain of weed that got me so high that I felt like I did a bump of ketamine.-u/SirGanjaSpliffington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197731.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Damn, I do be looking good though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198117.jpeg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198118.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Freaky Facts about Bill Gates</a><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198119.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Bill Gates once held up a line at a supermarket searching for a 50-cent coupon.
-
--u/LetsPlayCanasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197579.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Lmao, the picture of this will live in my head the rest of my life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198120.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When Bill Gates got married, he bought out all the available hotel rooms in Lanai to keep media from staying there & hired all the helicopters on Maui to keep photographers from flying over the wedding.
-
--u/Battle4Seattle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Warren Buffet, the worlds third-richest man with a net worth of 75 billion, took Bill Gates to McDonalds and paid for his meal using coupons.
-
--u/EddieC1088</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bill Gates succeeded in his mission to build a toilet to help combat the sanitary crisis across multiple parts of Africa and India. Costing $350, it’s powered by worms, and doesnt require to be hooked up to a sewer system.
-
--u/watrbuffalo95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Bill gates purchased Leonardo da Vincis Codex for $30,802,500. Three years later he had its pages scanned into digital image files, some of which were later distributed as a screensaver and wallpaper files on a CD-ROM as part of a Microsoft Plus! for Windows so everyone could enjoy them.
-
--u/ImTheGerbilKing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A 9-yr-old Pakistani girl, Arfa Karim, was the youngest Microsoft Certified Professional (MCP) until 2008. When she suffered cardiac arrest in 2011, Bill Gates assembled an international panel of doctors to advise the local physicians treating her and offered to pay for treatment in the U.S.
-
--u/anon_ymous_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bill Gates has a McDonald’s Gold Card for unlimited free fast food.
-
--u/Pixelmasterz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bill Gates predicted that the growth of instructional software will replace textbooks. However, in a 2018 survey of college students, the trade publication Library Journal found that 75 percent say that reading print books is easier than e-books.
-
--u/vannybros</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Before proposing to Melinda, Bill Gates presented her with a whiteboard listing out the pros and cons of getting married.
-
--u/SonOfQuora</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Soon after Bill Gates had gone to start Microsoft, a Harvard professor who had worked with him recalled, He had moved to Albuquerque... to run a small company writing code for microprocessors, of all things. I remember thinking: Such a brilliant kid. What a waste.
-
--u/MountainWafer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Hospital staff were stunned when Bill Gates made an unexpected visit in 2010 to the death bed of Dr. Ed Roberts, his first employer and developer of the first commercially successful personal computer.
-
--u/Sansabina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. When Steve Jobs accused Microsoft of stealing idea for Windows from Mac, Bill Gates replied: Well, Steve.... I think its more like we both had this rich neighbor named Xerox and I broke into his house to steal the TV set and found out that you had already stolen it.
-
--u/tinkrman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Bill Gates has donated more than $50 billion to charity.
-
--u/insane_playzYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1989, Bill Gates answered a Microsoft tech support call, and identified himself only as William, then solved the issue. The customer called back later specifically requesting him.
-
--u/deanylev</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197590.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The generic silhouette in Microsoft Outlook 2010 is actually a shadow cutout of Bill Gates mugshot when he got arrested for a driving offense in 1977.
-
--u/d_tothe_ust2353</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bill Gates once released mosquitos during a Ted Talk, stating that poor people shouldnt be the only ones to have this experience.
-
--u/Olek173</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bill Gates mother, Mary, knew John Opel, CEO of IBM, because both served on the national United Way committee. At Marys request, Opel set up a meeting with Bill Gates, CEO of then-small software firm Microsoft, to discuss the possibility of using PC-DOS for IBMs about-to-be-released PC.
-
--u/design-responsibly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bill Gates coyly defended his LSD use by saying I never missed a day of work.
-
--u/longingforlong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Solitaire was created by a Microsoft intern who wasnt paid for the game. Bill Gates liked the idea but complained it was too difficult to win at this game. Original version also included a fake Excel spreadsheet to hide the game from your boss.
-
--u/topredditgeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When Sega was discontinuing the Dreamcast in 2001, Chairman Isao Okawa offered Microsoft their assets so that the Xbox could have backwards compatibility with Dreamcast games so the console could live on in some way. Okawa met with Bill Gates several times before negotiations fell through.
-
--u/derstherower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Bill Gates accidentally got into philanthropy after he and his wife accidentally came across extremely impoverished people while they were sight seeing. He now says philanthropy is the best job in the world.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Bill Gates wrote his schools computer program for scheduling students in their classes. He edited it so he would end up sitting with female students.
-
--u/Deadpooldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197597.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. Control+Alt+Delete was used to log into Windows. According to Bill Gates, there was an option to make a single button for such a command, but the IBM keyboard designer didn’t want to give Microsoft a single button. So Microsoft decided to use “Ctrl+Alt+Del” as a way to log into Windows.
-
--u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Nebraskas highest honor is being a Nebraska Admiral, despite Nebraska being the USs only triply-landlocked state. It has been awarded to numerous presidents, Bill Gates and Bill Murray, and The Queen.
-
--u/Discount_Timelord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. An Atari executive recalled that he showed Bill Gates a game and defeated him 35 of 37 times. When they met again a month later, Gates won or tied every game. He had studied the game until he solved it.
-
--u/Yubisaki_Milk_Tea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197601.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Get it, because there was none. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198121.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">33 Internet Responses that Absolutely Killed It</a><br>
+## <a href="#linky3" id="linky2">22 Fake Things That People Still Believe</a><br>
 
-<span style="font-size:4em">1. Forgive us Pluto, we had no idea what we were doing!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014823/87197563/87193813.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Touching a baby bird will make its parents reject it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013806/87197542/hoaxes1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014908/87197569/87193823.png" style="width:100%"><br>
+<span style="font-size:4em">2. That cracking your knuckles gives you arthritis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013817/87197543/hoaxes3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Yall watch out for them choopah cobbler, theyre nasty buggers!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014835/87197564/87193817.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Shaving making hair grow in thicker.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013830/87197544/hoaxes4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Imagine posting a negative review for a restaurant / bar and then getting called out and savaged by the owner.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014919/87197571/87193827.png" style="width:100%"><br>
+<span style="font-size:4em">4. MLMs, and ‘be your own boss’ scams. Im not sure how many documentaries need to be put on YouTube before people will stop buying into these companies and wasting their money.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013755/87197541/hoaxes2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Yeah leave us alone, we aint done nothing!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014846/87197565/87193820.png" style="width:100%"><br>
+<span style="font-size:4em">5. Blood in your veins is blue and red in your arteries. Literally every elementary school teacher I had kept this lie going.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013840/87197545/hoaxes7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014928/87197572/87193828.png" style="width:100%"><br>
+<span style="font-size:4em">6. We only use 10% of our brain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013848/87197546/hoaxes5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014854/87197566/87193818.png" style="width:100%"><br>
+<span style="font-size:4em">7. Lie detectors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013851/87197547/hoaxes8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014917/87197570/87193824.png" style="width:100%"><br>
+<span style="font-size:4em">8. The food pyramid.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013859/87197548/hoaxes9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014857/87197567/87193821.png" style="width:100%"><br>
+<span style="font-size:4em">9. That people are “right” or “left” brained thinkers, and that it has any bearing on their personality and level of logic or creativity.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013903/87197549/hoaxes10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014930/87197573/87193831.png" style="width:100%"><br>
+<span style="font-size:4em">10. Detox. What do you think your liver and kidneys are doing all day? If they weren’t working you would be on a form of detox called dialysis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013911/87197550/hoaxes11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014906/87197568/87193822.png" style="width:100%"><br>
+<span style="font-size:4em">11. That MSG is bad for you. I meet people regularly that think its a super insta-cancer ingredient that will cause you to die or something based on 80s/90s false scares. Then I tell them, you do know it naturally occurs on tomatoes, yes?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013914/87197551/hoaxes12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014939/87197574/87193832.png" style="width:100%"><br>
+<span style="font-size:4em">12. That dog mouths are cleaner than humans!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013923/87197552/hoaxes13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197075.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The earth being flat. We have literally gone to space, taken pictures, boiled all of it down to the level a kindergartener can understand, and some idiots still dont get it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013925/87197553/hoaxes14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Well that is disturbing and about 5 different kinds of f**ked up!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014942/87197575/87193833.png" style="width:100%"><br>
+<span style="font-size:4em">14. Personal carbon footprint or any green initiative which focuses on individual action. BP invented the entire concept during a marketing push to hide the fact that like 72 companies produce 90% of pollution.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013935/87197554/hoaxes15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197074.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. If you pull out a gray hair, three more grow in its place. My sister still believes this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013937/87197555/hoaxes16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197089.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Professional fighters dont actually have to register their hands as weapons. No body part can be registered as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013946/87197556/hoaxes17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197076.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. That NASA spent tons of money developing a pen to work in space and the Russians just used a pencil.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013948/87197557/hoaxes18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197070.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. That it’s illegal to keep the light on in the car while driving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013957/87197558/hoaxes19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197072.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. That cold weather can give you a cold.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013958/87197559/hoaxes20.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197088.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. That you swallow 8 spiders a year in your sleep.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014009/87197560/hoaxes21.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197073.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. People putting needles, poison, or drugs in Halloween candy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014020/87197561/hoaxes23.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197087.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Wolf hierarchy with alpha on top and omega at the bottom. The author of the original paper has been on a thirty-year crusade to make people forget he ever wrote it. The following year he published a correction.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014031/87197562/hoaxes22.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">30 Strange Encounters With Strange People</a><br>
+## <a href="#linky4" id="linky3">30 Strange Encounters With Strange People</a><br>
 
 <span style="font-size:4em">1. I was at Busch Gardens in Virginia, maybe 9 years old when an elderly man walked up to me and gave me a 1 million dollar bill with his face on it. I still have it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197201.jpg" style="width:100%"><br>
 
@@ -388,6 +268,52 @@ I say No and look at him, he keeps standing there, then he goes a few steps away
 If I hadnt been on the phone, distracted and tired, I would never have let him get so close to me. What could have happened but didnt? Just so strange.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197226.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. in the dollar store by the hollywood theater in portland oregon, (its like 20 miles from my house) i was buying some soda when i saw a guy in a vietnam veteran jacket. i, being the patriotic m**********r that i am, said that i appreciated his service. then he said that will be $100. i thought he was joking. he was not. i did not have $100, and i said to him as much. he said well give me anything you have. i gave him five cents, as i only carry what i need to buy stuff on me, and that was the change. he just walked away without thanking me. it was weird as all hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197227.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">Fresh Memes Crisper than a Morning Breeze</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125126/87198426/dads.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125138/87198427/ducks.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125149/87198429/ebw.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125220/87198434/homies.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125157/87198430/farts.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125200/87198431/food.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125322/87198445/zombie.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125146/87198428/crash.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125208/87198432/glans.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125213/87198433/harry.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125224/87198435/joke.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125232/87198436/kim.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125235/87198437/parent.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125243/87198438/pop.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125115/87198425/death.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125246/87198439/pain.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125255/87198440/squints.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125258/87198441/tim.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125307/87198442/uno.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125310/87198443/vill.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125318/87198444/wings.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -727,167 +653,221 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Fresh Memes Crisper than a Morning Breeze</a><br>
+## <a href="#linky11" id="linky10">23 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125126/87198426/dads.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198827.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125138/87198427/ducks.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125149/87198429/ebw.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125220/87198434/homies.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125157/87198430/farts.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125200/87198431/food.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125322/87198445/zombie.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125146/87198428/crash.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125208/87198432/glans.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125213/87198433/harry.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125224/87198435/joke.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125232/87198436/kim.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125235/87198437/parent.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198840.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125243/87198438/pop.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125115/87198425/death.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125246/87198439/pain.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198843.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125255/87198440/squints.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125258/87198441/tim.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125307/87198442/uno.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198846.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125310/87198443/vill.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125318/87198444/wings.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198848.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198828.png" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">33 Dank Memes to Laugh the Pain Away</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197261.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197265.gif" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197277.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197279.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197287.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198849.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">22 Fake Things That People Still Believe</a><br>
+## <a href="#linky12" id="linky11">25 Things We’re Living In the "Golden Age" Of</a><br>
 
-<span style="font-size:4em">1. Touching a baby bird will make its parents reject it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013806/87197542/hoaxes1.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Photography. Now almost everyone has a camera, usually in their phone. And they are so simple to use its easy to take decent photos. It used to be a camera was a dedicated device you had to learn how to use properly and have the film developed by someone, or yourself if you had a darkroom and knowledge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197706.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. That cracking your knuckles gives you arthritis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013817/87197543/hoaxes3.jpg" style="width:100%"><br>
+<span style="font-size:4em"> And the photos you could take were limited by the film roll. Use up a 36 exposure roll? Youll have to stop and put in a new roll. Using ISO 200 film, but you want to take low-light photos? Youll have to stop, remove the 200 roll, and put in an ISO 400 (or higher) roll.-u/Chrome_Armadillo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197711.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Shaving making hair grow in thicker.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013830/87197544/hoaxes4.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Id say cleanliness when compared to past ages, but something about The Golden Age of Showers doesnt sit right…-u/Xx-BlackSheep-xX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197712.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. MLMs, and ‘be your own boss’ scams. Im not sure how many documentaries need to be put on YouTube before people will stop buying into these companies and wasting their money.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013755/87197541/hoaxes2.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Disabled person here. We live in a golden age of accessibility tools based on technological advancements. Just take the car industry as an example. The amount of aftermarket accessibility accessories that were invented in the past 10 years alone have made driving accessible to many people with disabilities.-u/Cristal1337</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197713.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Blood in your veins is blue and red in your arteries. Literally every elementary school teacher I had kept this lie going.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013840/87197545/hoaxes7.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I was just thinking the other day: Juice. My mom LOVED juice but she passed away in 00 and when I realized I had a full OJ-sized jug of straight-up Watermelon Juice in my fridge, I got sad that she missed out on even the POM craze and just really a bunch of super tasty juice from fruits that she may not have even knew existed like açai and sh*t.-u/Hambulance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197714.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. We only use 10% of our brain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013848/87197546/hoaxes5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Entertainment. Its wild, Im overwhelmed by my choices when it comes to picking out shows/movies to watch, music to listen to, fashion, and other trends to follow. Its definitely unsustainable, though.-u/Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197715.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Lie detectors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013851/87197547/hoaxes8.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Self-education. YouTube should be remembered as an important of an invention as the television. We can teach ourselves almost anything, watching enough videos and reading about it online.-u/Countrydiscipline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197709.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The food pyramid.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013859/87197548/hoaxes9.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The ease of listening to music is pretty incredible right now.-u/hypo-osmotic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197716.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. That people are “right” or “left” brained thinkers, and that it has any bearing on their personality and level of logic or creativity.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013903/87197549/hoaxes10.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. PALEONTOLOGY. The things we know now about the prehistoric world are mind-blowing. More and more is being worked out about the looks and behavior of dinosaurs and all their fellow extinct organisms. Compared to what was happening when I was a kid we’ve moved on in leaps and bounds.If you haven’t yet, check out Sir David and the BBC’s Prehistoric World. Awesome.Oops. Prehistoric Planet, not Prehistoric World.-u/cold-hard-steel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197717.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Detox. What do you think your liver and kidneys are doing all day? If they weren’t working you would be on a form of detox called dialysis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013911/87197550/hoaxes11.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The golden age for scammers.-u/Error404DudeNotFound</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197718.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. That MSG is bad for you. I meet people regularly that think its a super insta-cancer ingredient that will cause you to die or something based on 80s/90s false scares. Then I tell them, you do know it naturally occurs on tomatoes, yes?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013914/87197551/hoaxes12.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Artistic creation. As a musician born in the early 1970s, Im constantly astounded by how cheap and easy it is to record and release high-quality music.-u/ThunderClap_Fween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197719.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. That dog mouths are cleaner than humans!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013923/87197552/hoaxes13.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Board games.-u/sstair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197720.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The earth being flat. We have literally gone to space, taken pictures, boiled all of it down to the level a kindergartener can understand, and some idiots still dont get it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013925/87197553/hoaxes14.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Phones and depression.-u/CARCAR1555</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197721.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Personal carbon footprint or any green initiative which focuses on individual action. BP invented the entire concept during a marketing push to hide the fact that like 72 companies produce 90% of pollution.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013935/87197554/hoaxes15.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Consumerism and instant gratification.-u/CandidJudgement</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. If you pull out a gray hair, three more grow in its place. My sister still believes this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013937/87197555/hoaxes16.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Envy. Never has it been so easy to witness so many people having so many things youd wish youd have, so excessively. People used to envy the popular guy in their town, the pretty girl, the rich family. The modern world is Hell for the enviously inclined.-u/Redditforgoit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197722.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Professional fighters dont actually have to register their hands as weapons. No body part can be registered as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013946/87197556/hoaxes17.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. A**. The 90s/00s everyone was trying to have small asses. The phrase does my bum look big in this? was so common it was a cliche. Now its the reverse. Plus yoga pants are considered normal fashion. Bikini bottoms have gotten way smaller and are worn way higher. It truly is the golden age.-u/privatetudor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197723.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. That NASA spent tons of money developing a pen to work in space and the Russians just used a pencil.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013948/87197557/hoaxes18.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Doing stupid sh*t for fake internet points.-u/I_N_C_O_M_I_N_G</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197724.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. That it’s illegal to keep the light on in the car while driving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013957/87197558/hoaxes19.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Combustion Engines. They are at their most efficient brought on by the push towards hybrids and electric, and the rising cost of fuel. Factory delivered 4 cylinders, 2-liter engines are over 400 horsepower now. With a warranty. And they still do 40mpg! So I think were in the golden age of the combustion engine, which will be slow and drawn out, giving way to the new age of electronic, hybrid, and perhaps even hydrogen, powered vehicles.-u/Spazloy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197725.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. That cold weather can give you a cold.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013958/87197559/hoaxes20.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Beer. Amazing microbreweries have proliferated over the past 25 years in the US. Sometimes I get choice paralysis at my local liquor store.-u/bubbygups</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197726.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. That you swallow 8 spiders a year in your sleep.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014009/87197560/hoaxes21.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Remote work. We got it during the pandemic and now we need to make it the norm. The ability to make good money and live anywhere is a luxury that was hard to imagine just 10 years ago.-u/Aldebaran7790</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197727.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. People putting needles, poison, or drugs in Halloween candy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014020/87197561/hoaxes23.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. The golden age of misinformation and sensory overload. Never before had humans had to deal with so much information thrown at them. Every time you put effort into discrediting an information piece as a fake, 10x the amount gets thrown at you again before you finished. No matter how much effort you put into sorting truth from fake, you will never keep up until at some point you either give up and accept information as is or withdraw from letting information reach you.-u/TonkatsuRa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197728.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Wolf hierarchy with alpha on top and omega at the bottom. The author of the original paper has been on a thirty-year crusade to make people forget he ever wrote it. The following year he published a correction.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014031/87197562/hoaxes22.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Porn. OF, Loyalfans, Instagram, TikTok, etc., are just full of people making x-rated content or thirst traps. Man, you used to have to go to dedicated sites for porn, but you can get it anywhere these days.-u/BeanieGuy234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Astronomy. We happen to exist for a brief moment in cosmological time where we can actually see other galaxies, and get a sense of the huge scale of the universe. Eventually, in the far future, space will be expanding too fast for the light of distant galaxies or the afterglow of the big bang to reach us.-u/Arc125</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Marijuana. Its becoming more and more legal so more people are experimenting with it and creating all sorts of insane potent strains and concentrates. The weed industry brings in so much money its ridiculous. New discoveries are being made, new medicines are being created from it, and you dont even have to smoke it anymore. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+You can eat, drink, or vape it. People are not losing their freedom as much over it and its becoming less of a social stigma. One problem I do see is how ridiculous the potency is with the new-age THC products and not everyone can handle 80-90%+ THC. Sometimes it feels like a borderline psychedelic. I remember having this one particular strain of weed that got me so high that I felt like I did a bump of ketamine.-u/SirGanjaSpliffington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197731.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">25 Unsolved Mysteries That Still Have Us Stumped</a><br>
+## <a href="#linky13" id="linky12">24 Charts and Maps to Cram Your Brain with Some Know-How</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198634.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">26 WTF Wrong Number Texts</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197538.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">25 Unsolved Mysteries That Still Have Us Stumped</a><br>
 
 <span style="font-size:4em">1. The aerial school landings in Zimbabwe. 60+ school children saw crafts landing and beings coming out of them. The kids interacted with the beings. They were put under evaluation by a Harvard psychiatrist. They all told virtually the same story and drew the same drawings. It was concluded that they were telling the truth.
 
@@ -989,62 +969,6 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">26 WTF Wrong Number Texts</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197538.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
 ## <a href="#linky16" id="linky15">33 Funny Memes Fresh off the Wagon </a><br>
 
 <span style="font-size:4em">1. Oh we promise, its not that bad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183317.jpg" style="width:100%"><br>
@@ -1112,6 +1036,246 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183347.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">33. Clever, real clever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183348.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">33 Dank Memes to Laugh the Pain Away</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197261.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197265.gif" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197277.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197279.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197287.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">25 Freaky Facts about Bill Gates</a><br>
+
+<span style="font-size:4em">1. Bill Gates once held up a line at a supermarket searching for a 50-cent coupon.
+
+-u/LetsPlayCanasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When Bill Gates got married, he bought out all the available hotel rooms in Lanai to keep media from staying there & hired all the helicopters on Maui to keep photographers from flying over the wedding.
+
+-u/Battle4Seattle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Warren Buffet, the worlds third-richest man with a net worth of 75 billion, took Bill Gates to McDonalds and paid for his meal using coupons.
+
+-u/EddieC1088</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bill Gates succeeded in his mission to build a toilet to help combat the sanitary crisis across multiple parts of Africa and India. Costing $350, it’s powered by worms, and doesnt require to be hooked up to a sewer system.
+
+-u/watrbuffalo95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Bill gates purchased Leonardo da Vincis Codex for $30,802,500. Three years later he had its pages scanned into digital image files, some of which were later distributed as a screensaver and wallpaper files on a CD-ROM as part of a Microsoft Plus! for Windows so everyone could enjoy them.
+
+-u/ImTheGerbilKing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A 9-yr-old Pakistani girl, Arfa Karim, was the youngest Microsoft Certified Professional (MCP) until 2008. When she suffered cardiac arrest in 2011, Bill Gates assembled an international panel of doctors to advise the local physicians treating her and offered to pay for treatment in the U.S.
+
+-u/anon_ymous_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Bill Gates has a McDonald’s Gold Card for unlimited free fast food.
+
+-u/Pixelmasterz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bill Gates predicted that the growth of instructional software will replace textbooks. However, in a 2018 survey of college students, the trade publication Library Journal found that 75 percent say that reading print books is easier than e-books.
+
+-u/vannybros</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Before proposing to Melinda, Bill Gates presented her with a whiteboard listing out the pros and cons of getting married.
+
+-u/SonOfQuora</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Soon after Bill Gates had gone to start Microsoft, a Harvard professor who had worked with him recalled, He had moved to Albuquerque... to run a small company writing code for microprocessors, of all things. I remember thinking: Such a brilliant kid. What a waste.
+
+-u/MountainWafer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Hospital staff were stunned when Bill Gates made an unexpected visit in 2010 to the death bed of Dr. Ed Roberts, his first employer and developer of the first commercially successful personal computer.
+
+-u/Sansabina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When Steve Jobs accused Microsoft of stealing idea for Windows from Mac, Bill Gates replied: Well, Steve.... I think its more like we both had this rich neighbor named Xerox and I broke into his house to steal the TV set and found out that you had already stolen it.
+
+-u/tinkrman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Bill Gates has donated more than $50 billion to charity.
+
+-u/insane_playzYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 1989, Bill Gates answered a Microsoft tech support call, and identified himself only as William, then solved the issue. The customer called back later specifically requesting him.
+
+-u/deanylev</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197590.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The generic silhouette in Microsoft Outlook 2010 is actually a shadow cutout of Bill Gates mugshot when he got arrested for a driving offense in 1977.
+
+-u/d_tothe_ust2353</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Bill Gates once released mosquitos during a Ted Talk, stating that poor people shouldnt be the only ones to have this experience.
+
+-u/Olek173</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Bill Gates mother, Mary, knew John Opel, CEO of IBM, because both served on the national United Way committee. At Marys request, Opel set up a meeting with Bill Gates, CEO of then-small software firm Microsoft, to discuss the possibility of using PC-DOS for IBMs about-to-be-released PC.
+
+-u/design-responsibly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bill Gates coyly defended his LSD use by saying I never missed a day of work.
+
+-u/longingforlong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Solitaire was created by a Microsoft intern who wasnt paid for the game. Bill Gates liked the idea but complained it was too difficult to win at this game. Original version also included a fake Excel spreadsheet to hide the game from your boss.
+
+-u/topredditgeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. When Sega was discontinuing the Dreamcast in 2001, Chairman Isao Okawa offered Microsoft their assets so that the Xbox could have backwards compatibility with Dreamcast games so the console could live on in some way. Okawa met with Bill Gates several times before negotiations fell through.
+
+-u/derstherower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Bill Gates accidentally got into philanthropy after he and his wife accidentally came across extremely impoverished people while they were sight seeing. He now says philanthropy is the best job in the world.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Bill Gates wrote his schools computer program for scheduling students in their classes. He edited it so he would end up sitting with female students.
+
+-u/Deadpooldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197597.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. Control+Alt+Delete was used to log into Windows. According to Bill Gates, there was an option to make a single button for such a command, but the IBM keyboard designer didn’t want to give Microsoft a single button. So Microsoft decided to use “Ctrl+Alt+Del” as a way to log into Windows.
+
+-u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Nebraskas highest honor is being a Nebraska Admiral, despite Nebraska being the USs only triply-landlocked state. It has been awarded to numerous presidents, Bill Gates and Bill Murray, and The Queen.
+
+-u/Discount_Timelord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. An Atari executive recalled that he showed Bill Gates a game and defeated him 35 of 37 times. When they met again a month later, Gates won or tied every game. He had studied the game until he solved it.
+
+-u/Yubisaki_Milk_Tea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197601.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky19" id="linky18">33 Internet Responses that Absolutely Killed It</a><br>
+
+<span style="font-size:4em">1. Forgive us Pluto, we had no idea what we were doing!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014823/87197563/87193813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014908/87197569/87193823.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Yall watch out for them choopah cobbler, theyre nasty buggers!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014835/87197564/87193817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Imagine posting a negative review for a restaurant / bar and then getting called out and savaged by the owner.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014919/87197571/87193827.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Yeah leave us alone, we aint done nothing!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014846/87197565/87193820.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014928/87197572/87193828.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014854/87197566/87193818.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014917/87197570/87193824.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014857/87197567/87193821.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014930/87197573/87193831.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014906/87197568/87193822.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014939/87197574/87193832.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Well that is disturbing and about 5 different kinds of f**ked up!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014942/87197575/87193833.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197087.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
