@@ -1,189 +1,251 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/24/2022-11:47:18
+Last updated: 06/24/2022-12:47:18
 <br>
-## <a href="#linky2" id="linky1">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
+## <a href="#linky2" id="linky1">38 Things You Might Find Interesting</a><br>
 
-<span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Ball of salt that I took out of the dead sea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188656.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The inside of this marble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188657.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A basketball sprayed with vantablack paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. In South Korea, The Solar Panels In The Middle Of The Highway Have A Bicycle Path Underneath..cyclists Are Protected From The Sun, Isolated From Traffic, And The Country Can Produce Clean Energy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188658.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The top of this 1954 camper is a boat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. A Father Designs A Headstone For His Wheelchair-Bound Son Depicting Him Free Of His Earthly Burdens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188659.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Feathers of the spot-bellied eagle-owl appear as tiny black hearts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A Statue In Istanbul To Honor Tombili, A Famous Stray Cat. He Used To Sit In This Position And Watch Passers-By</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188661.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. These stairs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188683.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Scrap metal Hulk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Syrian Archaeologist Khaled Al Asaad Who Devoted His Life To The Excavation And Restoration Of Palmyra, A Unesco World Heritage Site. He Was Beheaded By Isis After Refusing To Disclose The Location Of Ancient Artifacts, Despite A Month Of Torture. He Died A Hero Of Heritage Protection</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188662.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This tree is 380ft tall. I’m guessing it’s the tallest tree ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188663.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Um, that’s a sand sculpture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This Homeless Mans Rabbit Was Thrown Over A Bridge By A Passerby And He Immediately Jumped Into The River To Save Her. He Won An Award, Was Given Animal Food And A Job, And The Passerby Was Charged With Animal Cruelty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188664.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Someone made a bathroom floor from 6,500 pennies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188665.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Somebody managed to shoot an arrow through the power line.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This Man Spoke With Every Parent In Uvalde, Texas To Build Personalized Caskets For All 19 Children Who Were Killed. His Name Is Trey Ganem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188654.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A limestone cave slowly absorbing a human skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When You Reach 100 Years Old In Barbados, You Get A Stamp In Your Honour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188660.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Chinese explorer Zheng He’s ship compared to Christopher Columbus’s Santa Maria. Both lived and sailed at the same time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188666.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. This can happen when you blink faster than the shutter on your camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188667.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. That’s an ostrich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Vitaly Skakun Is A Hero After Sacrificing His Life To Blow Up The Henichesky Bridge. The Bridge Was Mined But A Russian Column Was Advancing And There Was No Time To Detonate It Remotely. Skakun Radioed His Unit And Told Them He Would Do It Manually, Saying Goodbye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188668.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. 1,400-year-old gingko tree shedding its leaves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. This Is Jean-Baptiste Kempf, The Creator Of Vlc Media Player. He Refused Tens Of Millions Of Dollars In Order To Keep Vlc Ads-Free. Thanks, Jean!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188655.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The 4-pack of sand timers I ordered are all 2-minutes but have different amounts of sand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188669.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Someone made some art out of the dirt & dust on the back of this car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188670.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Water chestnuts look pure evil before they get processed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Astronaut Mark Kelly Once Smuggled A Full Gorilla Suit On Board The International Space Station. He Didnt Tell Anyone About It. One Day, Without Anyone Knowing, He Put It On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188671.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. That’s a floor… but is it though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188672.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Someone made a limo out of 3 DeLoreans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This Amazing Photo Was From A 16 Y/O Girl Who Snuck Her Camera Into A Queen Concert In 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188673.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Want to get rid of wrinkles fast? Just get bitten by a rattlesnake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Parents In Poland Left Their Baby Strollers In Rail Road Stations For The Ukrainian Moms That Fled Carrying Their Children</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188674.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. This burn on my finger doesn’t get dirty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. The Bee Lives Less Than 40 Days, Visits At Least 1000 Flowers & Produces Less Than A Teaspoon Of Honey. For Us, It Is Only A Teaspoon Of Honey, But For The Bee, It Is A Life. Thankyou, Bees!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188675.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. The Service dog bathroom at the Kelowna, British Columbia, Canada airport</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Thomas Jefferson’s Sixth Great Grandson Recreates His Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188676.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I found a pink grasshopper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188677.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. A real and very rare $500 bill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188678.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. This is what a giraffe’s leg looks like</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Daniel Kordan Accidentally Photographed A Meteor While Capturing An Erupting Volcano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188679.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. One of my twix was not dipped in chocolate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. The Uncensored Library Is A Huge Minecraft Map Where Anyone Can Read Censored Journalism From Countries Without Freedom Of Press</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188680.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. The chair that Abraham Lincoln was sitting in when he was killed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188681.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Our teacher had us do word searches in ASL to practice finger spelling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199203.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">31. Came across a typewriter for writing music</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199204.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">33 Dank Memes to Laugh the Pain Away</a><br>
+<span style="font-size:4em">32. my oven shows the time that you started cooking incase you didn’t set a timer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. What blood looks like with the red blood cells removed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197262.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. Extra long scissors for wrapping paper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197264.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. Parking space lines you can actually see while parking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197280.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. My sister replaced her office chair wheels with rollerblade wheels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197256.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. These sausages from Costco Japan come with bones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197261.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197265.gif" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197277.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197279.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197287.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. These batteries are flavored so kids won’t eat them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199212.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">26 WTF Wrong Number Texts</a><br>
+## <a href="#linky3" id="linky2">25 Freaky Facts about Bill Gates</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197534.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Bill Gates once held up a line at a supermarket searching for a 50-cent coupon.
+
+-u/LetsPlayCanasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197509.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. When Bill Gates got married, he bought out all the available hotel rooms in Lanai to keep media from staying there & hired all the helicopters on Maui to keep photographers from flying over the wedding.
+
+-u/Battle4Seattle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197580.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197530.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Warren Buffet, the worlds third-richest man with a net worth of 75 billion, took Bill Gates to McDonalds and paid for his meal using coupons.
+
+-u/EddieC1088</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197578.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197508.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Bill Gates succeeded in his mission to build a toilet to help combat the sanitary crisis across multiple parts of Africa and India. Costing $350, it’s powered by worms, and doesnt require to be hooked up to a sewer system.
+
+-u/watrbuffalo95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197510.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Bill gates purchased Leonardo da Vincis Codex for $30,802,500. Three years later he had its pages scanned into digital image files, some of which were later distributed as a screensaver and wallpaper files on a CD-ROM as part of a Microsoft Plus! for Windows so everyone could enjoy them.
+
+-u/ImTheGerbilKing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197582.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197511.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. A 9-yr-old Pakistani girl, Arfa Karim, was the youngest Microsoft Certified Professional (MCP) until 2008. When she suffered cardiac arrest in 2011, Bill Gates assembled an international panel of doctors to advise the local physicians treating her and offered to pay for treatment in the U.S.
+
+-u/anon_ymous_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197512.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Bill Gates has a McDonald’s Gold Card for unlimited free fast food.
+
+-u/Pixelmasterz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197513.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Bill Gates predicted that the growth of instructional software will replace textbooks. However, in a 2018 survey of college students, the trade publication Library Journal found that 75 percent say that reading print books is easier than e-books.
+
+-u/vannybros</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197514.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Before proposing to Melinda, Bill Gates presented her with a whiteboard listing out the pros and cons of getting married.
+
+-u/SonOfQuora</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197515.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Soon after Bill Gates had gone to start Microsoft, a Harvard professor who had worked with him recalled, He had moved to Albuquerque... to run a small company writing code for microprocessors, of all things. I remember thinking: Such a brilliant kid. What a waste.
+
+-u/MountainWafer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197586.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197516.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Hospital staff were stunned when Bill Gates made an unexpected visit in 2010 to the death bed of Dr. Ed Roberts, his first employer and developer of the first commercially successful personal computer.
+
+-u/Sansabina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197517.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. When Steve Jobs accused Microsoft of stealing idea for Windows from Mac, Bill Gates replied: Well, Steve.... I think its more like we both had this rich neighbor named Xerox and I broke into his house to steal the TV set and found out that you had already stolen it.
+
+-u/tinkrman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197518.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Bill Gates has donated more than $50 billion to charity.
+
+-u/insane_playzYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197519.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In 1989, Bill Gates answered a Microsoft tech support call, and identified himself only as William, then solved the issue. The customer called back later specifically requesting him.
+
+-u/deanylev</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197590.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197520.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The generic silhouette in Microsoft Outlook 2010 is actually a shadow cutout of Bill Gates mugshot when he got arrested for a driving offense in 1977.
+
+-u/d_tothe_ust2353</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197522.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Bill Gates once released mosquitos during a Ted Talk, stating that poor people shouldnt be the only ones to have this experience.
+
+-u/Olek173</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197523.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Bill Gates mother, Mary, knew John Opel, CEO of IBM, because both served on the national United Way committee. At Marys request, Opel set up a meeting with Bill Gates, CEO of then-small software firm Microsoft, to discuss the possibility of using PC-DOS for IBMs about-to-be-released PC.
+
+-u/design-responsibly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197524.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Bill Gates coyly defended his LSD use by saying I never missed a day of work.
+
+-u/longingforlong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197526.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Solitaire was created by a Microsoft intern who wasnt paid for the game. Bill Gates liked the idea but complained it was too difficult to win at this game. Original version also included a fake Excel spreadsheet to hide the game from your boss.
+
+-u/topredditgeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197577.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197527.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. When Sega was discontinuing the Dreamcast in 2001, Chairman Isao Okawa offered Microsoft their assets so that the Xbox could have backwards compatibility with Dreamcast games so the console could live on in some way. Okawa met with Bill Gates several times before negotiations fell through.
+
+-u/derstherower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197528.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Bill Gates accidentally got into philanthropy after he and his wife accidentally came across extremely impoverished people while they were sight seeing. He now says philanthropy is the best job in the world.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197529.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Bill Gates wrote his schools computer program for scheduling students in their classes. He edited it so he would end up sitting with female students.
+
+-u/Deadpooldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197597.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197531.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Control+Alt+Delete was used to log into Windows. According to Bill Gates, there was an option to make a single button for such a command, but the IBM keyboard designer didn’t want to give Microsoft a single button. So Microsoft decided to use “Ctrl+Alt+Del” as a way to log into Windows.
+
+-u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197532.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Nebraskas highest honor is being a Nebraska Admiral, despite Nebraska being the USs only triply-landlocked state. It has been awarded to numerous presidents, Bill Gates and Bill Murray, and The Queen.
+
+-u/Discount_Timelord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197536.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. An Atari executive recalled that he showed Bill Gates a game and defeated him 35 of 37 times. When they met again a month later, Gates won or tied every game. He had studied the game until he solved it.
+
+-u/Yubisaki_Milk_Tea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197538.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">30 Times Safety Was Not a Priority</a><br>
+
+<span style="font-size:4em">1. I hope the ER has a 2 for 1 special.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. He told me, “The boss said this is how we always do it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. 3 persons = 6 feet; 6 feet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Forklifts do not win against concrete pillars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. At least they’re wearing high-vis gear. Just don’t look down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Speaking of forklifts vs. concrete pillars, luckily they only hit the air pipe and not the 480 V box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This ladder on my job site that is held together with a strip of house wrap & a strap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Thanks to the store owners’ refusal to spend any money until the last minute, we now have load bearing cardboard boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This is safe? Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Wanna play dominoes?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Padlocked fire exit during office renovation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. That should do it . . .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Just a man on a stack of pallets raised by a forklift changing the bulb on a street light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. New bossfight?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The ol’ safety squints for eye protection! (It was on a company’s website!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Why yes, that is a ladder tied to ammonia piping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This was being used to tow a kubota backhoe. 5,500-9,500 lbs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. You ever just feel like lounging in a wood chipper?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Apparently these are legal to sell?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. House nearly toppled over by high winds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Don’t worry, I won’t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Stairway to Heaven?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Introducing Donkey Kong arcade level scaffolding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Just a small jump and it’ll move again, nothing to worry about Jim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Safety 100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. New OSHA certified self-greasing outlets. You’ll never have to worry about struggling to pull out again!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Labor foreman didn’t feel like moving the lift, so this is how he wants us to unload.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. New guy (somehow still here), had a bit too much fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Ladder is on truck bumper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. This safety violation still made me smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198244.gif" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -329,75 +391,59 @@ Last updated: 06/24/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">34 Dank Memes That Have Overstayed Their Dankness</a><br>
+## <a href="#linky7" id="linky6">26 WTF Wrong Number Texts</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197985.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197986.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197509.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197987.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197988.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197989.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197990.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197511.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197991.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197992.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197993.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197994.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197995.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197996.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197517.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197997.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197998.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197999.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198000.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198001.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198002.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198003.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198004.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198005.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198006.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198007.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198009.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198010.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198020.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197538.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -577,7 +623,133 @@ You can eat, drink, or vape it. People are not losing their freedom as much over
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">30 Guys Who Think They're Way Tougher Than They Are</a><br>
+## <a href="#linky11" id="linky10">29 Dank Memes that Made Us Thank God it's Friday</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198697.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
+
+<span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In South Korea, The Solar Panels In The Middle Of The Highway Have A Bicycle Path Underneath..cyclists Are Protected From The Sun, Isolated From Traffic, And The Country Can Produce Clean Energy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. A Father Designs A Headstone For His Wheelchair-Bound Son Depicting Him Free Of His Earthly Burdens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A Statue In Istanbul To Honor Tombili, A Famous Stray Cat. He Used To Sit In This Position And Watch Passers-By</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Syrian Archaeologist Khaled Al Asaad Who Devoted His Life To The Excavation And Restoration Of Palmyra, A Unesco World Heritage Site. He Was Beheaded By Isis After Refusing To Disclose The Location Of Ancient Artifacts, Despite A Month Of Torture. He Died A Hero Of Heritage Protection</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This Homeless Mans Rabbit Was Thrown Over A Bridge By A Passerby And He Immediately Jumped Into The River To Save Her. He Won An Award, Was Given Animal Food And A Job, And The Passerby Was Charged With Animal Cruelty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This Man Spoke With Every Parent In Uvalde, Texas To Build Personalized Caskets For All 19 Children Who Were Killed. His Name Is Trey Ganem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When You Reach 100 Years Old In Barbados, You Get A Stamp In Your Honour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Vitaly Skakun Is A Hero After Sacrificing His Life To Blow Up The Henichesky Bridge. The Bridge Was Mined But A Russian Column Was Advancing And There Was No Time To Detonate It Remotely. Skakun Radioed His Unit And Told Them He Would Do It Manually, Saying Goodbye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This Is Jean-Baptiste Kempf, The Creator Of Vlc Media Player. He Refused Tens Of Millions Of Dollars In Order To Keep Vlc Ads-Free. Thanks, Jean!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Astronaut Mark Kelly Once Smuggled A Full Gorilla Suit On Board The International Space Station. He Didnt Tell Anyone About It. One Day, Without Anyone Knowing, He Put It On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This Amazing Photo Was From A 16 Y/O Girl Who Snuck Her Camera Into A Queen Concert In 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Parents In Poland Left Their Baby Strollers In Rail Road Stations For The Ukrainian Moms That Fled Carrying Their Children</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The Bee Lives Less Than 40 Days, Visits At Least 1000 Flowers & Produces Less Than A Teaspoon Of Honey. For Us, It Is Only A Teaspoon Of Honey, But For The Bee, It Is A Life. Thankyou, Bees!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Thomas Jefferson’s Sixth Great Grandson Recreates His Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Daniel Kordan Accidentally Photographed A Meteor While Capturing An Erupting Volcano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The Uncensored Library Is A Huge Minecraft Map Where Anyone Can Read Censored Journalism From Countries Without Freedom Of Press</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188681.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">30 Guys Who Think They're Way Tougher Than They Are</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112344/87199216/tootough2.jpg" style="width:100%"><br>
 
@@ -641,117 +813,7 @@ You can eat, drink, or vape it. People are not losing their freedom as much over
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">28 People Who Destroyed Their Reputation In A Few Minutes</a><br>
-
-<span style="font-size:4em">1. Bill Cosby. He was Americas Dad for 50 years until a random Hanibal Burress cell-phone bootleg went viral and women started speaking out in droves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jared from subway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Michael Richards who played Kramer in Seinfeld.
-
-Ruined his image literally in five minutes when he lost his cool and went on a racist rant</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. At one point, Ryan Lochte was arguably on the way to becoming as big in the swimming world as Michael Phelps. Then his lies about being robbed at the Olympics torched his reputation and career</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Will smith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The CEO of Abercrombie and Fitch when he said something like “I want cool people to wear our clothes, not fat people” when asked why they didn’t carry any plus sized clothes for women. The term “cancelled” wasn’t really a thing back in 2013 but man did A&F get cancelled HARD after that</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. That lady that got accepted to the NASA internship, wrote an explicit tweet about it, and when someone told her to watch her language, she told them to STFU. He was a head or something at NASA. she did not have that internship for long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That flat earth documentary where they try so hard the entire time and then in the last five minutes they do the measurement with the laser and realise the earth isn’t flat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My grandpa. For 23 years of my life, I thought he was the most honest and upstanding person I had the honour of knowing. Then last year, I found out he’s always had a habit of manipulating his dying family member’s/friend’s wills into leaving him and his wife the good, expensive stuff (houses, cars, etc). It’s how he’s avoided bankruptcy for so damn long. Selling off these stolen houses to pay for his own. He stole a house out from his own step daughter after her son had been in a near fatal accident, and she herself had just survived a suicide attempt. So yeah. Turns out the best man I know is one of the worst. And what’s better? He passed on his house stealing skills to his cvnt daughter (my aunt). So the cycle continues. Ugh. Sorry for the rant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Travis Scott’s apology and behavior during the Astroworld tragedy. Dude is an awful person and people just give him a pass because he’s rich and famous and is married to one of the Kardashian relatives. Ppl pick and choose man I swear. They will blindly defend people if they like them enough. Dude basically let 10 people die. His fans are brainwashed by his garbage music</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Rudy G could have retired as America’s mayor, instead his obituary will have a picture of his make up dripping during a press conference at a landscape parking lot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I was just reading a story about how a police officer with a perfect career, ruined everything by buying donuts and scanning a barcode for a carrot to make it cheaper. Lost his job for that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Haven’t seen Lance Armstrong’s name yet. Scientists studied his body for years to find the cause of his incredible performance, just to have him openly admit to using steroids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Gerald Ratner
-
-at one time Ratners were a nationwide chain of jewelry shops in the UK, they were known as an affordable jewelry shop.
-
-In 1991 he was a guest at the Institute of Directors and made a speech where he called the stuff sold by his shops, total C**p. A popular range of earrings was described as being cheaper than a prawn sandwich and compounded it by saying the prawn sandwich would last longer.
-
-shares in the company dropped like a stone and he was fired by the majority company shareholders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. There was a PC building company earlier this year that disqualified a prize winner because the company owner thought the winners social media presence was too weak. Not fake, mind you, just not popular enough to be worth sponsoring.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Mel Gibson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Former Brooklyn/Los Angeles Dodgers baseball player and executive Al Campanis.
-
-He had a brief career as a player with the Brooklyn Dodgers, playing only 7 games with them in 1943, but spent a lot of time in the minor leagues and played one season in the minors with Jackie Robinson the year before Robinson became the first African-American player in the majors. After retiring as a player he became a scout and moved up in the organization to become the General Manager of the Dodgers in 1968.
-
-On April 6, 1987 Campanis was invited to appear on the TV show *Nightline* to be interviewed by Ted Koppel about Jackie Robinson, as April 15th would be the 40th anniversary of Jackie Robinsons first game in the majors and they were good friends until Robinsons death in 1972.
-
-Koppel asked Campanis about why there were so few Black managers and no Black general managers. Campanis answered, I truly believe that they may not have some of the necessities to be, lets say, a field manager, or, perhaps, a general manager. When pressed later in the interview by Koppel, he said Why are Black men or Black people not good swimmers? Because they dont have the buoyancy and also saying that the Black race certainly are short on individuals with strong decision-making capabilities.
-
-He was fired from the Dodgers less than two days later and never worked in baseball again, passing away in 1998.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The PR chick traveling to South Africa who tweeted something like, heading to Africa, hope I dont get AIDS. Just kidding, Im white!
-
-Turned her phone off for the flight, and by the time she turned it on when she landed, it had gone viral and, if memory serves, she had already lost her job.
-
-Edit: Quite a few people commenting that she must be awful at her job and/or she should have known better.
-1. in the earlier days of social media, it was reasonably expected that your posts would remain private among your network. This is one of the first cases of a non-celebrity post going viral and being publicly shamed for it. There was no precedent. Bad judgement? Of course, but 2013 and 2022 are very different times
-2. her ability to craft effective corporate communications is not diminished by the poor judgement mentioned above that she exercised *once*. Presumably, she was hired by other firms (and perhaps rehired by her old firm) not because of her fame, but because she was actually skilled at what she does.
-
-Edit 2: while I havent seen it, the sheer number of references to The Family Guy seems to indicate that yes, they did parody this situation in an episode. Seems like Seth McFarlanes brand of humor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Had a supervisor who decided to get blitzed on morphine and alcohol before writing a racist, incomprehensible, unprofessional email and sending it to every subordinate. Every single person turned against him, and he was gone from his job really quickly after that. (And he was tenured and everything). Happened in an instant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Activision Blizzard
-
-Cometstarlight replied:
-
-And this is on multiple fronts.
-
-Their industry?
-
--bugged launches, lying about game content, having games with microtransactions totaling up to over $100,000 as a pay to win scheme
-
-Their actual company?
-
--Cubicle romps to harass women co workers, the Bill Cosby suite, harassing a woman to suicide, passing over women for promotions because they might get pregnant and take time off work, etc.
-
-There is so, so much wrong with that company and the kicker now is that their in house investigation said they did nothing wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. 10,000 Instagram pictures and thousands of social media likes and share. vs one sandwich photo. Rip Fyre festival.
-
-NacreousFink added:
-
-I believe there were some other social media posts at that time that was also bad for Fyre Festivals reputation.
-
-And there was that one guy who for months in advance was warning people that the Fyre Festival was a scam.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Nelson Rockefeller was governor of New York before serving as vice-president under Gerald Ford. He was found dead at his secret townhome. His wife wasnt there but his girlfriend was. She was 49 years younger than him.
-
-Rockefellers Law states, Never do anything you wouldnt be caught dead doing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The r/antiwork mod that did an interview with Fox News and completely tanked the subs momentum almost overnight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Game of thrones season 8</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Howard Dean. Was either Lt Governor or Governor of Vermont from 1987 to 2003, and making a respectable run for president when it stopped dead in its tracks when he made...a weird sounding cheer at a campaign stop. That was it. No sex scandal, no bad policy proposal, no poor debate performance, a clip that just sounded kinda funny.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. That X Factor judge who told a contestant, wearing a SUIT that he was trying to copy her husband lmfao. I think Natalia Kills was her name</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Jim Marshall. One of the greatest defensive linemen in NFL football history.
-
-To quote vikings.com : A valued member of Minnesotas Purple People Eaters defensive line, Marshall holds numerous NFL records that include the most seasons played by a defensive player (20, along with Junior Seau and Darrell Green), most consecutive games by a defensive player (282), most consecutive starts by a defensive player (270), and most career fumble recoveries (30). Marshall, who was still a starter at age 42, helped the Vikings win three NFC titles along with the NFL championship in 1969.
-
-However, one day, in one game, Jim Marshall had a quick lapse in judgement and now almost EVERY NFL fan remembers Jim Marshall for one mistake he made: He picked up a fumble and ran the wrong way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. John deLorean- admittedly kinda set up by the FBI for a sting- but the Better than gold quote.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199101.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">18 Celebrities We Didn't Know Were Still Alive</a><br>
+## <a href="#linky14" id="linky13">18 Celebrities We Didn't Know Were Still Alive</a><br>
 
 <span style="font-size:4em">1. Mel Brooks - At 95, the iconic comedian is still blazing in his saddle. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020324/87198541/stillalive2.jpg" style="width:100%"><br>
 
@@ -791,277 +853,53 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">30 Times Safety Was Not a Priority</a><br>
+## <a href="#linky15" id="linky14">Fresh Memes Crisper than a Morning Breeze</a><br>
 
-<span style="font-size:4em">1. I hope the ER has a 2 for 1 special.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198222.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125126/87198426/dads.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. He told me, “The boss said this is how we always do it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198215.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125138/87198427/ducks.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. 3 persons = 6 feet; 6 feet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198216.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125149/87198429/ebw.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Forklifts do not win against concrete pillars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198217.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125220/87198434/homies.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. At least they’re wearing high-vis gear. Just don’t look down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198233.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125157/87198430/farts.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Speaking of forklifts vs. concrete pillars, luckily they only hit the air pipe and not the 480 V box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198218.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125200/87198431/food.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. This ladder on my job site that is held together with a strip of house wrap & a strap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198219.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125322/87198445/zombie.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Thanks to the store owners’ refusal to spend any money until the last minute, we now have load bearing cardboard boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198220.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125146/87198428/crash.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. This is safe? Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198221.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125208/87198432/glans.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Wanna play dominoes?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198223.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125213/87198433/harry.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Padlocked fire exit during office renovation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198224.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125224/87198435/joke.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. That should do it . . .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198225.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125232/87198436/kim.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Just a man on a stack of pallets raised by a forklift changing the bulb on a street light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198226.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125235/87198437/parent.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. New bossfight?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198227.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125243/87198438/pop.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. The ol’ safety squints for eye protection! (It was on a company’s website!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198228.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125115/87198425/death.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. Why yes, that is a ladder tied to ammonia piping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198229.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125246/87198439/pain.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. This was being used to tow a kubota backhoe. 5,500-9,500 lbs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198230.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125255/87198440/squints.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. You ever just feel like lounging in a wood chipper?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198231.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125258/87198441/tim.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. Apparently these are legal to sell?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198232.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125307/87198442/uno.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. House nearly toppled over by high winds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198234.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125310/87198443/vill.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. Don’t worry, I won’t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Stairway to Heaven?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Introducing Donkey Kong arcade level scaffolding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just a small jump and it’ll move again, nothing to worry about Jim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Safety 100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. New OSHA certified self-greasing outlets. You’ll never have to worry about struggling to pull out again!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Labor foreman didn’t feel like moving the lift, so this is how he wants us to unload.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. New guy (somehow still here), had a bit too much fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Ladder is on truck bumper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. This safety violation still made me smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198244.gif" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125318/87198444/wings.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">25 Unsolved Mysteries That Still Have Us Stumped</a><br>
-
-<span style="font-size:4em">1. The aerial school landings in Zimbabwe. 60+ school children saw crafts landing and beings coming out of them. The kids interacted with the beings. They were put under evaluation by a Harvard psychiatrist. They all told virtually the same story and drew the same drawings. It was concluded that they were telling the truth.
-
--u/Equivalent-Quail3995</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The identity of the Zodiac Killer hands down. It hasnt been solved despite what you read about Gary Post.
-
--u/1man2barrels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197684.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. The disappearance of the Springfield Three is a top contender for me.
-Long story short, in the early morning hours of June 7, 1992, these three women, Sherrill Levitt (47), her daughter Suzanne Suzie Streeter (19), and Suzies friend Stacy McCall (18) all vanished from Sherrill and Suzies home following a night of fun and partying as it was the girls high school graduation.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-All their personal belongings, their cars, purses, and even the little dog was left behind. There were no signs of a struggle or foul play, however, the front porch lights glass globe was broken and not swept up, and there was a weird message on the answering machine that accidentally got deleted. Yet, no trace of the three women has ever been found and the case remains unsolved 30 years later.
-
--u/Bjnboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My favorite is the Chicago TV hijacking. During a Dr. Who rerun in 1987 somebody dressed as Max Headroom hijacked the tv signal for a minute and a half during which he exposed his a** and got spanked by a woman and mocked coca-cola. FCC has been investigating for years and nobody has been charged.
-
--u/KhaosKake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. One I’m always fascinated with is I believe in the mid-2000’s a student at Ohio State mysteriously disappeared and to this day, they have no idea what happened to him. Basically, he went out to a popular bar with friends, the security camera sees him walking into the bar and this is the only entrance/exit as the bar is in a larger building but it never sees him leave the bar at the end of the night. His name was Brian Shaffer. It’s an interesting story/mystery to take a look at.
-
--u/TrainingRegistration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. What the hell happened to the 3 escapees of the inescapable Alcatraz? Whether they did survive or not, but if they did, thats one hell of a plan to escape undetected till to this day.
-
--u/Leveolizan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The disappearance of Asha Degree. In 2000, 9-year-old girl that packed a bag in the middle of a storm and was last seen walking down a highway. A driver approached her to help and she ran into the woods and was never seen again.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Nothing suggests why she would run away. Her book bag was found a year later. Most likely she was abducted while walking but why did she leave her house in the middle of a “raging storm”?
-
--u/palabear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Where is the tomb of Alexander the Great?
-
--u/bdaydeedayday</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The mystery of Kasper Hauser, a youth found wandering Germany in 1828 wearing undersized clothes and no communication skills. After being educated, he claimed to have grown up in the total isolation of a darkened cell. Years later he died after being stabbed by a stranger who gave Kasper a cryptic note, but officials suspected he stabbed himself.
-
--u/Neon_Parrott</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Where is Shelly Miscavige?
-
--u/Bucketlist074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Americas lost child AKA The boy  in the box. He was discovered in Philadelphia, Pennsylvania on February 25th, 1953 having a fresh haircut, nail trims but had been severely beaten. Police ruled it off as a homicide and the case is still open to find the murderer.
-
--u/OldmanHosea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Adam case, where a little boys torso was found in the River Thames. Investigators believe that he was trafficked from Nigeria to be murdered in a ritual sacrifice, but his body has never been formally identified.
-
--u/whitewidow33B</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Who really murdered the Princes in the Tower?
-
--u/MRCHalifax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Collapse of the Bronze Age.
-
--u/guitar_collector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Wow! signal. A strong narrowband radio signal detected on August 15, 1977, by the Ohio State Universitys Big Ear radio telescope in the United States.
-
--u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Vegas mass shooter who was a perfectly contented millionaire with a happy life and just opened fire on people from a hotel room…. Wtf was that about?
-
--u/fernincornwall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Chicago Tylenol murders in 1982. Who would do such a thing and why? Was it one person acting alone? Did they do it at the distribution center, or did they go to different locations to tamper with the bottles?
-
--u/kboody22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197701.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Who was Jack the Ripper?
-
--u/Supraman83</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The consciousness. A child is conceived, and at some point, once the brain becomes complex enough, it starts to develop a feeling of self. It starts to perceive itself as the center of something, and everything else is outside. We naturally distinguish the “I” from the rest of the world. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-This is a light that goes on in the head at some point. In deep sleep, under narcotics or after injury, the light can flicker or go out. When we die, the thing that is me is gone forever. Or is it? Religion says it’s not. It’s an everyday mystery that gets more mysterious the more we think about it. I find this to be the most fascinating question there is.
-
--u/Speedperson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197704.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">25 Freaky Facts about Bill Gates</a><br>
-
-<span style="font-size:4em">1. Bill Gates once held up a line at a supermarket searching for a 50-cent coupon.
-
--u/LetsPlayCanasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When Bill Gates got married, he bought out all the available hotel rooms in Lanai to keep media from staying there & hired all the helicopters on Maui to keep photographers from flying over the wedding.
-
--u/Battle4Seattle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Warren Buffet, the worlds third-richest man with a net worth of 75 billion, took Bill Gates to McDonalds and paid for his meal using coupons.
-
--u/EddieC1088</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bill Gates succeeded in his mission to build a toilet to help combat the sanitary crisis across multiple parts of Africa and India. Costing $350, it’s powered by worms, and doesnt require to be hooked up to a sewer system.
-
--u/watrbuffalo95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Bill gates purchased Leonardo da Vincis Codex for $30,802,500. Three years later he had its pages scanned into digital image files, some of which were later distributed as a screensaver and wallpaper files on a CD-ROM as part of a Microsoft Plus! for Windows so everyone could enjoy them.
-
--u/ImTheGerbilKing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A 9-yr-old Pakistani girl, Arfa Karim, was the youngest Microsoft Certified Professional (MCP) until 2008. When she suffered cardiac arrest in 2011, Bill Gates assembled an international panel of doctors to advise the local physicians treating her and offered to pay for treatment in the U.S.
-
--u/anon_ymous_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bill Gates has a McDonald’s Gold Card for unlimited free fast food.
-
--u/Pixelmasterz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bill Gates predicted that the growth of instructional software will replace textbooks. However, in a 2018 survey of college students, the trade publication Library Journal found that 75 percent say that reading print books is easier than e-books.
-
--u/vannybros</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Before proposing to Melinda, Bill Gates presented her with a whiteboard listing out the pros and cons of getting married.
-
--u/SonOfQuora</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Soon after Bill Gates had gone to start Microsoft, a Harvard professor who had worked with him recalled, He had moved to Albuquerque... to run a small company writing code for microprocessors, of all things. I remember thinking: Such a brilliant kid. What a waste.
-
--u/MountainWafer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Hospital staff were stunned when Bill Gates made an unexpected visit in 2010 to the death bed of Dr. Ed Roberts, his first employer and developer of the first commercially successful personal computer.
-
--u/Sansabina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. When Steve Jobs accused Microsoft of stealing idea for Windows from Mac, Bill Gates replied: Well, Steve.... I think its more like we both had this rich neighbor named Xerox and I broke into his house to steal the TV set and found out that you had already stolen it.
-
--u/tinkrman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Bill Gates has donated more than $50 billion to charity.
-
--u/insane_playzYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1989, Bill Gates answered a Microsoft tech support call, and identified himself only as William, then solved the issue. The customer called back later specifically requesting him.
-
--u/deanylev</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197590.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The generic silhouette in Microsoft Outlook 2010 is actually a shadow cutout of Bill Gates mugshot when he got arrested for a driving offense in 1977.
-
--u/d_tothe_ust2353</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bill Gates once released mosquitos during a Ted Talk, stating that poor people shouldnt be the only ones to have this experience.
-
--u/Olek173</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bill Gates mother, Mary, knew John Opel, CEO of IBM, because both served on the national United Way committee. At Marys request, Opel set up a meeting with Bill Gates, CEO of then-small software firm Microsoft, to discuss the possibility of using PC-DOS for IBMs about-to-be-released PC.
-
--u/design-responsibly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bill Gates coyly defended his LSD use by saying I never missed a day of work.
-
--u/longingforlong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Solitaire was created by a Microsoft intern who wasnt paid for the game. Bill Gates liked the idea but complained it was too difficult to win at this game. Original version also included a fake Excel spreadsheet to hide the game from your boss.
-
--u/topredditgeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When Sega was discontinuing the Dreamcast in 2001, Chairman Isao Okawa offered Microsoft their assets so that the Xbox could have backwards compatibility with Dreamcast games so the console could live on in some way. Okawa met with Bill Gates several times before negotiations fell through.
-
--u/derstherower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Bill Gates accidentally got into philanthropy after he and his wife accidentally came across extremely impoverished people while they were sight seeing. He now says philanthropy is the best job in the world.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Bill Gates wrote his schools computer program for scheduling students in their classes. He edited it so he would end up sitting with female students.
-
--u/Deadpooldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197597.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. Control+Alt+Delete was used to log into Windows. According to Bill Gates, there was an option to make a single button for such a command, but the IBM keyboard designer didn’t want to give Microsoft a single button. So Microsoft decided to use “Ctrl+Alt+Del” as a way to log into Windows.
-
--u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Nebraskas highest honor is being a Nebraska Admiral, despite Nebraska being the USs only triply-landlocked state. It has been awarded to numerous presidents, Bill Gates and Bill Murray, and The Queen.
-
--u/Discount_Timelord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. An Atari executive recalled that he showed Bill Gates a game and defeated him 35 of 37 times. When they met again a month later, Gates won or tied every game. He had studied the game until he solved it.
-
--u/Yubisaki_Milk_Tea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197601.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">33 Internet Responses that Absolutely Killed It</a><br>
+## <a href="#linky16" id="linky15">33 Internet Responses that Absolutely Killed It</a><br>
 
 <span style="font-size:4em">1. Forgive us Pluto, we had no idea what we were doing!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014823/87197563/87193813.jpg" style="width:100%"><br>
 
@@ -1131,53 +969,7 @@ This is a light that goes on in the head at some point. In deep sleep, under nar
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">Fresh Memes Crisper than a Morning Breeze</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125126/87198426/dads.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125138/87198427/ducks.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125149/87198429/ebw.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125220/87198434/homies.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125157/87198430/farts.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125200/87198431/food.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125322/87198445/zombie.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125146/87198428/crash.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125208/87198432/glans.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125213/87198433/harry.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125224/87198435/joke.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125232/87198436/kim.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125235/87198437/parent.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125243/87198438/pop.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125115/87198425/death.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125246/87198439/pain.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125255/87198440/squints.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125258/87198441/tim.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125307/87198442/uno.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125310/87198443/vill.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125318/87198444/wings.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky19" id="linky18">30 Strange Encounters With Strange People</a><br>
+## <a href="#linky17" id="linky16">30 Strange Encounters With Strange People</a><br>
 
 <span style="font-size:4em">1. I was at Busch Gardens in Virginia, maybe 9 years old when an elderly man walked up to me and gave me a 1 million dollar bill with his face on it. I still have it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197201.jpg" style="width:100%"><br>
 
@@ -1334,6 +1126,180 @@ I say No and look at him, he keeps standing there, then he goes a few steps away
 If I hadnt been on the phone, distracted and tired, I would never have let him get so close to me. What could have happened but didnt? Just so strange.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197226.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. in the dollar store by the hollywood theater in portland oregon, (its like 20 miles from my house) i was buying some soda when i saw a guy in a vietnam veteran jacket. i, being the patriotic m**********r that i am, said that i appreciated his service. then he said that will be $100. i thought he was joking. he was not. i did not have $100, and i said to him as much. he said well give me anything you have. i gave him five cents, as i only carry what i need to buy stuff on me, and that was the change. he just walked away without thanking me. it was weird as all hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197227.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">25 Unsolved Mysteries That Still Have Us Stumped</a><br>
+
+<span style="font-size:4em">1. The aerial school landings in Zimbabwe. 60+ school children saw crafts landing and beings coming out of them. The kids interacted with the beings. They were put under evaluation by a Harvard psychiatrist. They all told virtually the same story and drew the same drawings. It was concluded that they were telling the truth.
+
+-u/Equivalent-Quail3995</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The identity of the Zodiac Killer hands down. It hasnt been solved despite what you read about Gary Post.
+
+-u/1man2barrels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197684.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. The disappearance of the Springfield Three is a top contender for me.
+Long story short, in the early morning hours of June 7, 1992, these three women, Sherrill Levitt (47), her daughter Suzanne Suzie Streeter (19), and Suzies friend Stacy McCall (18) all vanished from Sherrill and Suzies home following a night of fun and partying as it was the girls high school graduation.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+All their personal belongings, their cars, purses, and even the little dog was left behind. There were no signs of a struggle or foul play, however, the front porch lights glass globe was broken and not swept up, and there was a weird message on the answering machine that accidentally got deleted. Yet, no trace of the three women has ever been found and the case remains unsolved 30 years later.
+
+-u/Bjnboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My favorite is the Chicago TV hijacking. During a Dr. Who rerun in 1987 somebody dressed as Max Headroom hijacked the tv signal for a minute and a half during which he exposed his a** and got spanked by a woman and mocked coca-cola. FCC has been investigating for years and nobody has been charged.
+
+-u/KhaosKake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. One I’m always fascinated with is I believe in the mid-2000’s a student at Ohio State mysteriously disappeared and to this day, they have no idea what happened to him. Basically, he went out to a popular bar with friends, the security camera sees him walking into the bar and this is the only entrance/exit as the bar is in a larger building but it never sees him leave the bar at the end of the night. His name was Brian Shaffer. It’s an interesting story/mystery to take a look at.
+
+-u/TrainingRegistration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. What the hell happened to the 3 escapees of the inescapable Alcatraz? Whether they did survive or not, but if they did, thats one hell of a plan to escape undetected till to this day.
+
+-u/Leveolizan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The disappearance of Asha Degree. In 2000, 9-year-old girl that packed a bag in the middle of a storm and was last seen walking down a highway. A driver approached her to help and she ran into the woods and was never seen again.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Nothing suggests why she would run away. Her book bag was found a year later. Most likely she was abducted while walking but why did she leave her house in the middle of a “raging storm”?
+
+-u/palabear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Where is the tomb of Alexander the Great?
+
+-u/bdaydeedayday</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The mystery of Kasper Hauser, a youth found wandering Germany in 1828 wearing undersized clothes and no communication skills. After being educated, he claimed to have grown up in the total isolation of a darkened cell. Years later he died after being stabbed by a stranger who gave Kasper a cryptic note, but officials suspected he stabbed himself.
+
+-u/Neon_Parrott</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Where is Shelly Miscavige?
+
+-u/Bucketlist074</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Americas lost child AKA The boy  in the box. He was discovered in Philadelphia, Pennsylvania on February 25th, 1953 having a fresh haircut, nail trims but had been severely beaten. Police ruled it off as a homicide and the case is still open to find the murderer.
+
+-u/OldmanHosea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Adam case, where a little boys torso was found in the River Thames. Investigators believe that he was trafficked from Nigeria to be murdered in a ritual sacrifice, but his body has never been formally identified.
+
+-u/whitewidow33B</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Who really murdered the Princes in the Tower?
+
+-u/MRCHalifax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Collapse of the Bronze Age.
+
+-u/guitar_collector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Wow! signal. A strong narrowband radio signal detected on August 15, 1977, by the Ohio State Universitys Big Ear radio telescope in the United States.
+
+-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Vegas mass shooter who was a perfectly contented millionaire with a happy life and just opened fire on people from a hotel room…. Wtf was that about?
+
+-u/fernincornwall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Chicago Tylenol murders in 1982. Who would do such a thing and why? Was it one person acting alone? Did they do it at the distribution center, or did they go to different locations to tamper with the bottles?
+
+-u/kboody22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197701.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Who was Jack the Ripper?
+
+-u/Supraman83</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The consciousness. A child is conceived, and at some point, once the brain becomes complex enough, it starts to develop a feeling of self. It starts to perceive itself as the center of something, and everything else is outside. We naturally distinguish the “I” from the rest of the world. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+This is a light that goes on in the head at some point. In deep sleep, under narcotics or after injury, the light can flicker or go out. When we die, the thing that is me is gone forever. Or is it? Religion says it’s not. It’s an everyday mystery that gets more mysterious the more we think about it. I find this to be the most fascinating question there is.
+
+-u/Speedperson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197704.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky19" id="linky18">34 Dank Memes That Have Overstayed Their Dankness</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198020.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
