@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/23/2022-23:47:18
+Last updated: 06/24/2022-00:47:18
 <br>
 ## <a href="#linky2" id="linky1">34 Dank Memes That Have Overstayed Their Dankness</a><br>
 
@@ -73,49 +73,83 @@ Last updated: 06/23/2022-23:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">21 People Who Thought They Were Tougher than the Sun</a><br>
+## <a href="#linky3" id="linky2">38 Spectacular Things People Found in the Wild</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115741/87197388/arm.png" style="width:100%"><br>
+<span style="font-size:4em">1. “Discovered that my tooth implant doesn’t glow like the rest of my teeth under black light. Regular photo for comparison.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115750/87197389/back.png" style="width:100%"><br>
+<span style="font-size:4em">2. “How these clam shells fit together”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115752/87197390/ankle.png" style="width:100%"><br>
+<span style="font-size:4em">3. “My salsa jar lid kind of looks like a map of the world.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178073.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115801/87197391/bed.png" style="width:100%"><br>
+<span style="font-size:4em">4. “My treadmill kicked all the dirt from my shoes into a ’heavy’ and a ’light’ pile.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178059.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115803/87197392/chest.png" style="width:100%"><br>
+<span style="font-size:4em">5. “Came across a dual-colored tulip today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115812/87197393/dogs.png" style="width:100%"><br>
+<span style="font-size:4em">6. “Garage door on the corner of the building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178061.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115739/87197387/alien.png" style="width:100%"><br>
+<span style="font-size:4em">7. “Came upon a stained-glass window hanging in a forest in Belgium.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115814/87197394/hands.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Drive-through speaker broke, so they taped a baby monitor to it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115823/87197395/face.png" style="width:100%"><br>
+<span style="font-size:4em">9. “Hole in concrete looks like a frog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115825/87197396/hat.png" style="width:100%"><br>
+<span style="font-size:4em">10. “Found a corner piano at the piano store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178065.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115834/87197397/legs.png" style="width:100%"><br>
+<span style="font-size:4em">11. “Someone brought their cow to see the Easter bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178066.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115836/87197398/line.png" style="width:100%"><br>
+<span style="font-size:4em">12. “Eggs dyed in onion skins and purple cabbage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178067.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115845/87197399/maze.png" style="width:100%"><br>
+<span style="font-size:4em">13. “The vacation house we rented has a toaster built into the wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178068.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115847/87197400/night.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Cardboard rings for this 6-pack instead of the plastic ones”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178058.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115859/87197402/purp.png" style="width:100%"><br>
+<span style="font-size:4em">15. “Hole in the wall of the shower to throw away empty shampoo bottles. Seen in the wash house of a campsite.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178070.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115909/87197403/red.png" style="width:100%"><br>
+<span style="font-size:4em">16. “The drain from this bubbler goes down to fill the dogs’ water bowl.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178071.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115857/87197401/pink.png" style="width:100%"><br>
+<span style="font-size:4em">17. “Tiles for matching up the color of the water on the Santa Cruz pier”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178072.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115911/87197404/strap.png" style="width:100%"><br>
+<span style="font-size:4em">18. “Moldy orange that looks like a planet”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178074.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115920/87197405/tank.png" style="width:100%"><br>
+<span style="font-size:4em">19. “My parents’ toilet phone for urgent toilet-related calls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178075.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115922/87197406/tat.png" style="width:100%"><br>
+<span style="font-size:4em">20. “Thumbs-up burn on an up thumb”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115932/87197407/white.png" style="width:100%"><br>
+<span style="font-size:4em">21. “Fresh wolf print I came across while lost in Denali, Alaska”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178077.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Get the good boy some roasted chicken.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “It got hit by a bear last night. He left fingerprints.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “This book was completely ravaged by termites.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178080.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Look at this oddly shaped banana I found.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178081.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. “I had to pay 50 cents to use the restroom, but there is a cutout for kids to use it for free.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178082.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This giant blueberry I found today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “This ’ice grass’ that forms at my job sites”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “The frost on my car window was melted by the sun through the mirror.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. These ants found shelter on a tennis ball.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178086.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. “There was a billiard ball inside of my bocce ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “This fungus looks like a chocolate-covered doughnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “This restaurant near my house uses concrete sewer pipes for outdoor seating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178089.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. “The way a tiny crab builds this pattern out of sand balls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178090.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. “This pipe was painted to look like the bricks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “This plant growing out of a traffic cone”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178092.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. “The snow melted and slid down the wire in a spiral form.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “The inside of this apple was eaten by wasps.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178095.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -863,65 +897,7 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">22 Fake Things That People Still Believe</a><br>
-
-<span style="font-size:4em">1. Touching a baby bird will make its parents reject it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013806/87197542/hoaxes1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. That cracking your knuckles gives you arthritis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013817/87197543/hoaxes3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Shaving making hair grow in thicker.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013830/87197544/hoaxes4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. MLMs, and ‘be your own boss’ scams. Im not sure how many documentaries need to be put on YouTube before people will stop buying into these companies and wasting their money.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013755/87197541/hoaxes2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Blood in your veins is blue and red in your arteries. Literally every elementary school teacher I had kept this lie going.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013840/87197545/hoaxes7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. We only use 10% of our brain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013848/87197546/hoaxes5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Lie detectors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013851/87197547/hoaxes8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The food pyramid.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013859/87197548/hoaxes9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. That people are “right” or “left” brained thinkers, and that it has any bearing on their personality and level of logic or creativity.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013903/87197549/hoaxes10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Detox. What do you think your liver and kidneys are doing all day? If they weren’t working you would be on a form of detox called dialysis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013911/87197550/hoaxes11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. That MSG is bad for you. I meet people regularly that think its a super insta-cancer ingredient that will cause you to die or something based on 80s/90s false scares. Then I tell them, you do know it naturally occurs on tomatoes, yes?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013914/87197551/hoaxes12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. That dog mouths are cleaner than humans!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013923/87197552/hoaxes13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The earth being flat. We have literally gone to space, taken pictures, boiled all of it down to the level a kindergartener can understand, and some idiots still dont get it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013925/87197553/hoaxes14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Personal carbon footprint or any green initiative which focuses on individual action. BP invented the entire concept during a marketing push to hide the fact that like 72 companies produce 90% of pollution.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013935/87197554/hoaxes15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. If you pull out a gray hair, three more grow in its place. My sister still believes this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013937/87197555/hoaxes16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Professional fighters dont actually have to register their hands as weapons. No body part can be registered as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013946/87197556/hoaxes17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. That NASA spent tons of money developing a pen to work in space and the Russians just used a pencil.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013948/87197557/hoaxes18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That it’s illegal to keep the light on in the car while driving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013957/87197558/hoaxes19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. That cold weather can give you a cold.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013958/87197559/hoaxes20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. That you swallow 8 spiders a year in your sleep.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014009/87197560/hoaxes21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. People putting needles, poison, or drugs in Halloween candy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014020/87197561/hoaxes23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Wolf hierarchy with alpha on top and omega at the bottom. The author of the original paper has been on a thirty-year crusade to make people forget he ever wrote it. The following year he published a correction.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014031/87197562/hoaxes22.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">33 Dank Memes to Laugh the Pain Away</a><br>
+## <a href="#linky13" id="linky12">33 Dank Memes to Laugh the Pain Away</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
 
@@ -987,7 +963,181 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">40 Fascinating and WTF Statistics We Can't Believe </a><br>
+## <a href="#linky14" id="linky13">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">33 Funny Memes Fresh off the Wagon </a><br>
+
+<span style="font-size:4em">1. Oh we promise, its not that bad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This man is going to go down in history as the 21st centuries Alexander the Great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Umm, weve never had deal with this issue before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. *Farts* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. We cant be the only ones who see it. Oh how the turns have tabled. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This mind tricks do not work on us. F u pay me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Can you spot it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183330.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Shout out to the bros, keep your chin up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The kids today have no idea how good they have it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I need this for the lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The madman actually did it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183340.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183341.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Not so much a meme as an observation. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. This picture hurts my head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183343.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. There is always that one guy who sounds like he just ran a mile before logging in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. If I pretend Im invisible theyll never notice Im here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Clever, real clever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183348.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">22 Fake Things That People Still Believe</a><br>
+
+<span style="font-size:4em">1. Touching a baby bird will make its parents reject it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013806/87197542/hoaxes1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. That cracking your knuckles gives you arthritis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013817/87197543/hoaxes3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Shaving making hair grow in thicker.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013830/87197544/hoaxes4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. MLMs, and ‘be your own boss’ scams. Im not sure how many documentaries need to be put on YouTube before people will stop buying into these companies and wasting their money.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013755/87197541/hoaxes2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Blood in your veins is blue and red in your arteries. Literally every elementary school teacher I had kept this lie going.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013840/87197545/hoaxes7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. We only use 10% of our brain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013848/87197546/hoaxes5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lie detectors.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013851/87197547/hoaxes8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The food pyramid.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013859/87197548/hoaxes9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. That people are “right” or “left” brained thinkers, and that it has any bearing on their personality and level of logic or creativity.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013903/87197549/hoaxes10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Detox. What do you think your liver and kidneys are doing all day? If they weren’t working you would be on a form of detox called dialysis.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013911/87197550/hoaxes11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That MSG is bad for you. I meet people regularly that think its a super insta-cancer ingredient that will cause you to die or something based on 80s/90s false scares. Then I tell them, you do know it naturally occurs on tomatoes, yes?</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013914/87197551/hoaxes12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. That dog mouths are cleaner than humans!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013923/87197552/hoaxes13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The earth being flat. We have literally gone to space, taken pictures, boiled all of it down to the level a kindergartener can understand, and some idiots still dont get it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013925/87197553/hoaxes14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Personal carbon footprint or any green initiative which focuses on individual action. BP invented the entire concept during a marketing push to hide the fact that like 72 companies produce 90% of pollution.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013935/87197554/hoaxes15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. If you pull out a gray hair, three more grow in its place. My sister still believes this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013937/87197555/hoaxes16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Professional fighters dont actually have to register their hands as weapons. No body part can be registered as a weapon.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013946/87197556/hoaxes17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. That NASA spent tons of money developing a pen to work in space and the Russians just used a pencil.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013948/87197557/hoaxes18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That it’s illegal to keep the light on in the car while driving.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013957/87197558/hoaxes19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. That cold weather can give you a cold.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013958/87197559/hoaxes20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. That you swallow 8 spiders a year in your sleep.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014009/87197560/hoaxes21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. People putting needles, poison, or drugs in Halloween candy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014020/87197561/hoaxes23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Wolf hierarchy with alpha on top and omega at the bottom. The author of the original paper has been on a thirty-year crusade to make people forget he ever wrote it. The following year he published a correction.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014031/87197562/hoaxes22.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">21 People Who Thought They Were Tougher than the Sun</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115741/87197388/arm.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115750/87197389/back.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115752/87197390/ankle.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115801/87197391/bed.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115803/87197392/chest.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115812/87197393/dogs.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115739/87197387/alien.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115814/87197394/hands.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115823/87197395/face.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115825/87197396/hat.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115834/87197397/legs.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115836/87197398/line.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115845/87197399/maze.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115847/87197400/night.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115859/87197402/purp.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115909/87197403/red.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115857/87197401/pink.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115911/87197404/strap.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115920/87197405/tank.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115922/87197406/tat.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115932/87197407/white.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">40 Fascinating and WTF Statistics We Can't Believe </a><br>
 
 <span style="font-size:4em">1. Of the 30 fastest 100 meter sprint times, 21 were run by athletes who tested positive for performance enhancing drugs.The other 9 were Usain Bolt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179760.jpg" style="width:100%"><br>
 
@@ -1066,156 +1216,6 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 <span style="font-size:4em">38. If you take away every single goal Wayne Gretzky scored in his career, he would still be the All Time points leader, with just his assists alone.That’s 894 goals, 1,963 assists, for 2,857 total points. Gretzky is the GOAT of sports.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179798.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">39. 86 percent of British citizens reside within 8 miles of their birthplace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179799.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">38 Spectacular Things People Found in the Wild</a><br>
-
-<span style="font-size:4em">1. “Discovered that my tooth implant doesn’t glow like the rest of my teeth under black light. Regular photo for comparison.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “How these clam shells fit together”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My salsa jar lid kind of looks like a map of the world.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178073.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My treadmill kicked all the dirt from my shoes into a ’heavy’ and a ’light’ pile.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178059.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Came across a dual-colored tulip today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Garage door on the corner of the building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178061.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Came upon a stained-glass window hanging in a forest in Belgium.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Drive-through speaker broke, so they taped a baby monitor to it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Hole in concrete looks like a frog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Found a corner piano at the piano store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178065.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Someone brought their cow to see the Easter bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178066.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Eggs dyed in onion skins and purple cabbage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178067.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. “The vacation house we rented has a toaster built into the wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178068.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Cardboard rings for this 6-pack instead of the plastic ones”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178058.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Hole in the wall of the shower to throw away empty shampoo bottles. Seen in the wash house of a campsite.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178070.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. “The drain from this bubbler goes down to fill the dogs’ water bowl.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178071.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Tiles for matching up the color of the water on the Santa Cruz pier”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178072.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Moldy orange that looks like a planet”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178074.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. “My parents’ toilet phone for urgent toilet-related calls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178075.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Thumbs-up burn on an up thumb”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Fresh wolf print I came across while lost in Denali, Alaska”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178077.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Get the good boy some roasted chicken.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “It got hit by a bear last night. He left fingerprints.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “This book was completely ravaged by termites.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178080.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Look at this oddly shaped banana I found.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178081.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. “I had to pay 50 cents to use the restroom, but there is a cutout for kids to use it for free.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178082.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This giant blueberry I found today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “This ’ice grass’ that forms at my job sites”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “The frost on my car window was melted by the sun through the mirror.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. These ants found shelter on a tennis ball.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178086.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. “There was a billiard ball inside of my bocce ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “This fungus looks like a chocolate-covered doughnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “This restaurant near my house uses concrete sewer pipes for outdoor seating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178089.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. “The way a tiny crab builds this pattern out of sand balls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178090.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. “This pipe was painted to look like the bricks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “This plant growing out of a traffic cone”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178092.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. “The snow melted and slid down the wire in a spiral form.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “The inside of this apple was eaten by wasps.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178095.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">33 Funny Memes Fresh off the Wagon </a><br>
-
-<span style="font-size:4em">1. Oh we promise, its not that bad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This man is going to go down in history as the 21st centuries Alexander the Great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Umm, weve never had deal with this issue before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. *Farts* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. We cant be the only ones who see it. Oh how the turns have tabled. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This mind tricks do not work on us. F u pay me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Can you spot it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183330.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Shout out to the bros, keep your chin up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The kids today have no idea how good they have it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I need this for the lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The madman actually did it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183340.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183341.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Not so much a meme as an observation. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This picture hurts my head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183343.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. There is always that one guy who sounds like he just ran a mile before logging in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. If I pretend Im invisible theyll never notice Im here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Clever, real clever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183348.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
