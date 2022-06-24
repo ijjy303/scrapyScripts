@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/24/2022-01:47:18
+Last updated: 06/24/2022-02:47:18
 <br>
 ## <a href="#linky2" id="linky1">34 Dank Memes That Have Overstayed Their Dankness</a><br>
 
@@ -73,157 +73,53 @@ Last updated: 06/24/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">38 Spectacular Things People Found in the Wild</a><br>
+## <a href="#linky3" id="linky2">21 People Who Thought They Were Tougher than the Sun</a><br>
 
-<span style="font-size:4em">1. “Discovered that my tooth implant doesn’t glow like the rest of my teeth under black light. Regular photo for comparison.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178069.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115741/87197388/arm.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “How these clam shells fit together”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178094.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115750/87197389/back.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “My salsa jar lid kind of looks like a map of the world.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178073.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115752/87197390/ankle.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “My treadmill kicked all the dirt from my shoes into a ’heavy’ and a ’light’ pile.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178059.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115801/87197391/bed.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Came across a dual-colored tulip today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178060.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115803/87197392/chest.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Garage door on the corner of the building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178061.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115812/87197393/dogs.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Came upon a stained-glass window hanging in a forest in Belgium.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178062.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115739/87197387/alien.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Drive-through speaker broke, so they taped a baby monitor to it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178063.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115814/87197394/hands.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Hole in concrete looks like a frog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178064.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115823/87197395/face.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Found a corner piano at the piano store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178065.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115825/87197396/hat.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Someone brought their cow to see the Easter bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178066.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115834/87197397/legs.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Eggs dyed in onion skins and purple cabbage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178067.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115836/87197398/line.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “The vacation house we rented has a toaster built into the wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178068.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115845/87197399/maze.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Cardboard rings for this 6-pack instead of the plastic ones”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178058.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115847/87197400/night.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Hole in the wall of the shower to throw away empty shampoo bottles. Seen in the wash house of a campsite.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178070.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115859/87197402/purp.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “The drain from this bubbler goes down to fill the dogs’ water bowl.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178071.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115909/87197403/red.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Tiles for matching up the color of the water on the Santa Cruz pier”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178072.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115857/87197401/pink.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Moldy orange that looks like a planet”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178074.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115911/87197404/strap.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “My parents’ toilet phone for urgent toilet-related calls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178075.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115920/87197405/tank.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Thumbs-up burn on an up thumb”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178076.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115922/87197406/tat.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Fresh wolf print I came across while lost in Denali, Alaska”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178077.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Get the good boy some roasted chicken.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “It got hit by a bear last night. He left fingerprints.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “This book was completely ravaged by termites.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178080.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Look at this oddly shaped banana I found.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178081.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. “I had to pay 50 cents to use the restroom, but there is a cutout for kids to use it for free.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178082.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This giant blueberry I found today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “This ’ice grass’ that forms at my job sites”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “The frost on my car window was melted by the sun through the mirror.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. These ants found shelter on a tennis ball.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178086.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. “There was a billiard ball inside of my bocce ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “This fungus looks like a chocolate-covered doughnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “This restaurant near my house uses concrete sewer pipes for outdoor seating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178089.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. “The way a tiny crab builds this pattern out of sand balls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178090.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. “This pipe was painted to look like the bricks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “This plant growing out of a traffic cone”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178092.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. “The snow melted and slid down the wire in a spiral form.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “The inside of this apple was eaten by wasps.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178095.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115932/87197407/white.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">33 Funny Memes Fresh off the Wagon </a><br>
-
-<span style="font-size:4em">1. Oh we promise, its not that bad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This man is going to go down in history as the 21st centuries Alexander the Great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Umm, weve never had deal with this issue before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. *Farts* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. We cant be the only ones who see it. Oh how the turns have tabled. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This mind tricks do not work on us. F u pay me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Can you spot it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183330.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Shout out to the bros, keep your chin up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The kids today have no idea how good they have it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I need this for the lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The madman actually did it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183340.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183341.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Not so much a meme as an observation. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This picture hurts my head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183343.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. There is always that one guy who sounds like he just ran a mile before logging in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. If I pretend Im invisible theyll never notice Im here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Clever, real clever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183348.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">33 Internet Responses that Absolutely Killed It</a><br>
+## <a href="#linky4" id="linky3">33 Internet Responses that Absolutely Killed It</a><br>
 
 <span style="font-size:4em">1. Forgive us Pluto, we had no idea what we were doing!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/014823/87197563/87193813.jpg" style="width:100%"><br>
 
@@ -290,6 +186,110 @@ Last updated: 06/24/2022-01:47:18
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197082.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197087.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">25 Freaky Facts about Bill Gates</a><br>
+
+<span style="font-size:4em">1. Bill Gates once held up a line at a supermarket searching for a 50-cent coupon.
+
+-u/LetsPlayCanasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When Bill Gates got married, he bought out all the available hotel rooms in Lanai to keep media from staying there & hired all the helicopters on Maui to keep photographers from flying over the wedding.
+
+-u/Battle4Seattle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Warren Buffet, the worlds third-richest man with a net worth of 75 billion, took Bill Gates to McDonalds and paid for his meal using coupons.
+
+-u/EddieC1088</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bill Gates succeeded in his mission to build a toilet to help combat the sanitary crisis across multiple parts of Africa and India. Costing $350, it’s powered by worms, and doesnt require to be hooked up to a sewer system.
+
+-u/watrbuffalo95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Bill gates purchased Leonardo da Vincis Codex for $30,802,500. Three years later he had its pages scanned into digital image files, some of which were later distributed as a screensaver and wallpaper files on a CD-ROM as part of a Microsoft Plus! for Windows so everyone could enjoy them.
+
+-u/ImTheGerbilKing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A 9-yr-old Pakistani girl, Arfa Karim, was the youngest Microsoft Certified Professional (MCP) until 2008. When she suffered cardiac arrest in 2011, Bill Gates assembled an international panel of doctors to advise the local physicians treating her and offered to pay for treatment in the U.S.
+
+-u/anon_ymous_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Bill Gates has a McDonald’s Gold Card for unlimited free fast food.
+
+-u/Pixelmasterz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bill Gates predicted that the growth of instructional software will replace textbooks. However, in a 2018 survey of college students, the trade publication Library Journal found that 75 percent say that reading print books is easier than e-books.
+
+-u/vannybros</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Before proposing to Melinda, Bill Gates presented her with a whiteboard listing out the pros and cons of getting married.
+
+-u/SonOfQuora</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Soon after Bill Gates had gone to start Microsoft, a Harvard professor who had worked with him recalled, He had moved to Albuquerque... to run a small company writing code for microprocessors, of all things. I remember thinking: Such a brilliant kid. What a waste.
+
+-u/MountainWafer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Hospital staff were stunned when Bill Gates made an unexpected visit in 2010 to the death bed of Dr. Ed Roberts, his first employer and developer of the first commercially successful personal computer.
+
+-u/Sansabina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When Steve Jobs accused Microsoft of stealing idea for Windows from Mac, Bill Gates replied: Well, Steve.... I think its more like we both had this rich neighbor named Xerox and I broke into his house to steal the TV set and found out that you had already stolen it.
+
+-u/tinkrman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Bill Gates has donated more than $50 billion to charity.
+
+-u/insane_playzYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 1989, Bill Gates answered a Microsoft tech support call, and identified himself only as William, then solved the issue. The customer called back later specifically requesting him.
+
+-u/deanylev</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197590.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The generic silhouette in Microsoft Outlook 2010 is actually a shadow cutout of Bill Gates mugshot when he got arrested for a driving offense in 1977.
+
+-u/d_tothe_ust2353</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Bill Gates once released mosquitos during a Ted Talk, stating that poor people shouldnt be the only ones to have this experience.
+
+-u/Olek173</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Bill Gates mother, Mary, knew John Opel, CEO of IBM, because both served on the national United Way committee. At Marys request, Opel set up a meeting with Bill Gates, CEO of then-small software firm Microsoft, to discuss the possibility of using PC-DOS for IBMs about-to-be-released PC.
+
+-u/design-responsibly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bill Gates coyly defended his LSD use by saying I never missed a day of work.
+
+-u/longingforlong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Solitaire was created by a Microsoft intern who wasnt paid for the game. Bill Gates liked the idea but complained it was too difficult to win at this game. Original version also included a fake Excel spreadsheet to hide the game from your boss.
+
+-u/topredditgeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. When Sega was discontinuing the Dreamcast in 2001, Chairman Isao Okawa offered Microsoft their assets so that the Xbox could have backwards compatibility with Dreamcast games so the console could live on in some way. Okawa met with Bill Gates several times before negotiations fell through.
+
+-u/derstherower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Bill Gates accidentally got into philanthropy after he and his wife accidentally came across extremely impoverished people while they were sight seeing. He now says philanthropy is the best job in the world.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Bill Gates wrote his schools computer program for scheduling students in their classes. He edited it so he would end up sitting with female students.
+
+-u/Deadpooldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197597.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. Control+Alt+Delete was used to log into Windows. According to Bill Gates, there was an option to make a single button for such a command, but the IBM keyboard designer didn’t want to give Microsoft a single button. So Microsoft decided to use “Ctrl+Alt+Del” as a way to log into Windows.
+
+-u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Nebraskas highest honor is being a Nebraska Admiral, despite Nebraska being the USs only triply-landlocked state. It has been awarded to numerous presidents, Bill Gates and Bill Murray, and The Queen.
+
+-u/Discount_Timelord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. An Atari executive recalled that he showed Bill Gates a game and defeated him 35 of 37 times. When they met again a month later, Gates won or tied every game. He had studied the game until he solved it.
+
+-u/Yubisaki_Milk_Tea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197601.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -863,121 +863,7 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">25 Freaky Facts about Bill Gates</a><br>
-
-<span style="font-size:4em">1. Bill Gates once held up a line at a supermarket searching for a 50-cent coupon.
-
--u/LetsPlayCanasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When Bill Gates got married, he bought out all the available hotel rooms in Lanai to keep media from staying there & hired all the helicopters on Maui to keep photographers from flying over the wedding.
-
--u/Battle4Seattle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Warren Buffet, the worlds third-richest man with a net worth of 75 billion, took Bill Gates to McDonalds and paid for his meal using coupons.
-
--u/EddieC1088</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bill Gates succeeded in his mission to build a toilet to help combat the sanitary crisis across multiple parts of Africa and India. Costing $350, it’s powered by worms, and doesnt require to be hooked up to a sewer system.
-
--u/watrbuffalo95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Bill gates purchased Leonardo da Vincis Codex for $30,802,500. Three years later he had its pages scanned into digital image files, some of which were later distributed as a screensaver and wallpaper files on a CD-ROM as part of a Microsoft Plus! for Windows so everyone could enjoy them.
-
--u/ImTheGerbilKing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A 9-yr-old Pakistani girl, Arfa Karim, was the youngest Microsoft Certified Professional (MCP) until 2008. When she suffered cardiac arrest in 2011, Bill Gates assembled an international panel of doctors to advise the local physicians treating her and offered to pay for treatment in the U.S.
-
--u/anon_ymous_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bill Gates has a McDonald’s Gold Card for unlimited free fast food.
-
--u/Pixelmasterz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bill Gates predicted that the growth of instructional software will replace textbooks. However, in a 2018 survey of college students, the trade publication Library Journal found that 75 percent say that reading print books is easier than e-books.
-
--u/vannybros</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Before proposing to Melinda, Bill Gates presented her with a whiteboard listing out the pros and cons of getting married.
-
--u/SonOfQuora</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Soon after Bill Gates had gone to start Microsoft, a Harvard professor who had worked with him recalled, He had moved to Albuquerque... to run a small company writing code for microprocessors, of all things. I remember thinking: Such a brilliant kid. What a waste.
-
--u/MountainWafer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Hospital staff were stunned when Bill Gates made an unexpected visit in 2010 to the death bed of Dr. Ed Roberts, his first employer and developer of the first commercially successful personal computer.
-
--u/Sansabina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. When Steve Jobs accused Microsoft of stealing idea for Windows from Mac, Bill Gates replied: Well, Steve.... I think its more like we both had this rich neighbor named Xerox and I broke into his house to steal the TV set and found out that you had already stolen it.
-
--u/tinkrman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Bill Gates has donated more than $50 billion to charity.
-
--u/insane_playzYT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1989, Bill Gates answered a Microsoft tech support call, and identified himself only as William, then solved the issue. The customer called back later specifically requesting him.
-
--u/deanylev</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197590.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The generic silhouette in Microsoft Outlook 2010 is actually a shadow cutout of Bill Gates mugshot when he got arrested for a driving offense in 1977.
-
--u/d_tothe_ust2353</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bill Gates once released mosquitos during a Ted Talk, stating that poor people shouldnt be the only ones to have this experience.
-
--u/Olek173</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bill Gates mother, Mary, knew John Opel, CEO of IBM, because both served on the national United Way committee. At Marys request, Opel set up a meeting with Bill Gates, CEO of then-small software firm Microsoft, to discuss the possibility of using PC-DOS for IBMs about-to-be-released PC.
-
--u/design-responsibly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bill Gates coyly defended his LSD use by saying I never missed a day of work.
-
--u/longingforlong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Solitaire was created by a Microsoft intern who wasnt paid for the game. Bill Gates liked the idea but complained it was too difficult to win at this game. Original version also included a fake Excel spreadsheet to hide the game from your boss.
-
--u/topredditgeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When Sega was discontinuing the Dreamcast in 2001, Chairman Isao Okawa offered Microsoft their assets so that the Xbox could have backwards compatibility with Dreamcast games so the console could live on in some way. Okawa met with Bill Gates several times before negotiations fell through.
-
--u/derstherower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Bill Gates accidentally got into philanthropy after he and his wife accidentally came across extremely impoverished people while they were sight seeing. He now says philanthropy is the best job in the world.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Bill Gates wrote his schools computer program for scheduling students in their classes. He edited it so he would end up sitting with female students.
-
--u/Deadpooldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197597.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. Control+Alt+Delete was used to log into Windows. According to Bill Gates, there was an option to make a single button for such a command, but the IBM keyboard designer didn’t want to give Microsoft a single button. So Microsoft decided to use “Ctrl+Alt+Del” as a way to log into Windows.
-
--u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Nebraskas highest honor is being a Nebraska Admiral, despite Nebraska being the USs only triply-landlocked state. It has been awarded to numerous presidents, Bill Gates and Bill Murray, and The Queen.
-
--u/Discount_Timelord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. An Atari executive recalled that he showed Bill Gates a game and defeated him 35 of 37 times. When they met again a month later, Gates won or tied every game. He had studied the game until he solved it.
-
--u/Yubisaki_Milk_Tea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197601.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">22 Fake Things That People Still Believe</a><br>
+## <a href="#linky13" id="linky12">22 Fake Things That People Still Believe</a><br>
 
 <span style="font-size:4em">1. Touching a baby bird will make its parents reject it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/013806/87197542/hoaxes1.jpg" style="width:100%"><br>
 
@@ -1025,73 +911,87 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">33 Dank Memes to Laugh the Pain Away</a><br>
+## <a href="#linky14" id="linky13">Landlord Threatens to Remove Tenant’s Bedroom Lock, Gets Put In His Place</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041438/87197666/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197262.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041447/87197667/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197261.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197265.gif" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197277.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197279.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197287.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/041435/87197665/last.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">40 Fascinating and WTF Statistics We Can't Believe </a><br>
+## <a href="#linky15" id="linky14">33 Funny Memes Fresh off the Wagon </a><br>
+
+<span style="font-size:4em">1. Oh we promise, its not that bad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This man is going to go down in history as the 21st centuries Alexander the Great. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Umm, weve never had deal with this issue before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. *Farts* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. We cant be the only ones who see it. Oh how the turns have tabled. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This mind tricks do not work on us. F u pay me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Can you spot it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183330.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Shout out to the bros, keep your chin up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The kids today have no idea how good they have it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I need this for the lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The madman actually did it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183340.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183341.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Not so much a meme as an observation. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. This picture hurts my head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183343.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. There is always that one guy who sounds like he just ran a mile before logging in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. If I pretend Im invisible theyll never notice Im here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Clever, real clever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87183348.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">40 Fascinating and WTF Statistics We Can't Believe </a><br>
 
 <span style="font-size:4em">1. Of the 30 fastest 100 meter sprint times, 21 were run by athletes who tested positive for performance enhancing drugs.The other 9 were Usain Bolt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87179760.jpg" style="width:100%"><br>
 
@@ -1173,49 +1073,149 @@ If I hadnt been on the phone, distracted and tired, I would never have let him g
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">21 People Who Thought They Were Tougher than the Sun</a><br>
+## <a href="#linky17" id="linky16">38 Spectacular Things People Found in the Wild</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115741/87197388/arm.png" style="width:100%"><br>
+<span style="font-size:4em">1. “Discovered that my tooth implant doesn’t glow like the rest of my teeth under black light. Regular photo for comparison.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115750/87197389/back.png" style="width:100%"><br>
+<span style="font-size:4em">2. “How these clam shells fit together”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115752/87197390/ankle.png" style="width:100%"><br>
+<span style="font-size:4em">3. “My salsa jar lid kind of looks like a map of the world.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178073.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115801/87197391/bed.png" style="width:100%"><br>
+<span style="font-size:4em">4. “My treadmill kicked all the dirt from my shoes into a ’heavy’ and a ’light’ pile.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178059.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115803/87197392/chest.png" style="width:100%"><br>
+<span style="font-size:4em">5. “Came across a dual-colored tulip today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115812/87197393/dogs.png" style="width:100%"><br>
+<span style="font-size:4em">6. “Garage door on the corner of the building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178061.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115739/87197387/alien.png" style="width:100%"><br>
+<span style="font-size:4em">7. “Came upon a stained-glass window hanging in a forest in Belgium.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115814/87197394/hands.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Drive-through speaker broke, so they taped a baby monitor to it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115823/87197395/face.png" style="width:100%"><br>
+<span style="font-size:4em">9. “Hole in concrete looks like a frog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115825/87197396/hat.png" style="width:100%"><br>
+<span style="font-size:4em">10. “Found a corner piano at the piano store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178065.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115834/87197397/legs.png" style="width:100%"><br>
+<span style="font-size:4em">11. “Someone brought their cow to see the Easter bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178066.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115836/87197398/line.png" style="width:100%"><br>
+<span style="font-size:4em">12. “Eggs dyed in onion skins and purple cabbage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178067.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115845/87197399/maze.png" style="width:100%"><br>
+<span style="font-size:4em">13. “The vacation house we rented has a toaster built into the wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178068.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115847/87197400/night.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Cardboard rings for this 6-pack instead of the plastic ones”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178058.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115859/87197402/purp.png" style="width:100%"><br>
+<span style="font-size:4em">15. “Hole in the wall of the shower to throw away empty shampoo bottles. Seen in the wash house of a campsite.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178070.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115909/87197403/red.png" style="width:100%"><br>
+<span style="font-size:4em">16. “The drain from this bubbler goes down to fill the dogs’ water bowl.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178071.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115857/87197401/pink.png" style="width:100%"><br>
+<span style="font-size:4em">17. “Tiles for matching up the color of the water on the Santa Cruz pier”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178072.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115911/87197404/strap.png" style="width:100%"><br>
+<span style="font-size:4em">18. “Moldy orange that looks like a planet”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178074.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115920/87197405/tank.png" style="width:100%"><br>
+<span style="font-size:4em">19. “My parents’ toilet phone for urgent toilet-related calls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178075.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115922/87197406/tat.png" style="width:100%"><br>
+<span style="font-size:4em">20. “Thumbs-up burn on an up thumb”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/22/115932/87197407/white.png" style="width:100%"><br>
+<span style="font-size:4em">21. “Fresh wolf print I came across while lost in Denali, Alaska”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178077.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Get the good boy some roasted chicken.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “It got hit by a bear last night. He left fingerprints.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “This book was completely ravaged by termites.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178080.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Look at this oddly shaped banana I found.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178081.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. “I had to pay 50 cents to use the restroom, but there is a cutout for kids to use it for free.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178082.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This giant blueberry I found today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “This ’ice grass’ that forms at my job sites”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “The frost on my car window was melted by the sun through the mirror.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. These ants found shelter on a tennis ball.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178086.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. “There was a billiard ball inside of my bocce ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “This fungus looks like a chocolate-covered doughnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “This restaurant near my house uses concrete sewer pipes for outdoor seating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178089.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. “The way a tiny crab builds this pattern out of sand balls”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178090.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. “This pipe was painted to look like the bricks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “This plant growing out of a traffic cone”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178092.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. “The snow melted and slid down the wire in a spiral form.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “The inside of this apple was eaten by wasps.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87178095.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">33 Dank Memes to Laugh the Pain Away</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197261.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197265.gif" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197277.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197279.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87197287.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
