@@ -1,171 +1,95 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/24/2022-21:47:18
+Last updated: 06/24/2022-22:47:18
 <br>
-## <a href="#linky2" id="linky1">29 Dank Memes that Made Us Thank God it's Friday</a><br>
+## <a href="#linky2" id="linky1">42 Extra Spicy Memes for Filthy Minded Folks</a><br>
 
-<span style="font-size:4em">1. Its sad but true, food is going through the roof, perhaps the final sign the apocalypse is upon us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198663.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122922/87199279/87190933.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198681.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122900/87199275/87190908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198666.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122904/87199276/87190922.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198667.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122911/87199277/87190914.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198668.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122915/87199278/87190928.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Absolutely wild how quiet this case has been and no one else has been arrested, but if were being honest... what did we really expect?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198669.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122926/87199280/87190937.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198664.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122933/87199281/87190938.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198671.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122937/87199282/87195218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198665.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122853/87199274/87190912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198672.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122944/87199283/87195220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198673.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122948/87199284/87195221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198674.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122955/87199285/87195222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198675.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122959/87199286/87195224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198677.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/123006/87199287/87195228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198678.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/123010/87199288/87195230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198679.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/123017/87199289/87195232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198680.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/123021/87199290/87195233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198682.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/123028/87199291/87195238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198683.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/123032/87199292/87195240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198684.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/123039/87199293/87195241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198685.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196714.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198686.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196712.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198687.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196715.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198688.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196717.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198689.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196718.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198690.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196719.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198691.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196721.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198695.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196722.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198697.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196713.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196727.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">17 Interesting Facts We'd Never Heard</a><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196729.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. This is how huge a moose’s tooth is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197771.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196731.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Some movie theaters have the answer to the question that’s on literally everyone’s mind after a movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197772.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196732.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. You can’t put cartoons on food packaging in Chile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197773.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. George Jetson is about to be born.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197774.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196734.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The Boston Bruins know how to party… (From their 2011 Stanley Cup Final win).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197775.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A “modern” tomato vs. one grown from 150-year-old seeds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197776.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The Portuguese care about their cellphone tower aesthetics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197777.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The inside of the Leaning Tower of Pisa is… underwhelming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197778.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. This is what Pangea looks like with modern borders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197779.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. There IS a difference between jam, jelly, preserves, and butter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197780.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Alabama got real big snakes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Coconuts can be polished and they look sick when you do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. This is what the mold Goldfish are made out of looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If you sever a nerve in your finger it won’t prune anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Some remotes have a button just for soccer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Revolving fridges exist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. On September 2nd, 2019, an incredible thing happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197787.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196753.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
-
-<span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In South Korea, The Solar Panels In The Middle Of The Highway Have A Bicycle Path Underneath..cyclists Are Protected From The Sun, Isolated From Traffic, And The Country Can Produce Clean Energy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A Father Designs A Headstone For His Wheelchair-Bound Son Depicting Him Free Of His Earthly Burdens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A Statue In Istanbul To Honor Tombili, A Famous Stray Cat. He Used To Sit In This Position And Watch Passers-By</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Syrian Archaeologist Khaled Al Asaad Who Devoted His Life To The Excavation And Restoration Of Palmyra, A Unesco World Heritage Site. He Was Beheaded By Isis After Refusing To Disclose The Location Of Ancient Artifacts, Despite A Month Of Torture. He Died A Hero Of Heritage Protection</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This Homeless Mans Rabbit Was Thrown Over A Bridge By A Passerby And He Immediately Jumped Into The River To Save Her. He Won An Award, Was Given Animal Food And A Job, And The Passerby Was Charged With Animal Cruelty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This Man Spoke With Every Parent In Uvalde, Texas To Build Personalized Caskets For All 19 Children Who Were Killed. His Name Is Trey Ganem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When You Reach 100 Years Old In Barbados, You Get A Stamp In Your Honour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Vitaly Skakun Is A Hero After Sacrificing His Life To Blow Up The Henichesky Bridge. The Bridge Was Mined But A Russian Column Was Advancing And There Was No Time To Detonate It Remotely. Skakun Radioed His Unit And Told Them He Would Do It Manually, Saying Goodbye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This Is Jean-Baptiste Kempf, The Creator Of Vlc Media Player. He Refused Tens Of Millions Of Dollars In Order To Keep Vlc Ads-Free. Thanks, Jean!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Astronaut Mark Kelly Once Smuggled A Full Gorilla Suit On Board The International Space Station. He Didnt Tell Anyone About It. One Day, Without Anyone Knowing, He Put It On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This Amazing Photo Was From A 16 Y/O Girl Who Snuck Her Camera Into A Queen Concert In 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Parents In Poland Left Their Baby Strollers In Rail Road Stations For The Ukrainian Moms That Fled Carrying Their Children</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The Bee Lives Less Than 40 Days, Visits At Least 1000 Flowers & Produces Less Than A Teaspoon Of Honey. For Us, It Is Only A Teaspoon Of Honey, But For The Bee, It Is A Life. Thankyou, Bees!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Thomas Jefferson’s Sixth Great Grandson Recreates His Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Daniel Kordan Accidentally Photographed A Meteor While Capturing An Erupting Volcano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The Uncensored Library Is A Huge Minecraft Map Where Anyone Can Read Censored Journalism From Countries Without Freedom Of Press</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188681.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">25 Breaking Bad Facts You Never Knew </a><br>
+## <a href="#linky3" id="linky2">25 Breaking Bad Facts You Never Knew </a><br>
 
 <span style="font-size:4em">1. The fictional tequila Zafiro Añejo in Breaking Bad/BCS was created by the writers because they couldn’t get a real brand to do product placement due to a scene where several people die after drinking it.-u/Kanobe24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197482.jpg" style="width:100%"><br>
 
@@ -219,7 +143,65 @@ Last updated: 06/24/2022-21:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
+## <a href="#linky4" id="linky3">27 Jokes That People Just Didn’t Get</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123452/87198393/jokegetting1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123456/87198394/jokegetting2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123510/87198396/jokegetting4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125547/87198447/who-would-win-.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123516/87198397/jokegetting5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123521/87198398/jokegetting6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123527/87198399/jokegetting7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123532/87198400/jokegetting8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123538/87198401/jokegetting9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123543/87198402/jokegetting10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123549/87198403/jokegetting11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123554/87198404/jokegetting12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123601/87198405/jokegetting13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123606/87198406/jokegetting14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123613/87198407/jokegetting15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123617/87198408/jokegetting16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123625/87198409/jokegetting17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123628/87198410/jokegetting18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123636/87198411/jokegetting19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123640/87198412/jokegetting20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123648/87198413/jokegetting21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123651/87198414/jokegetting22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123659/87198415/jokegetting23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123701/87198416/jokegetting24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123710/87198417/jokegetting25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123712/87198418/jokegetting26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123722/87198419/jokegetting27.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
 
 <span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
 
@@ -253,7 +235,7 @@ Last updated: 06/24/2022-21:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">19 Photos Chock Full of WTF</a><br>
+## <a href="#linky6" id="linky5">19 Photos Chock Full of WTF</a><br>
 
 <span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
 
@@ -291,7 +273,7 @@ Last updated: 06/24/2022-21:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
+## <a href="#linky7" id="linky6">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112751/87199248/dog.jpg" style="width:100%"><br>
 
@@ -335,7 +317,7 @@ Last updated: 06/24/2022-21:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Not Another Batch of Absolutely ‘Nope’ Photos</a><br>
+## <a href="#linky8" id="linky7">Not Another Batch of Absolutely ‘Nope’ Photos</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197754.jpg" style="width:100%"><br>
 
@@ -405,169 +387,143 @@ Last updated: 06/24/2022-21:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">50 of the Dankest Memes and Funniest Pics You'll See All Day</a><br>
+## <a href="#linky9" id="linky8">29 Dank Memes that Made Us Thank God it's Friday</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092745/87198354/87194491.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Its sad but true, food is going through the roof, perhaps the final sign the apocalypse is upon us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197845.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197837.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197838.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197839.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197840.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Absolutely wild how quiet this case has been and no one else has been arrested, but if were being honest... what did we really expect?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197841.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197842.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197843.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197844.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092905/87198366/87195279.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197846.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197847.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197833.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197848.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197849.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197850.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197851.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197852.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197854.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197855.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197856.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197857.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197858.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197834.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197859.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197861.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197864.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197865.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87197873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092757/87198355/87194487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092808/87198356/87194488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092819/87198357/87194497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092829/87198358/87194496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092831/87198359/87194498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092841/87198360/87194499.png" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092842/87198361/87194505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092853/87198362/87194513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092853/87198363/87194519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092904/87198365/87194520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092916/87198367/87195282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092917/87198368/87195288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092927/87198369/87195285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092928/87198370/87195291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092938/87198372/87195293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092939/87198373/87195295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092950/87198374/87195297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/092950/87198375/87195308.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198697.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">The Funniest and Freshest Memes of the Week </a><br>
+## <a href="#linky10" id="linky9">17 Interesting Facts We'd Never Heard</a><br>
 
-<span style="font-size:4em">1. Hes real to me doc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198092.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. This is how huge a moose’s tooth is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198093.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Some movie theaters have the answer to the question that’s on literally everyone’s mind after a movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198094.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. You can’t put cartoons on food packaging in Chile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Oh yes, this is what Im talking about. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198095.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. George Jetson is about to be born.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This is the future venture capitalists want. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198096.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. The Boston Bruins know how to party… (From their 2011 Stanley Cup Final win).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. *Just Girly Things* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198097.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. A “modern” tomato vs. one grown from 150-year-old seeds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Bro, let him eat his steak however he wants. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198098.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. The Portuguese care about their cellphone tower aesthetics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197777.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198099.png" style="width:100%"><br>
+<span style="font-size:4em">8. The inside of the Leaning Tower of Pisa is… underwhelming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197778.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. You know, he does make a good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198100.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. This is what Pangea looks like with modern borders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197779.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198101.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. There IS a difference between jam, jelly, preserves, and butter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197780.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Would you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198102.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. Alabama got real big snakes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197781.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198103.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. Coconuts can be polished and they look sick when you do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197782.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198104.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. This is what the mold Goldfish are made out of looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198105.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. If you sever a nerve in your finger it won’t prune anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197784.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198106.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. Some remotes have a button just for soccer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198107.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. Revolving fridges exist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198109.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. On September 2nd, 2019, an incredible thing happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197787.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Its what you deserve babe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198110.jpeg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">19. We in the clear boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198111.jpeg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">18 Celebrities We Didn't Know Were Still Alive</a><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198112.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Mel Brooks - At 95, the iconic comedian is still blazing in his saddle. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020324/87198541/stillalive2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Thats facts, bro, no cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198113.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Bob Barker - At 98, the “Price is Right” host obviously hasn’t found his correct price yet. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020346/87198543/stillalive4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Aww he looks cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198114.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. Richard Petty - Regarded as possibly the greatest NASCAR driver ever, the seven time champion is no doubt still “The King” at 84.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020355/87198544/stillalive1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Some men just want to watch the world burn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198115.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Bob Dylan - The iconic singer songwriter is still alive, and considering how active he was with social justice issues during his youth its surprising we dont really hear from him today.. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020335/87198542/stillalive3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198116.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. Buzz Aldrin - The last remaining Apollo 11 crew member, and oldest remaining moonwalker, the 92 year old astronaut is still of this world. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020513/87198559/stillalive18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Damn, I do be looking good though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198117.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. David Attenborough - Known for being the classic voice behind nature documentaries, Attenborough can seem larger than life, but he is most definitely still living it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020358/87198545/stillalive5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198118.png" style="width:100%"><br>
+<span style="font-size:4em">7. Leslie Phillips - At 98, the British actor is the oldest person on our list, but the Tomb Raider actor is far from having his own yet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020409/87198547/stillalive7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198119.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Loretta Lynn - The iconic country music star is still blazing trails at 90.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020439/87198552/stillalive11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Lmao, the picture of this will live in my head the rest of my life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198120.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. Tony Bennett - The famous pop and jazz music star has unfortunately been diagnosed with Alzheimer’s, but is still going at 95.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020417/87198548/stillalive8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Get it, because there was none. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198121.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. Willie Mays - Considered by many to be the greatest baseball player to ever live, the “Say hey kid” is certainly no longer a youngster, and has outlived most of his contemporaries.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020428/87198550/stillalive9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Pelé - Considered by many to be the greatest footballer, the Brazilian superstar is most definitely still kicking.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020442/87198553/stillalive13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Cat Stevens - At 73, the British singer songwriter is going strong despite a serious bout with tuberculosis back in 1968.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020449/87198554/stillalive14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Dick Van Dyke - The 96 year old actor has recently reported that he is “Just glad to still be here.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020454/87198556/stillalive15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Sandy Koufax - Regarded by many as the greatest pitcher ever, and with an early retirement, Koufax has been out of the game a long time. With game footage of him hard to come by, it’s no surprise some people think the 86 year old pitcher is on the slab instead of toeing it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020420/87198549/stillalive10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. June Lockhart - At 96, the “Lassie” actress certainly is not a wee lass. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020431/87198551/stillalive12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mick Jagger - Not without some health scares, Mick Jagger has powered through and still doesn’t need a “Start Me Up.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020406/87198546/stillalive6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Keith Richards - Like Mick Jagger, the Rolling Stones guitarist is still rocking, and despite the band’s wild younger lifestyle, they are mostly still kicking into their 70s and 80s. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020501/87198557/stillalive16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Barry Gibb - The only surviving member of the Bee Gees, Barry Gibb is “Stayin’ Alive.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020505/87198558/stillalive17.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -699,101 +655,129 @@ You can eat, drink, or vape it. People are not losing their freedom as much over
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">27 Jokes That People Just Didn’t Get</a><br>
+## <a href="#linky14" id="linky13">The Funniest and Freshest Memes of the Week </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123452/87198393/jokegetting1.png" style="width:100%"><br>
+<span style="font-size:4em">1. Hes real to me doc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198092.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123456/87198394/jokegetting2.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198093.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123510/87198396/jokegetting4.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198094.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/125547/87198447/who-would-win-.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Oh yes, this is what Im talking about. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198095.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123516/87198397/jokegetting5.png" style="width:100%"><br>
+<span style="font-size:4em">5. This is the future venture capitalists want. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198096.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123521/87198398/jokegetting6.png" style="width:100%"><br>
+<span style="font-size:4em">6. *Just Girly Things* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198097.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123527/87198399/jokegetting7.png" style="width:100%"><br>
+<span style="font-size:4em">7. Bro, let him eat his steak however he wants. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198098.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123532/87198400/jokegetting8.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198099.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123538/87198401/jokegetting9.png" style="width:100%"><br>
+<span style="font-size:4em">9. You know, he does make a good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123543/87198402/jokegetting10.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198101.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123549/87198403/jokegetting11.png" style="width:100%"><br>
+<span style="font-size:4em">11. Would you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198102.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123554/87198404/jokegetting12.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198103.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123601/87198405/jokegetting13.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198104.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123606/87198406/jokegetting14.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198105.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123613/87198407/jokegetting15.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198106.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123617/87198408/jokegetting16.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198107.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123625/87198409/jokegetting17.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198109.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123628/87198410/jokegetting18.png" style="width:100%"><br>
+<span style="font-size:4em">18. Its what you deserve babe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198110.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123636/87198411/jokegetting19.png" style="width:100%"><br>
+<span style="font-size:4em">19. We in the clear boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198111.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123640/87198412/jokegetting20.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198112.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123648/87198413/jokegetting21.png" style="width:100%"><br>
+<span style="font-size:4em">21. Thats facts, bro, no cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198113.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123651/87198414/jokegetting22.png" style="width:100%"><br>
+<span style="font-size:4em">22. Aww he looks cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198114.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123659/87198415/jokegetting23.png" style="width:100%"><br>
+<span style="font-size:4em">23. Some men just want to watch the world burn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198115.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123701/87198416/jokegetting24.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198116.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123710/87198417/jokegetting25.png" style="width:100%"><br>
+<span style="font-size:4em">25. Damn, I do be looking good though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198117.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123712/87198418/jokegetting26.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198118.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/123722/87198419/jokegetting27.png" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198119.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Lmao, the picture of this will live in my head the rest of my life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198120.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Get it, because there was none. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198121.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">18 Celebrities We Didn't Know Were Still Alive</a><br>
+## <a href="#linky15" id="linky14">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
 
-<span style="font-size:4em">1. Mel Brooks - At 95, the iconic comedian is still blazing in his saddle. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020324/87198541/stillalive2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Bob Barker - At 98, the “Price is Right” host obviously hasn’t found his correct price yet. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020346/87198543/stillalive4.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Richard Petty - Regarded as possibly the greatest NASCAR driver ever, the seven time champion is no doubt still “The King” at 84.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020355/87198544/stillalive1.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Bob Dylan - The iconic singer songwriter is still alive, and considering how active he was with social justice issues during his youth its surprising we dont really hear from him today.. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020335/87198542/stillalive3.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In South Korea, The Solar Panels In The Middle Of The Highway Have A Bicycle Path Underneath..cyclists Are Protected From The Sun, Isolated From Traffic, And The Country Can Produce Clean Energy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Buzz Aldrin - The last remaining Apollo 11 crew member, and oldest remaining moonwalker, the 92 year old astronaut is still of this world. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020513/87198559/stillalive18.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A Father Designs A Headstone For His Wheelchair-Bound Son Depicting Him Free Of His Earthly Burdens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. David Attenborough - Known for being the classic voice behind nature documentaries, Attenborough can seem larger than life, but he is most definitely still living it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020358/87198545/stillalive5.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. A Statue In Istanbul To Honor Tombili, A Famous Stray Cat. He Used To Sit In This Position And Watch Passers-By</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Leslie Phillips - At 98, the British actor is the oldest person on our list, but the Tomb Raider actor is far from having his own yet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020409/87198547/stillalive7.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Loretta Lynn - The iconic country music star is still blazing trails at 90.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020439/87198552/stillalive11.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Syrian Archaeologist Khaled Al Asaad Who Devoted His Life To The Excavation And Restoration Of Palmyra, A Unesco World Heritage Site. He Was Beheaded By Isis After Refusing To Disclose The Location Of Ancient Artifacts, Despite A Month Of Torture. He Died A Hero Of Heritage Protection</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Tony Bennett - The famous pop and jazz music star has unfortunately been diagnosed with Alzheimer’s, but is still going at 95.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020417/87198548/stillalive8.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Willie Mays - Considered by many to be the greatest baseball player to ever live, the “Say hey kid” is certainly no longer a youngster, and has outlived most of his contemporaries.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020428/87198550/stillalive9.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This Homeless Mans Rabbit Was Thrown Over A Bridge By A Passerby And He Immediately Jumped Into The River To Save Her. He Won An Award, Was Given Animal Food And A Job, And The Passerby Was Charged With Animal Cruelty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Pelé - Considered by many to be the greatest footballer, the Brazilian superstar is most definitely still kicking.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020442/87198553/stillalive13.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cat Stevens - At 73, the British singer songwriter is going strong despite a serious bout with tuberculosis back in 1968.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020449/87198554/stillalive14.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. This Man Spoke With Every Parent In Uvalde, Texas To Build Personalized Caskets For All 19 Children Who Were Killed. His Name Is Trey Ganem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Dick Van Dyke - The 96 year old actor has recently reported that he is “Just glad to still be here.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020454/87198556/stillalive15.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. When You Reach 100 Years Old In Barbados, You Get A Stamp In Your Honour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Sandy Koufax - Regarded by many as the greatest pitcher ever, and with an early retirement, Koufax has been out of the game a long time. With game footage of him hard to come by, it’s no surprise some people think the 86 year old pitcher is on the slab instead of toeing it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020420/87198549/stillalive10.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. June Lockhart - At 96, the “Lassie” actress certainly is not a wee lass. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020431/87198551/stillalive12.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Mick Jagger - Not without some health scares, Mick Jagger has powered through and still doesn’t need a “Start Me Up.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020406/87198546/stillalive6.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Vitaly Skakun Is A Hero After Sacrificing His Life To Blow Up The Henichesky Bridge. The Bridge Was Mined But A Russian Column Was Advancing And There Was No Time To Detonate It Remotely. Skakun Radioed His Unit And Told Them He Would Do It Manually, Saying Goodbye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Keith Richards - Like Mick Jagger, the Rolling Stones guitarist is still rocking, and despite the band’s wild younger lifestyle, they are mostly still kicking into their 70s and 80s. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020501/87198557/stillalive16.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. This Is Jean-Baptiste Kempf, The Creator Of Vlc Media Player. He Refused Tens Of Millions Of Dollars In Order To Keep Vlc Ads-Free. Thanks, Jean!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Barry Gibb - The only surviving member of the Bee Gees, Barry Gibb is “Stayin’ Alive.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020505/87198558/stillalive17.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Astronaut Mark Kelly Once Smuggled A Full Gorilla Suit On Board The International Space Station. He Didnt Tell Anyone About It. One Day, Without Anyone Knowing, He Put It On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This Amazing Photo Was From A 16 Y/O Girl Who Snuck Her Camera Into A Queen Concert In 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Parents In Poland Left Their Baby Strollers In Rail Road Stations For The Ukrainian Moms That Fled Carrying Their Children</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The Bee Lives Less Than 40 Days, Visits At Least 1000 Flowers & Produces Less Than A Teaspoon Of Honey. For Us, It Is Only A Teaspoon Of Honey, But For The Bee, It Is A Life. Thankyou, Bees!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Thomas Jefferson’s Sixth Great Grandson Recreates His Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Daniel Kordan Accidentally Photographed A Meteor While Capturing An Erupting Volcano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The Uncensored Library Is A Huge Minecraft Map Where Anyone Can Read Censored Journalism From Countries Without Freedom Of Press</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188681.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
