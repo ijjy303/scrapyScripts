@@ -1,113 +1,77 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/24/2022-19:47:18
+Last updated: 06/24/2022-20:47:18
 <br>
-## <a href="#linky2" id="linky1">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
+## <a href="#linky2" id="linky1">Not Another Batch of Absolutely ‘Nope’ Photos</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112751/87199248/dog.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112739/87199247/charge.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197735.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199251/dance.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197734.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112814/87199252/fish.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199250/bottle.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112822/87199253/goat.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112803/87199249/doll.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112825/87199254/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112837/87199256/grind.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112833/87199255/hi.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112844/87199257/light.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112855/87199259/pee.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112858/87199260/poop.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112907/87199261/puke.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112909/87199262/radiator.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112848/87199258/nope.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112931/87199266/spray.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112918/87199263/pour.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112920/87199264/sad.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112930/87199265/spill.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197751.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197752.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">The Funniest and Freshest Memes of the Week </a><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Hes real to me doc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198092.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198093.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198094.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Oh yes, this is what Im talking about. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198095.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This is the future venture capitalists want. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198096.jpeg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. *Just Girly Things* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198097.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Bro, let him eat his steak however he wants. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198098.jpeg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198099.png" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. You know, he does make a good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198100.jpeg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198101.jpeg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Would you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198102.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198103.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198104.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198105.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198106.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198107.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198109.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Its what you deserve babe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198110.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. We in the clear boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198111.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198112.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Thats facts, bro, no cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198113.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Aww he looks cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198114.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Some men just want to watch the world burn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198115.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198116.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Damn, I do be looking good though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198117.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198118.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198119.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Lmao, the picture of this will live in my head the rest of my life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198120.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Get it, because there was none. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198121.jpeg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197769.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">18 Celebrities We Didn't Know Were Still Alive</a><br>
+## <a href="#linky3" id="linky2">18 Celebrities We Didn't Know Were Still Alive</a><br>
 
 <span style="font-size:4em">1. Mel Brooks - At 95, the iconic comedian is still blazing in his saddle. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020324/87198541/stillalive2.jpg" style="width:100%"><br>
 
@@ -147,7 +111,7 @@ Last updated: 06/24/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
+## <a href="#linky4" id="linky3">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
 
 <span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
 
@@ -211,7 +175,7 @@ Last updated: 06/24/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Breaking Bad Facts You Never Knew </a><br>
+## <a href="#linky5" id="linky4">25 Breaking Bad Facts You Never Knew </a><br>
 
 <span style="font-size:4em">1. The fictional tequila Zafiro Añejo in Breaking Bad/BCS was created by the writers because they couldn’t get a real brand to do product placement due to a scene where several people die after drinking it.-u/Kanobe24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197482.jpg" style="width:100%"><br>
 
@@ -265,7 +229,7 @@ Last updated: 06/24/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
+## <a href="#linky6" id="linky5">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
 
 <span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
 
@@ -299,7 +263,7 @@ Last updated: 06/24/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">19 Photos Chock Full of WTF</a><br>
+## <a href="#linky7" id="linky6">19 Photos Chock Full of WTF</a><br>
 
 <span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
 
@@ -334,6 +298,50 @@ Last updated: 06/24/2022-19:47:18
 <span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112751/87199248/dog.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112739/87199247/charge.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199251/dance.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112814/87199252/fish.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199250/bottle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112822/87199253/goat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112803/87199249/doll.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112825/87199254/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112837/87199256/grind.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112833/87199255/hi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112844/87199257/light.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112855/87199259/pee.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112858/87199260/poop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112907/87199261/puke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112909/87199262/radiator.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112848/87199258/nope.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112931/87199266/spray.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112918/87199263/pour.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112920/87199264/sad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112930/87199265/spill.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -395,71 +403,7 @@ Last updated: 06/24/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">30 Times Safety Was Not a Priority</a><br>
-
-<span style="font-size:4em">1. I hope the ER has a 2 for 1 special.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. He told me, “The boss said this is how we always do it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. 3 persons = 6 feet; 6 feet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Forklifts do not win against concrete pillars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. At least they’re wearing high-vis gear. Just don’t look down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Speaking of forklifts vs. concrete pillars, luckily they only hit the air pipe and not the 480 V box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. This ladder on my job site that is held together with a strip of house wrap & a strap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Thanks to the store owners’ refusal to spend any money until the last minute, we now have load bearing cardboard boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This is safe? Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Wanna play dominoes?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Padlocked fire exit during office renovation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. That should do it . . .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Just a man on a stack of pallets raised by a forklift changing the bulb on a street light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. New bossfight?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The ol’ safety squints for eye protection! (It was on a company’s website!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Why yes, that is a ladder tied to ammonia piping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This was being used to tow a kubota backhoe. 5,500-9,500 lbs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. You ever just feel like lounging in a wood chipper?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Apparently these are legal to sell?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. House nearly toppled over by high winds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Don’t worry, I won’t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Stairway to Heaven?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Introducing Donkey Kong arcade level scaffolding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just a small jump and it’ll move again, nothing to worry about Jim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Safety 100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. New OSHA certified self-greasing outlets. You’ll never have to worry about struggling to pull out again!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Labor foreman didn’t feel like moving the lift, so this is how he wants us to unload.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. New guy (somehow still here), had a bit too much fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Ladder is on truck bumper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. This safety violation still made me smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198244.gif" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">17 Interesting Facts We'd Never Heard</a><br>
+## <a href="#linky10" id="linky9">17 Interesting Facts We'd Never Heard</a><br>
 
 <span style="font-size:4em">1. This is how huge a moose’s tooth is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197771.jpg" style="width:100%"><br>
 
@@ -497,7 +441,7 @@ Last updated: 06/24/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">34 Dank Memes That Have Overstayed Their Dankness</a><br>
+## <a href="#linky11" id="linky10">34 Dank Memes That Have Overstayed Their Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87197985.jpg" style="width:100%"><br>
 
@@ -566,6 +510,62 @@ Last updated: 06/24/2022-19:47:18
 <span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198019.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198020.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">25 Things We’re Living In the "Golden Age" Of</a><br>
+
+<span style="font-size:4em">1. Photography. Now almost everyone has a camera, usually in their phone. And they are so simple to use its easy to take decent photos. It used to be a camera was a dedicated device you had to learn how to use properly and have the film developed by someone, or yourself if you had a darkroom and knowledge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> And the photos you could take were limited by the film roll. Use up a 36 exposure roll? Youll have to stop and put in a new roll. Using ISO 200 film, but you want to take low-light photos? Youll have to stop, remove the 200 roll, and put in an ISO 400 (or higher) roll.-u/Chrome_Armadillo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Id say cleanliness when compared to past ages, but something about The Golden Age of Showers doesnt sit right…-u/Xx-BlackSheep-xX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Disabled person here. We live in a golden age of accessibility tools based on technological advancements. Just take the car industry as an example. The amount of aftermarket accessibility accessories that were invented in the past 10 years alone have made driving accessible to many people with disabilities.-u/Cristal1337</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I was just thinking the other day: Juice. My mom LOVED juice but she passed away in 00 and when I realized I had a full OJ-sized jug of straight-up Watermelon Juice in my fridge, I got sad that she missed out on even the POM craze and just really a bunch of super tasty juice from fruits that she may not have even knew existed like açai and sh*t.-u/Hambulance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Entertainment. Its wild, Im overwhelmed by my choices when it comes to picking out shows/movies to watch, music to listen to, fashion, and other trends to follow. Its definitely unsustainable, though.-u/Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Self-education. YouTube should be remembered as an important of an invention as the television. We can teach ourselves almost anything, watching enough videos and reading about it online.-u/Countrydiscipline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The ease of listening to music is pretty incredible right now.-u/hypo-osmotic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. PALEONTOLOGY. The things we know now about the prehistoric world are mind-blowing. More and more is being worked out about the looks and behavior of dinosaurs and all their fellow extinct organisms. Compared to what was happening when I was a kid we’ve moved on in leaps and bounds.If you haven’t yet, check out Sir David and the BBC’s Prehistoric World. Awesome.Oops. Prehistoric Planet, not Prehistoric World.-u/cold-hard-steel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The golden age for scammers.-u/Error404DudeNotFound</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Artistic creation. As a musician born in the early 1970s, Im constantly astounded by how cheap and easy it is to record and release high-quality music.-u/ThunderClap_Fween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Board games.-u/sstair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Phones and depression.-u/CARCAR1555</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197721.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Consumerism and instant gratification.-u/CandidJudgement</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Envy. Never has it been so easy to witness so many people having so many things youd wish youd have, so excessively. People used to envy the popular guy in their town, the pretty girl, the rich family. The modern world is Hell for the enviously inclined.-u/Redditforgoit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A**. The 90s/00s everyone was trying to have small asses. The phrase does my bum look big in this? was so common it was a cliche. Now its the reverse. Plus yoga pants are considered normal fashion. Bikini bottoms have gotten way smaller and are worn way higher. It truly is the golden age.-u/privatetudor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197723.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Doing stupid sh*t for fake internet points.-u/I_N_C_O_M_I_N_G</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Combustion Engines. They are at their most efficient brought on by the push towards hybrids and electric, and the rising cost of fuel. Factory delivered 4 cylinders, 2-liter engines are over 400 horsepower now. With a warranty. And they still do 40mpg! So I think were in the golden age of the combustion engine, which will be slow and drawn out, giving way to the new age of electronic, hybrid, and perhaps even hydrogen, powered vehicles.-u/Spazloy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Beer. Amazing microbreweries have proliferated over the past 25 years in the US. Sometimes I get choice paralysis at my local liquor store.-u/bubbygups</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Remote work. We got it during the pandemic and now we need to make it the norm. The ability to make good money and live anywhere is a luxury that was hard to imagine just 10 years ago.-u/Aldebaran7790</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The golden age of misinformation and sensory overload. Never before had humans had to deal with so much information thrown at them. Every time you put effort into discrediting an information piece as a fake, 10x the amount gets thrown at you again before you finished. No matter how much effort you put into sorting truth from fake, you will never keep up until at some point you either give up and accept information as is or withdraw from letting information reach you.-u/TonkatsuRa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Porn. OF, Loyalfans, Instagram, TikTok, etc., are just full of people making x-rated content or thirst traps. Man, you used to have to go to dedicated sites for porn, but you can get it anywhere these days.-u/BeanieGuy234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Astronomy. We happen to exist for a brief moment in cosmological time where we can actually see other galaxies, and get a sense of the huge scale of the universe. Eventually, in the far future, space will be expanding too fast for the light of distant galaxies or the afterglow of the big bang to reach us.-u/Arc125</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Marijuana. Its becoming more and more legal so more people are experimenting with it and creating all sorts of insane potent strains and concentrates. The weed industry brings in so much money its ridiculous. New discoveries are being made, new medicines are being created from it, and you dont even have to smoke it anymore. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+You can eat, drink, or vape it. People are not losing their freedom as much over it and its becoming less of a social stigma. One problem I do see is how ridiculous the potency is with the new-age THC products and not everyone can handle 80-90%+ THC. Sometimes it feels like a borderline psychedelic. I remember having this one particular strain of weed that got me so high that I felt like I did a bump of ketamine.-u/SirGanjaSpliffington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197731.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -673,59 +673,65 @@ Last updated: 06/24/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">25 Things We’re Living In the "Golden Age" Of</a><br>
+## <a href="#linky14" id="linky13">The Funniest and Freshest Memes of the Week </a><br>
 
-<span style="font-size:4em">1. Photography. Now almost everyone has a camera, usually in their phone. And they are so simple to use its easy to take decent photos. It used to be a camera was a dedicated device you had to learn how to use properly and have the film developed by someone, or yourself if you had a darkroom and knowledge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197706.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Hes real to me doc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198092.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em"> And the photos you could take were limited by the film roll. Use up a 36 exposure roll? Youll have to stop and put in a new roll. Using ISO 200 film, but you want to take low-light photos? Youll have to stop, remove the 200 roll, and put in an ISO 400 (or higher) roll.-u/Chrome_Armadillo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197711.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198093.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Id say cleanliness when compared to past ages, but something about The Golden Age of Showers doesnt sit right…-u/Xx-BlackSheep-xX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197712.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198094.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Disabled person here. We live in a golden age of accessibility tools based on technological advancements. Just take the car industry as an example. The amount of aftermarket accessibility accessories that were invented in the past 10 years alone have made driving accessible to many people with disabilities.-u/Cristal1337</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197713.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Oh yes, this is what Im talking about. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198095.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I was just thinking the other day: Juice. My mom LOVED juice but she passed away in 00 and when I realized I had a full OJ-sized jug of straight-up Watermelon Juice in my fridge, I got sad that she missed out on even the POM craze and just really a bunch of super tasty juice from fruits that she may not have even knew existed like açai and sh*t.-u/Hambulance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197714.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This is the future venture capitalists want. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198096.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Entertainment. Its wild, Im overwhelmed by my choices when it comes to picking out shows/movies to watch, music to listen to, fashion, and other trends to follow. Its definitely unsustainable, though.-u/Happy_Description_13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197715.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. *Just Girly Things* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198097.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Self-education. YouTube should be remembered as an important of an invention as the television. We can teach ourselves almost anything, watching enough videos and reading about it online.-u/Countrydiscipline</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197709.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Bro, let him eat his steak however he wants. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198098.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The ease of listening to music is pretty incredible right now.-u/hypo-osmotic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197716.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198099.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. PALEONTOLOGY. The things we know now about the prehistoric world are mind-blowing. More and more is being worked out about the looks and behavior of dinosaurs and all their fellow extinct organisms. Compared to what was happening when I was a kid we’ve moved on in leaps and bounds.If you haven’t yet, check out Sir David and the BBC’s Prehistoric World. Awesome.Oops. Prehistoric Planet, not Prehistoric World.-u/cold-hard-steel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197717.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. You know, he does make a good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The golden age for scammers.-u/Error404DudeNotFound</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197718.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198101.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Artistic creation. As a musician born in the early 1970s, Im constantly astounded by how cheap and easy it is to record and release high-quality music.-u/ThunderClap_Fween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197719.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Would you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198102.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Board games.-u/sstair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197720.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198103.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Phones and depression.-u/CARCAR1555</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197721.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198104.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Consumerism and instant gratification.-u/CandidJudgement</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197707.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198105.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Envy. Never has it been so easy to witness so many people having so many things youd wish youd have, so excessively. People used to envy the popular guy in their town, the pretty girl, the rich family. The modern world is Hell for the enviously inclined.-u/Redditforgoit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197722.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198106.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A**. The 90s/00s everyone was trying to have small asses. The phrase does my bum look big in this? was so common it was a cliche. Now its the reverse. Plus yoga pants are considered normal fashion. Bikini bottoms have gotten way smaller and are worn way higher. It truly is the golden age.-u/privatetudor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197723.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198107.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Doing stupid sh*t for fake internet points.-u/I_N_C_O_M_I_N_G</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197724.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198109.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Combustion Engines. They are at their most efficient brought on by the push towards hybrids and electric, and the rising cost of fuel. Factory delivered 4 cylinders, 2-liter engines are over 400 horsepower now. With a warranty. And they still do 40mpg! So I think were in the golden age of the combustion engine, which will be slow and drawn out, giving way to the new age of electronic, hybrid, and perhaps even hydrogen, powered vehicles.-u/Spazloy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197725.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Its what you deserve babe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198110.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Beer. Amazing microbreweries have proliferated over the past 25 years in the US. Sometimes I get choice paralysis at my local liquor store.-u/bubbygups</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197726.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. We in the clear boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198111.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Remote work. We got it during the pandemic and now we need to make it the norm. The ability to make good money and live anywhere is a luxury that was hard to imagine just 10 years ago.-u/Aldebaran7790</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197727.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198112.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The golden age of misinformation and sensory overload. Never before had humans had to deal with so much information thrown at them. Every time you put effort into discrediting an information piece as a fake, 10x the amount gets thrown at you again before you finished. No matter how much effort you put into sorting truth from fake, you will never keep up until at some point you either give up and accept information as is or withdraw from letting information reach you.-u/TonkatsuRa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197728.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Thats facts, bro, no cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198113.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Porn. OF, Loyalfans, Instagram, TikTok, etc., are just full of people making x-rated content or thirst traps. Man, you used to have to go to dedicated sites for porn, but you can get it anywhere these days.-u/BeanieGuy234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197708.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Aww he looks cute. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198114.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Astronomy. We happen to exist for a brief moment in cosmological time where we can actually see other galaxies, and get a sense of the huge scale of the universe. Eventually, in the far future, space will be expanding too fast for the light of distant galaxies or the afterglow of the big bang to reach us.-u/Arc125</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197729.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Some men just want to watch the world burn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198115.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Marijuana. Its becoming more and more legal so more people are experimenting with it and creating all sorts of insane potent strains and concentrates. The weed industry brings in so much money its ridiculous. New discoveries are being made, new medicines are being created from it, and you dont even have to smoke it anymore. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197730.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198116.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-You can eat, drink, or vape it. People are not losing their freedom as much over it and its becoming less of a social stigma. One problem I do see is how ridiculous the potency is with the new-age THC products and not everyone can handle 80-90%+ THC. Sometimes it feels like a borderline psychedelic. I remember having this one particular strain of weed that got me so high that I felt like I did a bump of ketamine.-u/SirGanjaSpliffington</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197731.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Damn, I do be looking good though. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198117.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198118.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198119.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Lmao, the picture of this will live in my head the rest of my life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198120.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Get it, because there was none. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87198121.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
