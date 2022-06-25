@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/25/2022-17:47:18
+Last updated: 06/25/2022-18:47:18
 <br>
 ## <a href="#linky2" id="linky1">23 Dank Memes That Deal in Dankness Alone</a><br>
 
@@ -51,57 +51,67 @@ Last updated: 06/25/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 'Breaking Bad' Facts You Never Knew </a><br>
+## <a href="#linky3" id="linky2">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
 
-<span style="font-size:4em">1. The fictional tequila Zafiro Añejo in Breaking Bad/BCS was created by the writers because they couldn’t get a real brand to do product placement due to a scene where several people die after drinking it.-u/Kanobe24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197482.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Breaking Bad character Mike Ehrmantraut was created because Bob Odenkirk (Saul Goodman) was unavailable for one of the episodes of Breaking Bad as he had to shoot for How I Met Your Mother.-u/prasiptasp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197483.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Breaking Bad team was offered $75 million to produce three additional episodes after the final season. This much money was stated to be more than the profits they had made in five years. The team refused, saying that the final episodes did not lend themselves to additional installments.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197484.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Jonathan Banks of Breaking Bad appears in 70s period PSA titled Linda’s Film on Menstruation.-u/Buck_Thorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197485.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In South Korea, The Solar Panels In The Middle Of The Highway Have A Bicycle Path Underneath..cyclists Are Protected From The Sun, Isolated From Traffic, And The Country Can Produce Clean Energy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The people who own the housing Breaking Bad was filmed in had to construct a 6 ft. wrought iron fence to stop people from constantly throwing pizzas on their garage roof.-u/Bluest_waters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197486.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A Father Designs A Headstone For His Wheelchair-Bound Son Depicting Him Free Of His Earthly Burdens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Vince Gilligan strongly regretted introducing the machine gun to Breaking Bads last season and found writing a convincing explanation for it so difficult that he nearly abandoned the plot device out of frustration.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197487.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. A Statue In Istanbul To Honor Tombili, A Famous Stray Cat. He Used To Sit In This Position And Watch Passers-By</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In the Breaking Bad episode “Ozymandias”, the shows producers secured special permission from the Hollywood guilds to delay the credits (which would normally appear after the main title sequence) until 19 minutes into the episode, in order to preserve the impact of the beginning scene.-u/kevoooandres</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197488.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. 4 months after Florida man Ryan Lee Carroll won a Breaking Bad contest to meet the cast, he was charged with running a drug distribution operation when he was found with $1M in synthetic marijuana. Also seized was a souvenir Hazmat suit signed by the Breaking Bad cast.-u/Miskatonica</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197489.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Syrian Archaeologist Khaled Al Asaad Who Devoted His Life To The Excavation And Restoration Of Palmyra, A Unesco World Heritage Site. He Was Beheaded By Isis After Refusing To Disclose The Location Of Ancient Artifacts, Despite A Month Of Torture. He Died A Hero Of Heritage Protection</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. After Breaking Bad showed blue meth, real drug dealers made their meth blue to copy the show.-u/links-Shield632</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197490.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. In the Breaking Bad episode Ozymandias, baby Holly crying mama in the gas station bathroom following her abduction by Walt was an unscripted fluke that Cranston just rolled with. In that moment, Walt was supposed to look at Holly and realize on his own that he should return her to Skyler.-u/hehyougotme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197491.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This Homeless Mans Rabbit Was Thrown Over A Bridge By A Passerby And He Immediately Jumped Into The River To Save Her. He Won An Award, Was Given Animal Food And A Job, And The Passerby Was Charged With Animal Cruelty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In the episode of Breaking Bad where Walt throws a whole pizza onto the roof of his house in anger, the pizza was real and Bryan Cranston nailed it in one take.-u/Dan_Gleeballz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197492.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. There was a Breaking Bad Fan-Edit Film created by 2 dedicated fans of the series, simply titled Breaking Bad: The Movie, which condensed the entire series into a two-hour feature film.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197493.png" style="width:100%"><br>
+<span style="font-size:4em">12. This Man Spoke With Every Parent In Uvalde, Texas To Build Personalized Caskets For All 19 Children Who Were Killed. His Name Is Trey Ganem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Breaking Bad has a shot-for-shot Spanish remake titled Metástasis featuring Walter Blanco, a struggling high school chemistry teacher in Bogotá, Colombia, who teams up with his previous student José to cook methamphetamine.-u/Raischuu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197494.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. When You Reach 100 Years Old In Barbados, You Get A Stamp In Your Honour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. There really is a Schraderbrau Beer - the beer Hank Schrader brewed in the TV series Breaking Bad. Actor Dean Norris helped launch it in 2019.-u/RyanDanielst</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197495.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Albuquerque held a funeral for Walter White to celebrate the series finale of Breaking Bad.-u/mynameisarrgh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197496.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. After marathoning Breaking Bad, Anthony Hopkins wrote Bryan Cranston a fan letter, saying (among other things) Your performance as Walter White was the best acting I have seen – ever.-u/DoctorSauce</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197497.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Vitaly Skakun Is A Hero After Sacrificing His Life To Blow Up The Henichesky Bridge. The Bridge Was Mined But A Russian Column Was Advancing And There Was No Time To Detonate It Remotely. Skakun Radioed His Unit And Told Them He Would Do It Manually, Saying Goodbye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Rian Johnson directed both the much-maligned The Last Jedi and the Breaking Bad episode Ozymandias which is widely considered one of the best episodes in the best series in the history of television.-u/kdryan1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197498.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. This Is Jean-Baptiste Kempf, The Creator Of Vlc Media Player. He Refused Tens Of Millions Of Dollars In Order To Keep Vlc Ads-Free. Thanks, Jean!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. George R. R. Martin, writer of ASOIAF (Game of Thrones) referred to Breaking Bad as Amazing and noted that Walter White is a bigger monster than anyone in Westeros, then said it has influenced him to make an even worse character in future books to fix this.-u/STOP-ENJOYING-THINGS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197499.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. AMC gave the writers of Breaking Bad permission to use only one f*ck each season, which led to giant discussions when to use the one f*ck. Because the pilot episode was independent, they used a bunch of f*cks there.-u/neveneffecten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197500.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. HBO, Showtime and FX all turned down Breaking Bad.-u/Watnot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197501.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Astronaut Mark Kelly Once Smuggled A Full Gorilla Suit On Board The International Space Station. He Didnt Tell Anyone About It. One Day, Without Anyone Knowing, He Put It On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Walt Jr. never encountered Jessie in all 62 episodes of Breaking Bad.-u/IsellCarpet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197502.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Giancarlo Esposito, who portrayed the villain Gustavo Fring in Breaking Bad, has such a poor Spanish accent that some native speakers have described it as Nails on chalkboard.-u/G_man252</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197503.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. This Amazing Photo Was From A 16 Y/O Girl Who Snuck Her Camera Into A Queen Concert In 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. There is a Breaking Bad alternate ending of the series finale on the last season DVD. It involves Bryan Cranston playing the role of his Malcolm in the Middle character Hal waking up from a nightmare which happens to be the events of Breaking Bad.-u/xaxnxdxrxexax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197504.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Parents In Poland Left Their Baby Strollers In Rail Road Stations For The Ukrainian Moms That Fled Carrying Their Children</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. The DEA taught Bryan Cranston how to make meth for Breaking Bad.-u/v3ryfuzzyc00t3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197505.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. The Bee Lives Less Than 40 Days, Visits At Least 1000 Flowers & Produces Less Than A Teaspoon Of Honey. For Us, It Is Only A Teaspoon Of Honey, But For The Bee, It Is A Life. Thankyou, Bees!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Breaking Bad executives were initially wary of casting Bryan Cranston as Walter White, and so offered the role to John Cusack and Matthew Broderick, who both turned it down.-u/Breeze_in_the_Trees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197506.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Thomas Jefferson’s Sixth Great Grandson Recreates His Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Daniel Kordan Accidentally Photographed A Meteor While Capturing An Erupting Volcano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The Uncensored Library Is A Huge Minecraft Map Where Anyone Can Read Censored Journalism From Countries Without Freedom Of Press</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188681.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -255,51 +265,7 @@ Last updated: 06/25/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112751/87199248/dog.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112739/87199247/charge.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199251/dance.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112814/87199252/fish.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199250/bottle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112822/87199253/goat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112803/87199249/doll.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112825/87199254/hair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112837/87199256/grind.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112833/87199255/hi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112844/87199257/light.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112855/87199259/pee.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112858/87199260/poop.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112907/87199261/puke.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112909/87199262/radiator.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112848/87199258/nope.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112931/87199266/spray.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112918/87199263/pour.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112920/87199264/sad.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112930/87199265/spill.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">40 Things Showcasing the Power of Father Time</a><br>
+## <a href="#linky6" id="linky5">40 Things Showcasing the Power of Father Time</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197477.jpg" style="width:100%"><br>
 
@@ -380,6 +346,60 @@ Last updated: 06/25/2022-17:47:18
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197478.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">40. These nails I pulled from the external wall of my 150 year old house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197479.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">25 'Breaking Bad' Facts You Never Knew </a><br>
+
+<span style="font-size:4em">1. The fictional tequila Zafiro Añejo in Breaking Bad/BCS was created by the writers because they couldn’t get a real brand to do product placement due to a scene where several people die after drinking it.-u/Kanobe24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Breaking Bad character Mike Ehrmantraut was created because Bob Odenkirk (Saul Goodman) was unavailable for one of the episodes of Breaking Bad as he had to shoot for How I Met Your Mother.-u/prasiptasp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Breaking Bad team was offered $75 million to produce three additional episodes after the final season. This much money was stated to be more than the profits they had made in five years. The team refused, saying that the final episodes did not lend themselves to additional installments.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Jonathan Banks of Breaking Bad appears in 70s period PSA titled Linda’s Film on Menstruation.-u/Buck_Thorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The people who own the housing Breaking Bad was filmed in had to construct a 6 ft. wrought iron fence to stop people from constantly throwing pizzas on their garage roof.-u/Bluest_waters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Vince Gilligan strongly regretted introducing the machine gun to Breaking Bads last season and found writing a convincing explanation for it so difficult that he nearly abandoned the plot device out of frustration.-u/SacKingsRS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the Breaking Bad episode “Ozymandias”, the shows producers secured special permission from the Hollywood guilds to delay the credits (which would normally appear after the main title sequence) until 19 minutes into the episode, in order to preserve the impact of the beginning scene.-u/kevoooandres</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. 4 months after Florida man Ryan Lee Carroll won a Breaking Bad contest to meet the cast, he was charged with running a drug distribution operation when he was found with $1M in synthetic marijuana. Also seized was a souvenir Hazmat suit signed by the Breaking Bad cast.-u/Miskatonica</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. After Breaking Bad showed blue meth, real drug dealers made their meth blue to copy the show.-u/links-Shield632</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In the Breaking Bad episode Ozymandias, baby Holly crying mama in the gas station bathroom following her abduction by Walt was an unscripted fluke that Cranston just rolled with. In that moment, Walt was supposed to look at Holly and realize on his own that he should return her to Skyler.-u/hehyougotme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In the episode of Breaking Bad where Walt throws a whole pizza onto the roof of his house in anger, the pizza was real and Bryan Cranston nailed it in one take.-u/Dan_Gleeballz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197492.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. There was a Breaking Bad Fan-Edit Film created by 2 dedicated fans of the series, simply titled Breaking Bad: The Movie, which condensed the entire series into a two-hour feature film.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197493.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Breaking Bad has a shot-for-shot Spanish remake titled Metástasis featuring Walter Blanco, a struggling high school chemistry teacher in Bogotá, Colombia, who teams up with his previous student José to cook methamphetamine.-u/Raischuu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There really is a Schraderbrau Beer - the beer Hank Schrader brewed in the TV series Breaking Bad. Actor Dean Norris helped launch it in 2019.-u/RyanDanielst</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Albuquerque held a funeral for Walter White to celebrate the series finale of Breaking Bad.-u/mynameisarrgh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. After marathoning Breaking Bad, Anthony Hopkins wrote Bryan Cranston a fan letter, saying (among other things) Your performance as Walter White was the best acting I have seen – ever.-u/DoctorSauce</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Rian Johnson directed both the much-maligned The Last Jedi and the Breaking Bad episode Ozymandias which is widely considered one of the best episodes in the best series in the history of television.-u/kdryan1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. George R. R. Martin, writer of ASOIAF (Game of Thrones) referred to Breaking Bad as Amazing and noted that Walter White is a bigger monster than anyone in Westeros, then said it has influenced him to make an even worse character in future books to fix this.-u/STOP-ENJOYING-THINGS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. AMC gave the writers of Breaking Bad permission to use only one f*ck each season, which led to giant discussions when to use the one f*ck. Because the pilot episode was independent, they used a bunch of f*cks there.-u/neveneffecten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. HBO, Showtime and FX all turned down Breaking Bad.-u/Watnot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Walt Jr. never encountered Jessie in all 62 episodes of Breaking Bad.-u/IsellCarpet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Giancarlo Esposito, who portrayed the villain Gustavo Fring in Breaking Bad, has such a poor Spanish accent that some native speakers have described it as Nails on chalkboard.-u/G_man252</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. There is a Breaking Bad alternate ending of the series finale on the last season DVD. It involves Bryan Cranston playing the role of his Malcolm in the Middle character Hal waking up from a nightmare which happens to be the events of Breaking Bad.-u/xaxnxdxrxexax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The DEA taught Bryan Cranston how to make meth for Breaking Bad.-u/v3ryfuzzyc00t3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Breaking Bad executives were initially wary of casting Bryan Cranston as Walter White, and so offered the role to John Cusack and Matthew Broderick, who both turned it down.-u/Breeze_in_the_Trees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197506.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -493,7 +513,91 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
+## <a href="#linky9" id="linky8">18 Celebrities We Didn't Know Were Still Alive</a><br>
+
+<span style="font-size:4em">1. Mel Brooks - At 95, the iconic comedian is still blazing in his saddle. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020324/87198541/stillalive2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Bob Barker - At 98, the “Price is Right” host obviously hasn’t found his correct price yet. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020346/87198543/stillalive4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Richard Petty - Regarded as possibly the greatest NASCAR driver ever, the seven time champion is no doubt still “The King” at 84.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020355/87198544/stillalive1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bob Dylan - The iconic singer songwriter is still alive, and considering how active he was with social justice issues during his youth its surprising we dont really hear from him today.. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020335/87198542/stillalive3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Buzz Aldrin - The last remaining Apollo 11 crew member, and oldest remaining moonwalker, the 92 year old astronaut is still of this world. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020513/87198559/stillalive18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. David Attenborough - Known for being the classic voice behind nature documentaries, Attenborough can seem larger than life, but he is most definitely still living it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020358/87198545/stillalive5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Leslie Phillips - At 98, the British actor is the oldest person on our list, but the Tomb Raider actor is far from having his own yet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020409/87198547/stillalive7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Loretta Lynn - The iconic country music star is still blazing trails at 90.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020439/87198552/stillalive11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Tony Bennett - The famous pop and jazz music star has unfortunately been diagnosed with Alzheimer’s, but is still going at 95.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020417/87198548/stillalive8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Willie Mays - Considered by many to be the greatest baseball player to ever live, the “Say hey kid” is certainly no longer a youngster, and has outlived most of his contemporaries.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020428/87198550/stillalive9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Pelé - Considered by many to be the greatest footballer, the Brazilian superstar is most definitely still kicking.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020442/87198553/stillalive13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Cat Stevens - At 73, the British singer songwriter is going strong despite a serious bout with tuberculosis back in 1968.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020449/87198554/stillalive14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Dick Van Dyke - The 96 year old actor has recently reported that he is “Just glad to still be here.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020454/87198556/stillalive15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Sandy Koufax - Regarded by many as the greatest pitcher ever, and with an early retirement, Koufax has been out of the game a long time. With game footage of him hard to come by, it’s no surprise some people think the 86 year old pitcher is on the slab instead of toeing it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020420/87198549/stillalive10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. June Lockhart - At 96, the “Lassie” actress certainly is not a wee lass. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020431/87198551/stillalive12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mick Jagger - Not without some health scares, Mick Jagger has powered through and still doesn’t need a “Start Me Up.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020406/87198546/stillalive6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Keith Richards - Like Mick Jagger, the Rolling Stones guitarist is still rocking, and despite the band’s wild younger lifestyle, they are mostly still kicking into their 70s and 80s. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020501/87198557/stillalive16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Barry Gibb - The only surviving member of the Bee Gees, Barry Gibb is “Stayin’ Alive.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020505/87198558/stillalive17.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112751/87199248/dog.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112739/87199247/charge.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199251/dance.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112814/87199252/fish.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199250/bottle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112822/87199253/goat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112803/87199249/doll.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112825/87199254/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112837/87199256/grind.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112833/87199255/hi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112844/87199257/light.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112855/87199259/pee.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112858/87199260/poop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112907/87199261/puke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112909/87199262/radiator.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112848/87199258/nope.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112931/87199266/spray.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112918/87199263/pour.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112920/87199264/sad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112930/87199265/spill.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
 
 <span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
 
@@ -524,108 +628,6 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 <span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">19 Photos Chock Full of WTF</a><br>
-
-<span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Is my glass full or empty?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198637.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. My sleeping cat looks like it has 2 tails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198638.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Thanks roomie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198639.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. This photo of a man that looks like Albert Einstein beside the Waldo arm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The picture on my coffee creamer for my flight from Iceland is of a worker at a slaughterhouse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Target! Why is there a head of cabbage in a bouquet of flowers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Found this car covered in artificial grass on the way home from a car show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Tampa Police cruiser is in real trouble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Candle has stopped candling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My family recently had a wake up call.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Snoopy’s real face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A choice of grapes on one branch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Copy-paste gone wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Regret doing that photo shoot yet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198650.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">30 Interesting Facts and Pics To Expand Your Horizons </a><br>
-
-<span style="font-size:4em">1. Joseph Ducreux And His Self Potraits (1700s)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In South Korea, The Solar Panels In The Middle Of The Highway Have A Bicycle Path Underneath..cyclists Are Protected From The Sun, Isolated From Traffic, And The Country Can Produce Clean Energy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A Father Designs A Headstone For His Wheelchair-Bound Son Depicting Him Free Of His Earthly Burdens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A Statue In Istanbul To Honor Tombili, A Famous Stray Cat. He Used To Sit In This Position And Watch Passers-By</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Syrian Archaeologist Khaled Al Asaad Who Devoted His Life To The Excavation And Restoration Of Palmyra, A Unesco World Heritage Site. He Was Beheaded By Isis After Refusing To Disclose The Location Of Ancient Artifacts, Despite A Month Of Torture. He Died A Hero Of Heritage Protection</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This Homeless Mans Rabbit Was Thrown Over A Bridge By A Passerby And He Immediately Jumped Into The River To Save Her. He Won An Award, Was Given Animal Food And A Job, And The Passerby Was Charged With Animal Cruelty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This Man Spoke With Every Parent In Uvalde, Texas To Build Personalized Caskets For All 19 Children Who Were Killed. His Name Is Trey Ganem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When You Reach 100 Years Old In Barbados, You Get A Stamp In Your Honour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Vitaly Skakun Is A Hero After Sacrificing His Life To Blow Up The Henichesky Bridge. The Bridge Was Mined But A Russian Column Was Advancing And There Was No Time To Detonate It Remotely. Skakun Radioed His Unit And Told Them He Would Do It Manually, Saying Goodbye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This Is Jean-Baptiste Kempf, The Creator Of Vlc Media Player. He Refused Tens Of Millions Of Dollars In Order To Keep Vlc Ads-Free. Thanks, Jean!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Astronaut Mark Kelly Once Smuggled A Full Gorilla Suit On Board The International Space Station. He Didnt Tell Anyone About It. One Day, Without Anyone Knowing, He Put It On</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This Amazing Photo Was From A 16 Y/O Girl Who Snuck Her Camera Into A Queen Concert In 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Parents In Poland Left Their Baby Strollers In Rail Road Stations For The Ukrainian Moms That Fled Carrying Their Children</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The Bee Lives Less Than 40 Days, Visits At Least 1000 Flowers & Produces Less Than A Teaspoon Of Honey. For Us, It Is Only A Teaspoon Of Honey, But For The Bee, It Is A Life. Thankyou, Bees!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Thomas Jefferson’s Sixth Great Grandson Recreates His Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Daniel Kordan Accidentally Photographed A Meteor While Capturing An Erupting Volcano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The Uncensored Library Is A Huge Minecraft Map Where Anyone Can Read Censored Journalism From Countries Without Freedom Of Press</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87188681.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -699,43 +701,41 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">18 Celebrities We Didn't Know Were Still Alive</a><br>
+## <a href="#linky13" id="linky12">19 Photos Chock Full of WTF</a><br>
 
-<span style="font-size:4em">1. Mel Brooks - At 95, the iconic comedian is still blazing in his saddle. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020324/87198541/stillalive2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Bob Barker - At 98, the “Price is Right” host obviously hasn’t found his correct price yet. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020346/87198543/stillalive4.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Is my glass full or empty?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198637.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Richard Petty - Regarded as possibly the greatest NASCAR driver ever, the seven time champion is no doubt still “The King” at 84.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020355/87198544/stillalive1.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. My sleeping cat looks like it has 2 tails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198638.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Bob Dylan - The iconic singer songwriter is still alive, and considering how active he was with social justice issues during his youth its surprising we dont really hear from him today.. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020335/87198542/stillalive3.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Thanks roomie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198639.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Buzz Aldrin - The last remaining Apollo 11 crew member, and oldest remaining moonwalker, the 92 year old astronaut is still of this world. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020513/87198559/stillalive18.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This photo of a man that looks like Albert Einstein beside the Waldo arm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. David Attenborough - Known for being the classic voice behind nature documentaries, Attenborough can seem larger than life, but he is most definitely still living it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020358/87198545/stillalive5.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The picture on my coffee creamer for my flight from Iceland is of a worker at a slaughterhouse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Leslie Phillips - At 98, the British actor is the oldest person on our list, but the Tomb Raider actor is far from having his own yet.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020409/87198547/stillalive7.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Target! Why is there a head of cabbage in a bouquet of flowers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Loretta Lynn - The iconic country music star is still blazing trails at 90.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020439/87198552/stillalive11.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Found this car covered in artificial grass on the way home from a car show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Tony Bennett - The famous pop and jazz music star has unfortunately been diagnosed with Alzheimer’s, but is still going at 95.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020417/87198548/stillalive8.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Tampa Police cruiser is in real trouble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Willie Mays - Considered by many to be the greatest baseball player to ever live, the “Say hey kid” is certainly no longer a youngster, and has outlived most of his contemporaries.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020428/87198550/stillalive9.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Candle has stopped candling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Pelé - Considered by many to be the greatest footballer, the Brazilian superstar is most definitely still kicking.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020442/87198553/stillalive13.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My family recently had a wake up call.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cat Stevens - At 73, the British singer songwriter is going strong despite a serious bout with tuberculosis back in 1968.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020449/87198554/stillalive14.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Snoopy’s real face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Dick Van Dyke - The 96 year old actor has recently reported that he is “Just glad to still be here.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020454/87198556/stillalive15.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A choice of grapes on one branch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Sandy Koufax - Regarded by many as the greatest pitcher ever, and with an early retirement, Koufax has been out of the game a long time. With game footage of him hard to come by, it’s no surprise some people think the 86 year old pitcher is on the slab instead of toeing it. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020420/87198549/stillalive10.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Copy-paste gone wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. June Lockhart - At 96, the “Lassie” actress certainly is not a wee lass. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020431/87198551/stillalive12.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Regret doing that photo shoot yet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198650.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. Mick Jagger - Not without some health scares, Mick Jagger has powered through and still doesn’t need a “Start Me Up.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020406/87198546/stillalive6.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Keith Richards - Like Mick Jagger, the Rolling Stones guitarist is still rocking, and despite the band’s wild younger lifestyle, they are mostly still kicking into their 70s and 80s. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020501/87198557/stillalive16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Barry Gibb - The only surviving member of the Bee Gees, Barry Gibb is “Stayin’ Alive.”</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/020505/87198558/stillalive17.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
