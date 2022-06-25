@@ -3,11 +3,11 @@ import pandas as pd
 from scrapy.crawler import CrawlerProcess
 
 csvName = 'Mills-Output.csv' 
-tda = ['Title', 'Regular-Price', 'Sale-Price', 'Sale', 'Images']
+tda = ['Title', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Images']
 
 def writeRow(ary):
 	with open(csvName, "a") as w:
-		csvWriter = csv.writer(w,delimiter=',')
+		csvWriter = csv.writer(w, delimiter=',')
 		csvWriter.writerow(ary)
 
 class millsSpider(scrapy.Spider):
@@ -18,7 +18,7 @@ class millsSpider(scrapy.Spider):
 	logging.getLogger('scrapy').propagate = False
 
 	def start_requests(self):
-		allCamping = '/category/sports-outdoors/camping/_/N-1453582648?null&Nrpp=100'
+		allCamping = '/category/sports-outdoors/camping/_/N-1453582648?null&Nrpp=25'
 		url = f'{self.start_urls[0]}{allCamping}'
 		yield scrapy.Request(url=url, callback=self.getCards)
 
@@ -43,18 +43,23 @@ class millsSpider(scrapy.Spider):
 		imgs = response.xpath('//img[@class="viewer-thumb-image"]/@src').getall()#//img[@class="viewer-thumb-image"]/@src').get()
 		imgs = [f'{self.start_urls[0]}{img}' for img in imgs]
 
+		productID = response.xpath('//div[@class="product-details"]//div[@class="product-number"]//span[@itemprop="productID"]/text()').get()
+		productSKU = response.xpath('//div[@class="product-sku "]//span[@class="sku-number"]/text()').get()
+
+		print(productSKU)
+
 		if salePrice != None:
 			salePrice = salePrice.replace('\t', '').replace('\n', '')
 			salePrice = salePrice.split(f'\xa0SALE')[0]
-			row = [title, saleOrigPrice, salePrice, True, imgs]
+			row = [title, productID, productSKU, saleOrigPrice, salePrice, True, imgs]
 		
 		elif salePrice == None:
-			row = [title, regularPrice, 'NaN', False, imgs]
+			row = [title, productID, productSKU, regularPrice, 'NaN', False, imgs]
 
 		print(row)
 		writeRow(row)
 	
-	open(csvName, 'w+')
+	open(csvName, 'w+').close()
 	writeRow(tda)
 
 if __name__ == "__main__":
