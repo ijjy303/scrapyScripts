@@ -4,7 +4,7 @@ from scrapy.crawler import CrawlerProcess
 
 csvName = 'Mills-Output.csv' 
 errName = 'Mills-Error.csv'
-tda = ['Title', 'Category', 'Sub-Category', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Product-URL', 'Images']
+tda = ['Title', 'Sub-Category', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Product-URL', 'Category', 'Images']
 
 def dataframeDiff(dframe):
 	df = pd.read_csv(dframe, encoding='cp1252')
@@ -22,9 +22,10 @@ class millsSpider(scrapy.Spider):
 	outputFolder = 'database'
 	start_urls = ['https://www.fleetfarm.com']
 	logging.getLogger('scrapy').propagate = False
-	itemsPerPage = 10
+	itemsPerPage = 99999
+	counter = 0
 
-	def start_requests(self):
+	def start_requests(self): # Recursively scrape cards from main department categories
 		allCategories = ['hunting/_/N-1096313067', 'fishing/_/N-1191395697', 'sports-outdoors/_/N-817546303',
 						'tires-automotive/_/N-3033881547', 'clothing-footwear/_/N-3941125009',
 						'home/_/N-4001179884', 'food-household/_/N-563764611', 'toys/_/N-3859731678',
@@ -35,7 +36,7 @@ class millsSpider(scrapy.Spider):
 			url = f'{self.start_urls[0]}/category/{category}'
 			yield scrapy.Request(url=url, callback=self.getSubCategory)
 
-	def getSubCategory(self, response):
+	def getSubCategory(self, response): # Get subcategories. ie: Auto > Tires/Accessories, Clothes > Shoes
 		urlAry = []
 
 		if response.url.split('/')[-3] == 'toys':
@@ -51,6 +52,7 @@ class millsSpider(scrapy.Spider):
 			yield scrapy.Request(url=url, callback=self.getCards)
 
 	def getCards(self, response):
+		print(f'{response.url}: Loading new subcategory...\n')
 		tiles = response.xpath('//div[@class="product-tile"]')
 		productUrls = tiles.xpath('//div[@class="product-image"]//a/@href').getall()
 
@@ -81,13 +83,15 @@ class millsSpider(scrapy.Spider):
 		if salePrice != None:
 			salePrice = salePrice.replace('\t', '').replace('\n', '').replace('\xa0CLEARANCE', '\xa0SALE')
 			salePrice = salePrice.split(f'\xa0SALE')[0]
-			row = [title, categry, subcat, productID, productSKU, saleOrigPrice, salePrice, True, productURL, imgs]
+			row = [title, subcat, productID, productSKU, saleOrigPrice, salePrice, True, productURL, categry, imgs]
 		
 		elif salePrice == None:
-			row = [title, categry, subcat, productID, productSKU, regularPrice, 'NaN', False, productURL, imgs]
+			row = [title, subcat, productID, productSKU, regularPrice, 'NaN', False, productURL, categry, imgs]
 
+		self.counter += 1
 		writeRow(csvName, row)
-		print(row)
+		print(f'\n.:##| {self.counter} |##:.\n{row}')
+		#print(f'{self.counter}\n{row}')
 		time.sleep(.2)
 	
 	open(csvName, 'w+').close()
