@@ -3,10 +3,10 @@ import pandas as pd
 from scrapy.crawler import CrawlerProcess
 
 csvName = 'Mills-Output.csv' 
-tda = ['Title', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Images']
+tda = ['Title', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Product-URL', 'Images']
 
 def dataframeDiff(dframe):
-	df = pd.read_csv(dframe)
+	df = pd.read_csv(dframe, encoding='cp1252')
 	print(df)
 	df.to_csv('dataframe.csv')
 
@@ -23,9 +23,16 @@ class millsSpider(scrapy.Spider):
 	logging.getLogger('scrapy').propagate = False
 
 	def start_requests(self):
-		allCamping = '/category/sports-outdoors/camping/_/N-1453582648?null&Nrpp=25'
-		url = f'{self.start_urls[0]}{allCamping}'
-		yield scrapy.Request(url=url, callback=self.getCards)
+		allCategories = ['hunting', 'fishing', 'sports-outdoors', 'tires-automotive',
+						'clothing-footwear', 'home', 'food-household', 'pets-wild-bird'
+						'lawn-garden', 'farm-livestock', 'home-improvement', 'toys']
+		#allCamping = '/category/sports-outdoors/camping/_/N-1453582648?null&Nrpp=99999'
+		#url = f'{self.start_urls[0]}{allCamping}'
+		#yield scrapy.Request(url=url, callback=self.getCards)
+		
+		for category in allCategories:
+			url = f'{self.start_urls[0]}/category/{category}?null&Nrpp=25'
+			yield scrapy.Request(url=url, callback=self.getCards)
 
 	def getCards(self, response):
 		tiles = response.xpath('//div[@class="product-tile"]')
@@ -50,19 +57,18 @@ class millsSpider(scrapy.Spider):
 
 		productID = response.xpath('//div[@class="product-details"]//div[@class="product-number"]//span[@itemprop="productID"]/text()').get()
 		productSKU = response.xpath('//div[@class="product-sku "]//span[@class="sku-number"]/text()').get()
-
-		print(productSKU)
+		productURL = response.url
 
 		if salePrice != None:
 			salePrice = salePrice.replace('\t', '').replace('\n', '')
 			salePrice = salePrice.split(f'\xa0SALE')[0]
-			row = [title, productID, productSKU, saleOrigPrice, salePrice, True, imgs]
+			row = [title, productID, productSKU, saleOrigPrice, salePrice, True, productURL, imgs]
 		
 		elif salePrice == None:
-			row = [title, productID, productSKU, regularPrice, 'NaN', False, imgs]
+			row = [title, productID, productSKU, regularPrice, 'NaN', False, productURL, imgs]
 
-		print(row)
 		writeRow(row)
+		print(row)
 	
 	open(csvName, 'w+').close()
 	writeRow(tda)
