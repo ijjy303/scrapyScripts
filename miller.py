@@ -23,16 +23,17 @@ class millsSpider(scrapy.Spider):
 	logging.getLogger('scrapy').propagate = False
 
 	def start_requests(self):
-		allCategories = ['hunting', 'fishing', 'sports-outdoors', 'tires-automotive',
-						'clothing-footwear', 'home', 'food-household', 'pets-wild-bird'
-						'lawn-garden', 'farm-livestock', 'home-improvement', 'toys']
+		#allCategories = ['hunting', 'fishing', 'sports-outdoors', 'tires-automotive',
+		#				'clothing-footwear', 'home', 'food-household', 'pets-wild-bird'
+		#				'lawn-garden', 'farm-livestock', 'home-improvement', 'toys']
 		#allCamping = '/category/sports-outdoors/camping/_/N-1453582648?null&Nrpp=99999'
+		url = 'https://www.fleetfarm.com/category?null&_=1656216173149&Nrpp=99999'
 		#url = f'{self.start_urls[0]}{allCamping}'
-		#yield scrapy.Request(url=url, callback=self.getCards)
+		yield scrapy.Request(url=url, callback=self.getCards)
 		
-		for category in allCategories:
-			url = f'{self.start_urls[0]}/category/{category}?null&Nrpp=25'
-			yield scrapy.Request(url=url, callback=self.getCards)
+		#for category in allCategories:
+		#	url = f'{self.start_urls[0]}/category/{category}/?null&Nrpp=25'
+		#	yield scrapy.Request(url=url, callback=self.getCards, cb_kwargs=dict(category=category))
 
 	def getCards(self, response):
 		tiles = response.xpath('//div[@class="product-tile"]')
@@ -45,8 +46,14 @@ class millsSpider(scrapy.Spider):
 			yield scrapy.Request(url=url, callback=self.recursiveParse)
 
 	def recursiveParse(self, response):
+
 		title = response.xpath('//h1[@class="product-name"]/text()').get()
 		title = title.strip().replace('w/', '').replace('\t', '').replace('\'', '').replace('\\', '')
+
+		#category = category.title()
+		#category = response.xpath('//section[@class="breadcrumbs"]//a[@class="crumb"]/text()').getall()
+		#categories = ['/'.join(cat) for cat in category]
+		#print(category)
 
 		saleOrigPrice = response.xpath('//div[@class="product-price price"]//div[@class="original-price"]//span[@itemprop="price"]/text()').get()
 		salePrice = response.xpath('//div[@class="product-price price"]//div[@class="sale-price"]//span[@id="regular-price"]/text()').get()
@@ -68,7 +75,7 @@ class millsSpider(scrapy.Spider):
 			row = [title, productID, productSKU, regularPrice, 'NaN', False, productURL, imgs]
 
 		writeRow(row)
-		print(row)
+		#print(row)
 	
 	open(csvName, 'w+').close()
 	writeRow(tda)
