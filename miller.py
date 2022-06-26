@@ -12,9 +12,12 @@ def dataframeDiff(dframe):
 	df.to_csv('dataframe.csv')
 
 def writeRow(cName, ary):
-	with open(cName, "a") as w:
-		csvWriter = csv.writer(w, delimiter=',')
-		csvWriter.writerow(ary)
+	try:
+		with open(cName, "a") as w:
+			csvWriter = csv.writer(w, delimiter=',')
+			csvWriter.writerow(ary)
+	except:
+		pass
 
 class millsSpider(scrapy.Spider):
 	"""Mills Fleet Farm Price Crawler"""
@@ -60,7 +63,7 @@ class millsSpider(scrapy.Spider):
 			url = url.split(';')[0]
 			url = f'{self.start_urls[0]}{url}'
 			yield scrapy.Request(url=url, callback=self.recursiveParse)
-
+"""
 	def recursiveParse(self, response):
 		title = response.xpath('//h1[@class="product-name"]/text()').get()
 		title = title.strip().replace('w/', '').replace('\t', '').replace('\'', '').replace('\\', '')
