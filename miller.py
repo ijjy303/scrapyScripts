@@ -94,7 +94,6 @@ class millsSpider(scrapy.Spider):
 		self.counter += 1
 		writeRow(csvName, row)
 		print(f'\n.:##| {self.counter} |##:.\n{row}')
-		#print(f'{self.counter}\n{row}')
 		time.sleep(.2)
 	
 	open(csvName, 'w+').close()
