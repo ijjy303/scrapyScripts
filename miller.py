@@ -42,7 +42,6 @@ class millsSpider(scrapy.Spider):
 		for url in productUrls:
 			url = url.split(';')[0]
 			url = f'{self.start_urls[0]}{url}'
-			#url = 'https://www.fleetfarm.com/detail/camelbak-21-oz-white-black-podium-chill-bike-bottle/0000000393330?Ntt=elBak%2021%20oz%20White%20Black%20Podium'#url = 'https://www.fleetfarm.com/detail/reliance-bio-blue-toilet-deodorant-24-pk/0000000389377?bc=10708|10811'#'https://www.fleetfarm.com/detail/mtn-ops-2-oz-energy-shot-pineapple-shot/0000000376969'
 			yield scrapy.Request(url=url, callback=self.recursiveParse)
 
 	def recursiveParse(self, response):
@@ -75,7 +74,7 @@ class millsSpider(scrapy.Spider):
 			row = [title, productID, productSKU, regularPrice, 'NaN', False, productURL, imgs]
 
 		writeRow(row)
-		#print(row)
+		print(row)
 	
 	open(csvName, 'w+').close()
 	writeRow(tda)
