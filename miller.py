@@ -5,6 +5,11 @@ from scrapy.crawler import CrawlerProcess
 csvName = 'Mills-Output.csv' 
 tda = ['Title', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Images']
 
+def dataframeDiff(dframe):
+	df = pd.read_csv(dframe)
+	print(df)
+	df.to_csv('dataframe.csv')
+
 def writeRow(ary):
 	with open(csvName, "a") as w:
 		csvWriter = csv.writer(w, delimiter=',')
@@ -66,3 +71,4 @@ if __name__ == "__main__":
 	process = CrawlerProcess()
 	process.crawl(millsSpider)
 	process.start()
+	dataframeDiff(csvName)
