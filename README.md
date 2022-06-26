@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/26/2022-00:47:18
+Last updated: 06/26/2022-01:47:18
 <br>
 ## <a href="#linky2" id="linky1">34 Things That Show Just How Weird us Humans Can Be</a><br>
 
@@ -127,45 +127,7 @@ Last updated: 06/26/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">19 Photos Chock Full of WTF</a><br>
-
-<span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Is my glass full or empty?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198637.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. My sleeping cat looks like it has 2 tails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198638.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Thanks roomie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198639.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. This photo of a man that looks like Albert Einstein beside the Waldo arm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The picture on my coffee creamer for my flight from Iceland is of a worker at a slaughterhouse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Target! Why is there a head of cabbage in a bouquet of flowers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Found this car covered in artificial grass on the way home from a car show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Tampa Police cruiser is in real trouble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Candle has stopped candling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My family recently had a wake up call.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Snoopy’s real face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A choice of grapes on one branch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Copy-paste gone wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Regret doing that photo shoot yet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198650.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">40 Things Showcasing the Power of Father Time</a><br>
+## <a href="#linky4" id="linky3">40 Things Showcasing the Power of Father Time</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197477.jpg" style="width:100%"><br>
 
@@ -249,111 +211,7 @@ Last updated: 06/26/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">23 Dank Memes That Deal in Dankness Alone</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198827.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198840.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198843.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198846.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198828.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198849.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">25 Hilarious Comebacks That Are Perfectly Savage </a><br>
-
-<span style="font-size:4em">1. Yeah, we dont need to talk about Rain Wilson, its fine. But we are thinking about why hes never been cast to play a live-action Burt from Sesame Street. Hed be perfect. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Got em. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. People who think that service workers are beneath them are the worst kinds of people. Literal garbage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Oh hell yeah bros, stand for what you believe in! No one gives a sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Why do you have to be such a dick about it. Theyre fish, what did they ever do to you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. People love you raise sh*tty kids and then go around blaming their kids for being sh*tty. Thats the way the world works. And its why your children cant wait to put you in a home as soon as they can. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/114336/87199268/taxes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. There is no coming back from this. The only course is to quit and find a new job. Brutal. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198587.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">28 People Who Committed Career-Suicide in Mere Minutes</a><br>
+## <a href="#linky5" id="linky4">28 People Who Committed Career-Suicide in Mere Minutes</a><br>
 
 <span style="font-size:4em">1. Bill Cosby. He was Americas Dad for 50 years until a random Hanibal Burress cell-phone bootleg went viral and women started speaking out in droves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199081.jpg" style="width:100%"><br>
 
@@ -463,7 +321,315 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">42 Extra Spicy Memes for Filthy Minded Folks</a><br>
+## <a href="#linky6" id="linky5">23 Dank Memes That Deal in Dankness Alone</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198827.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198840.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198843.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198846.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198828.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87198849.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">25 Hilarious Comebacks That Are Perfectly Savage </a><br>
+
+<span style="font-size:4em">1. Yeah, we dont need to talk about Rain Wilson, its fine. But we are thinking about why hes never been cast to play a live-action Burt from Sesame Street. Hed be perfect. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Got em. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. People who think that service workers are beneath them are the worst kinds of people. Literal garbage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Oh hell yeah bros, stand for what you believe in! No one gives a sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198575.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Why do you have to be such a dick about it. Theyre fish, what did they ever do to you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. People love you raise sh*tty kids and then go around blaming their kids for being sh*tty. Thats the way the world works. And its why your children cant wait to put you in a home as soon as they can. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/114336/87199268/taxes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. There is no coming back from this. The only course is to quit and find a new job. Brutal. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198587.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">Not Another Batch of Absolutely ‘Nope’ Photos</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197769.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
+
+<span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Andria Kerchner - Kerchner was named an accomplice to murder in 2012. A Florida police officer was shot and killed by Andrias boyfriend while she was in the car.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033624/87198593/akerch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Amber Hilberling - In 2013, Amber was accused of pushing her husband out of his apartment window sending him 25 floors down to his death. She claims it was self-defense.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033630/87198594/amber.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Charles Schmid - AKA the Pied Piper of Tucson. No thats not Elvis Presley. Thats good old Chuck Schmid. Aptly named for how friendly he was with the teens in his town. He would go on to murder three young girls. What a catch.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033636/87198595/charlesschmid.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. H.H. Holmes - The man with the immaculate mustache is known for being one of Americas first documented serial killers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033647/87198597/holmes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Jeffrey Dahmer - Cannibal. Serial iller. Sex offender. All of that aside he was a fairly good-looking guy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033653/87198598/jeff.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Casey Anthony - Arguably the hottest criminal on this list, Casey was arrested in 2008 and charged with the murder of her daughter Caylee. She was never convicted.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033641/87198596/casey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Charles Manson - The infamous cult-leader and musician had his followers murder multiple people including actress Sharon Tate. He looks much worse today than he did in these photos.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033658/87198599/chuck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Joe Exotic - Oh Joe. Joe was arrested for a murder-for-hire attempt, as we learned in the Netflix documentary Tiger King. Joe is a fun-loving party animal who isnt afraid to fall in love, again, and again.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033710/87198601/joe.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Paul John Knowles - AKA the Casanova Killer. He claimed to have killed up to 35 people. He was named the Casanova Killer for his charm and good looks, while also idolizing criminals such as Bonnie and Clyde and Jesse James.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033716/87198602/john.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Lorena Bobbitt - Yikes, Lorena. If you dont know about her...welp. Just google it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033721/87198603/lorena.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Jodi Arias - Arias stabbed her ex-boyfriend nearly 29 times and shot him in the head. She claimed self-defense. Id let her hurt me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033705/87198600/jodi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Richard Ramirez - The Night Stalker. He racked up a total of 19 death sentences. He would eventually go on to die on death row. Women apparently think hes attractive.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033727/87198604/richard.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">19 Photos Chock Full of WTF</a><br>
+
+<span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Is my glass full or empty?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198637.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. My sleeping cat looks like it has 2 tails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198638.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Thanks roomie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198639.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. This photo of a man that looks like Albert Einstein beside the Waldo arm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The picture on my coffee creamer for my flight from Iceland is of a worker at a slaughterhouse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Target! Why is there a head of cabbage in a bouquet of flowers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Found this car covered in artificial grass on the way home from a car show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Tampa Police cruiser is in real trouble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Candle has stopped candling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My family recently had a wake up call.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Snoopy’s real face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A choice of grapes on one branch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Copy-paste gone wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Regret doing that photo shoot yet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198650.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">29 Dank Memes that Made Us Thank God it's Friday</a><br>
+
+<span style="font-size:4em">1. Its sad but true, food is going through the roof, perhaps the final sign the apocalypse is upon us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Absolutely wild how quiet this case has been and no one else has been arrested, but if were being honest... what did we really expect?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198697.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">42 Extra Spicy Memes for Filthy Minded Folks</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/122922/87199279/87190933.jpg" style="width:100%"><br>
 
@@ -548,172 +714,6 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 <span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196750.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87196753.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
-
-<span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Andria Kerchner - Kerchner was named an accomplice to murder in 2012. A Florida police officer was shot and killed by Andrias boyfriend while she was in the car.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033624/87198593/akerch.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Amber Hilberling - In 2013, Amber was accused of pushing her husband out of his apartment window sending him 25 floors down to his death. She claims it was self-defense.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033630/87198594/amber.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Charles Schmid - AKA the Pied Piper of Tucson. No thats not Elvis Presley. Thats good old Chuck Schmid. Aptly named for how friendly he was with the teens in his town. He would go on to murder three young girls. What a catch.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033636/87198595/charlesschmid.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. H.H. Holmes - The man with the immaculate mustache is known for being one of Americas first documented serial killers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033647/87198597/holmes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Jeffrey Dahmer - Cannibal. Serial iller. Sex offender. All of that aside he was a fairly good-looking guy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033653/87198598/jeff.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Casey Anthony - Arguably the hottest criminal on this list, Casey was arrested in 2008 and charged with the murder of her daughter Caylee. She was never convicted.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033641/87198596/casey.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Charles Manson - The infamous cult-leader and musician had his followers murder multiple people including actress Sharon Tate. He looks much worse today than he did in these photos.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033658/87198599/chuck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Joe Exotic - Oh Joe. Joe was arrested for a murder-for-hire attempt, as we learned in the Netflix documentary Tiger King. Joe is a fun-loving party animal who isnt afraid to fall in love, again, and again.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033710/87198601/joe.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Paul John Knowles - AKA the Casanova Killer. He claimed to have killed up to 35 people. He was named the Casanova Killer for his charm and good looks, while also idolizing criminals such as Bonnie and Clyde and Jesse James.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033716/87198602/john.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Lorena Bobbitt - Yikes, Lorena. If you dont know about her...welp. Just google it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033721/87198603/lorena.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Jodi Arias - Arias stabbed her ex-boyfriend nearly 29 times and shot him in the head. She claimed self-defense. Id let her hurt me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033705/87198600/jodi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Richard Ramirez - The Night Stalker. He racked up a total of 19 death sentences. He would eventually go on to die on death row. Women apparently think hes attractive.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033727/87198604/richard.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">29 Dank Memes that Made Us Thank God it's Friday</a><br>
-
-<span style="font-size:4em">1. Its sad but true, food is going through the roof, perhaps the final sign the apocalypse is upon us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Absolutely wild how quiet this case has been and no one else has been arrested, but if were being honest... what did we really expect?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87198697.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">Not Another Batch of Absolutely ‘Nope’ Photos</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197769.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
