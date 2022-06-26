@@ -1,17 +1,18 @@
-import scrapy, logging, csv
+import scrapy, logging, time, csv
 import pandas as pd
 from scrapy.crawler import CrawlerProcess
 
 csvName = 'Mills-Output.csv' 
-tda = ['Title', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Product-URL', 'Images']
+errName = 'Mills-Error.csv'
+tda = ['Title', 'Category', 'Sub-Category', 'Product-ID', 'Product-SKU', 'Regular-Price', 'Sale-Price', 'Sale', 'Product-URL', 'Images']
 
 def dataframeDiff(dframe):
 	df = pd.read_csv(dframe, encoding='cp1252')
 	print(df)
 	df.to_csv('dataframe.csv')
 
-def writeRow(ary):
-	with open(csvName, "a") as w:
+def writeRow(cName, ary):
+	with open(cName, "a") as w:
 		csvWriter = csv.writer(w, delimiter=',')
 		csvWriter.writerow(ary)
 
@@ -21,33 +22,33 @@ class millsSpider(scrapy.Spider):
 	outputFolder = 'database'
 	start_urls = ['https://www.fleetfarm.com']
 	logging.getLogger('scrapy').propagate = False
+	itemsPerPage = 10
 
 	def start_requests(self):
 		allCategories = ['hunting/_/N-1096313067', 'fishing/_/N-1191395697', 'sports-outdoors/_/N-817546303',
 						'tires-automotive/_/N-3033881547', 'clothing-footwear/_/N-3941125009',
 						'home/_/N-4001179884', 'food-household/_/N-563764611', 'toys/_/N-3859731678',
 						'pets-wild-bird/_/N-2832316490', 'lawn-garden/_/N-3059100830',
-						'farm-livestock/_/N-1885444951', 'home-improvement/_/N-3069115488']#, 'fishing', 'sports-outdoors', 'tires-automotive',
-		#				'clothing-footwear', 'home', 'food-household', 'pets-wild-bird'
-		#				'lawn-garden', 'farm-livestock', 'home-improvement', 'toys']
-		#allCamping = '/category/sports-outdoors/camping/_/N-1453582648?null&Nrpp=99999'
-		#url = 'https://www.fleetfarm.com/category?null&_=1656216173149&Nrpp=99999'
-		#url = f'{self.start_urls[0]}{allCamping}'
-		#yield scrapy.Request(url=url, callback=self.getCards)
+						'farm-livestock/_/N-1885444951', 'home-improvement/_/N-3069115488']
 		
 		for category in allCategories:
-			url = f'{self.start_urls[0]}/category/{category}'#/?null&Nrpp=25'
-			#yield scrapy.Request(url=url, callback=self.getCards)
-			yield scrapy.Request(url=url, callback=self.getCategory)
+			url = f'{self.start_urls[0]}/category/{category}'
+			yield scrapy.Request(url=url, callback=self.getSubCategory)
 
-	def getCategory(self, response):
+	def getSubCategory(self, response):
+		urlAry = []
+
 		if response.url.split('/')[-3] == 'toys':
-			print('pass toys')
-		categoryCard = response.xpath('//div[@class="section-content"]//ul[@class="promo-grid promo-static-stack-grid-five"]//li[@class="promo-tile "]//@href').getall()
-		
-		print()
-		print(response.url)
-		print(categoryCard)
+			url = f'{response.url}?null&Nrpp={self.itemsPerPage}'
+			urlAry.append(url)
+
+		else:
+			subCategories = response.xpath('//div[@class="section-content"]//ul[@class="promo-grid promo-static-stack-grid-five"]//li[@class="promo-tile "]//@href').getall()
+			urls = [f'{self.start_urls[0]}{cat}?null&Nrpp={self.itemsPerPage}' for cat in subCategories]
+			[urlAry.append(url) for url in urls]
+
+		for url in urlAry:
+			yield scrapy.Request(url=url, callback=self.getCards)
 
 	def getCards(self, response):
 		tiles = response.xpath('//div[@class="product-tile"]')
@@ -59,14 +60,12 @@ class millsSpider(scrapy.Spider):
 			yield scrapy.Request(url=url, callback=self.recursiveParse)
 
 	def recursiveParse(self, response):
-
 		title = response.xpath('//h1[@class="product-name"]/text()').get()
 		title = title.strip().replace('w/', '').replace('\t', '').replace('\'', '').replace('\\', '')
 
-		#category = category.title()
-		#category = response.xpath('//section[@class="breadcrumbs"]//a[@class="crumb"]/text()').getall()
-		#categories = ['/'.join(cat) for cat in category]
-		#print(category)
+		categry = response.xpath('//section[@class="breadcrumbs"]//ul[@aria-label="breadcrumbs"]//a/text()').getall()  
+		subcat = categry[-1]
+		categry = ['/'.join(categry) for i in categry]
 
 		saleOrigPrice = response.xpath('//div[@class="product-price price"]//div[@class="original-price"]//span[@itemprop="price"]/text()').get()
 		salePrice = response.xpath('//div[@class="product-price price"]//div[@class="sale-price"]//span[@id="regular-price"]/text()').get()
@@ -80,21 +79,22 @@ class millsSpider(scrapy.Spider):
 		productURL = response.url
 
 		if salePrice != None:
-			salePrice = salePrice.replace('\t', '').replace('\n', '')
+			salePrice = salePrice.replace('\t', '').replace('\n', '').replace('\xa0CLEARANCE', '\xa0SALE')
 			salePrice = salePrice.split(f'\xa0SALE')[0]
-			row = [title, productID, productSKU, saleOrigPrice, salePrice, True, productURL, imgs]
+			row = [title, categry, subcat, productID, productSKU, saleOrigPrice, salePrice, True, productURL, imgs]
 		
 		elif salePrice == None:
-			row = [title, productID, productSKU, regularPrice, 'NaN', False, productURL, imgs]
+			row = [title, categry, subcat, productID, productSKU, regularPrice, 'NaN', False, productURL, imgs]
 
-		writeRow(row)
+		writeRow(csvName, row)
 		print(row)
+		time.sleep(.2)
 	
 	open(csvName, 'w+').close()
-	writeRow(tda)
+	writeRow(csvName, tda)
 
 if __name__ == "__main__":
 	process = CrawlerProcess()
 	process.crawl(millsSpider)
 	process.start()
-	#dataframeDiff(csvName)
+	dataframeDiff(csvName)
