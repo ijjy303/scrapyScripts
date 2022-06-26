@@ -23,17 +23,31 @@ class millsSpider(scrapy.Spider):
 	logging.getLogger('scrapy').propagate = False
 
 	def start_requests(self):
-		#allCategories = ['hunting', 'fishing', 'sports-outdoors', 'tires-automotive',
+		allCategories = ['hunting/_/N-1096313067', 'fishing/_/N-1191395697', 'sports-outdoors/_/N-817546303',
+						'tires-automotive/_/N-3033881547', 'clothing-footwear/_/N-3941125009',
+						'home/_/N-4001179884', 'food-household/_/N-563764611', 'toys/_/N-3859731678',
+						'pets-wild-bird/_/N-2832316490', 'lawn-garden/_/N-3059100830',
+						'farm-livestock/_/N-1885444951', 'home-improvement/_/N-3069115488']#, 'fishing', 'sports-outdoors', 'tires-automotive',
 		#				'clothing-footwear', 'home', 'food-household', 'pets-wild-bird'
 		#				'lawn-garden', 'farm-livestock', 'home-improvement', 'toys']
 		#allCamping = '/category/sports-outdoors/camping/_/N-1453582648?null&Nrpp=99999'
-		url = 'https://www.fleetfarm.com/category?null&_=1656216173149&Nrpp=99999'
+		#url = 'https://www.fleetfarm.com/category?null&_=1656216173149&Nrpp=99999'
 		#url = f'{self.start_urls[0]}{allCamping}'
-		yield scrapy.Request(url=url, callback=self.getCards)
+		#yield scrapy.Request(url=url, callback=self.getCards)
 		
-		#for category in allCategories:
-		#	url = f'{self.start_urls[0]}/category/{category}/?null&Nrpp=25'
-		#	yield scrapy.Request(url=url, callback=self.getCards, cb_kwargs=dict(category=category))
+		for category in allCategories:
+			url = f'{self.start_urls[0]}/category/{category}'#/?null&Nrpp=25'
+			#yield scrapy.Request(url=url, callback=self.getCards)
+			yield scrapy.Request(url=url, callback=self.getCategory)
+
+	def getCategory(self, response):
+		if response.url.split('/')[-3] == 'toys':
+			print('pass toys')
+		categoryCard = response.xpath('//div[@class="section-content"]//ul[@class="promo-grid promo-static-stack-grid-five"]//li[@class="promo-tile "]//@href').getall()
+		
+		print()
+		print(response.url)
+		print(categoryCard)
 
 	def getCards(self, response):
 		tiles = response.xpath('//div[@class="product-tile"]')
@@ -83,4 +97,4 @@ if __name__ == "__main__":
 	process = CrawlerProcess()
 	process.crawl(millsSpider)
 	process.start()
-	dataframeDiff(csvName)
+	#dataframeDiff(csvName)

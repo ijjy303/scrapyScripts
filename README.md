@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/26/2022-06:47:18
+Last updated: 06/26/2022-07:47:18
 <br>
 ## <a href="#linky2" id="linky1">New Owners Lay Off Entire Staff and Tell Them to Re-Apply, Nobody Does</a><br>
 
@@ -481,7 +481,51 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Not Another Batch of Absolutely ‘Nope’ Photos</a><br>
+## <a href="#linky9" id="linky8">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112751/87199248/dog.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112739/87199247/charge.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199251/dance.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112814/87199252/fish.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199250/bottle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112822/87199253/goat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112803/87199249/doll.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112825/87199254/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112837/87199256/grind.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112833/87199255/hi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112844/87199257/light.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112855/87199259/pee.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112858/87199260/poop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112907/87199261/puke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112909/87199262/radiator.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112848/87199258/nope.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112931/87199266/spray.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112918/87199263/pour.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112920/87199264/sad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112930/87199265/spill.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">Not Another Batch of Absolutely ‘Nope’ Photos</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87197754.jpg" style="width:100%"><br>
 
@@ -551,85 +595,37 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Sloppy Club Photos We Pulled Out of the Gutter</a><br>
+## <a href="#linky11" id="linky10">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112751/87199248/dog.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112739/87199247/charge.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Andria Kerchner - Kerchner was named an accomplice to murder in 2012. A Florida police officer was shot and killed by Andrias boyfriend while she was in the car.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033624/87198593/akerch.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199251/dance.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Amber Hilberling - In 2013, Amber was accused of pushing her husband out of his apartment window sending him 25 floors down to his death. She claims it was self-defense.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033630/87198594/amber.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112814/87199252/fish.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Charles Schmid - AKA the Pied Piper of Tucson. No thats not Elvis Presley. Thats good old Chuck Schmid. Aptly named for how friendly he was with the teens in his town. He would go on to murder three young girls. What a catch.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033636/87198595/charlesschmid.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112809/87199250/bottle.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. H.H. Holmes - The man with the immaculate mustache is known for being one of Americas first documented serial killers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033647/87198597/holmes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112822/87199253/goat.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Jeffrey Dahmer - Cannibal. Serial iller. Sex offender. All of that aside he was a fairly good-looking guy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033653/87198598/jeff.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112803/87199249/doll.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Casey Anthony - Arguably the hottest criminal on this list, Casey was arrested in 2008 and charged with the murder of her daughter Caylee. She was never convicted.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033641/87198596/casey.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112825/87199254/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Charles Manson - The infamous cult-leader and musician had his followers murder multiple people including actress Sharon Tate. He looks much worse today than he did in these photos.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033658/87198599/chuck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112837/87199256/grind.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Joe Exotic - Oh Joe. Joe was arrested for a murder-for-hire attempt, as we learned in the Netflix documentary Tiger King. Joe is a fun-loving party animal who isnt afraid to fall in love, again, and again.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033710/87198601/joe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112833/87199255/hi.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Paul John Knowles - AKA the Casanova Killer. He claimed to have killed up to 35 people. He was named the Casanova Killer for his charm and good looks, while also idolizing criminals such as Bonnie and Clyde and Jesse James.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033716/87198602/john.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112844/87199257/light.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Lorena Bobbitt - Yikes, Lorena. If you dont know about her...welp. Just google it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033721/87198603/lorena.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112855/87199259/pee.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Jodi Arias - Arias stabbed her ex-boyfriend nearly 29 times and shot him in the head. She claimed self-defense. Id let her hurt me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033705/87198600/jodi.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112858/87199260/poop.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Richard Ramirez - The Night Stalker. He racked up a total of 19 death sentences. He would eventually go on to die on death row. Women apparently think hes attractive.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033727/87198604/richard.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112907/87199261/puke.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112909/87199262/radiator.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112848/87199258/nope.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112931/87199266/spray.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112918/87199263/pour.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112920/87199264/sad.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112930/87199265/spill.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">19 Photos Chock Full of WTF</a><br>
-
-<span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Is my glass full or empty?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198637.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. My sleeping cat looks like it has 2 tails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198638.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Thanks roomie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198639.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. This photo of a man that looks like Albert Einstein beside the Waldo arm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The picture on my coffee creamer for my flight from Iceland is of a worker at a slaughterhouse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Target! Why is there a head of cabbage in a bouquet of flowers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Found this car covered in artificial grass on the way home from a car show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Tampa Police cruiser is in real trouble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Candle has stopped candling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My family recently had a wake up call.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Snoopy’s real face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A choice of grapes on one branch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Copy-paste gone wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Regret doing that photo shoot yet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198650.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -695,41 +691,7 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Infamous Criminals Who Are Only Ugly on the Inside</a><br>
-
-<span style="font-size:4em">1. Andrea Yates - Andrea confessed to drowning all five of her kids in a bathtub back in 2001. Her husband Rusty, subsequently threw her under the bus and re-married. So shes single!</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033619/87198592/andrea.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Andria Kerchner - Kerchner was named an accomplice to murder in 2012. A Florida police officer was shot and killed by Andrias boyfriend while she was in the car.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033624/87198593/akerch.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Amber Hilberling - In 2013, Amber was accused of pushing her husband out of his apartment window sending him 25 floors down to his death. She claims it was self-defense.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033630/87198594/amber.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Charles Schmid - AKA the Pied Piper of Tucson. No thats not Elvis Presley. Thats good old Chuck Schmid. Aptly named for how friendly he was with the teens in his town. He would go on to murder three young girls. What a catch.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033636/87198595/charlesschmid.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. H.H. Holmes - The man with the immaculate mustache is known for being one of Americas first documented serial killers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033647/87198597/holmes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Jeffrey Dahmer - Cannibal. Serial iller. Sex offender. All of that aside he was a fairly good-looking guy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033653/87198598/jeff.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Casey Anthony - Arguably the hottest criminal on this list, Casey was arrested in 2008 and charged with the murder of her daughter Caylee. She was never convicted.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033641/87198596/casey.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Charles Manson - The infamous cult-leader and musician had his followers murder multiple people including actress Sharon Tate. He looks much worse today than he did in these photos.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033658/87198599/chuck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Joe Exotic - Oh Joe. Joe was arrested for a murder-for-hire attempt, as we learned in the Netflix documentary Tiger King. Joe is a fun-loving party animal who isnt afraid to fall in love, again, and again.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033710/87198601/joe.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Paul John Knowles - AKA the Casanova Killer. He claimed to have killed up to 35 people. He was named the Casanova Killer for his charm and good looks, while also idolizing criminals such as Bonnie and Clyde and Jesse James.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033716/87198602/john.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Lorena Bobbitt - Yikes, Lorena. If you dont know about her...welp. Just google it.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033721/87198603/lorena.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Jodi Arias - Arias stabbed her ex-boyfriend nearly 29 times and shot him in the head. She claimed self-defense. Id let her hurt me.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033705/87198600/jodi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Richard Ramirez - The Night Stalker. He racked up a total of 19 death sentences. He would eventually go on to die on death row. Women apparently think hes attractive.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033727/87198604/richard.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Ted Bundy - Ted Bundy confessed to killing 30 people, but only 20 were confirmed. Its a well known fact that his good looks and charm gave him easy access to his victims.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033734/87198605/ted.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Mechel Linehan - An ex-strip club dancer who was accused of shooting her former fiancé. She was later acquitted. Just look at those eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/23/033738/87198606/mechele.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 'Breaking Bad' Facts You Never Knew </a><br>
+## <a href="#linky13" id="linky12">25 'Breaking Bad' Facts You Never Knew </a><br>
 
 <span style="font-size:4em">1. The fictional tequila Zafiro Añejo in Breaking Bad/BCS was created by the writers because they couldn’t get a real brand to do product placement due to a scene where several people die after drinking it.-u/Kanobe24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197482.jpg" style="width:100%"><br>
 
@@ -780,6 +742,44 @@ However, one day, in one game, Jim Marshall had a quick lapse in judgement and n
 <span style="font-size:4em">24. The DEA taught Bryan Cranston how to make meth for Breaking Bad.-u/v3ryfuzzyc00t3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197505.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. Breaking Bad executives were initially wary of casting Bryan Cranston as Walter White, and so offered the role to John Cusack and Matthew Broderick, who both turned it down.-u/Breeze_in_the_Trees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87197506.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">19 Photos Chock Full of WTF</a><br>
+
+<span style="font-size:4em">1. They said something about not having cones then handed me this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198636.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Is my glass full or empty?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198637.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. My sleeping cat looks like it has 2 tails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198638.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Thanks roomie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198639.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. This photo of a man that looks like Albert Einstein beside the Waldo arm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The picture on my coffee creamer for my flight from Iceland is of a worker at a slaughterhouse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Target! Why is there a head of cabbage in a bouquet of flowers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Found this car covered in artificial grass on the way home from a car show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Tampa Police cruiser is in real trouble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Candle has stopped candling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My family recently had a wake up call.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Snoopy’s real face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A choice of grapes on one branch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Copy-paste gone wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Regret doing that photo shoot yet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198650.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Thanks for sharing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Well done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198652.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
