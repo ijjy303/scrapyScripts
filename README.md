@@ -1,163 +1,57 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/28/2022-16:47:19
+Last updated: 06/28/2022-17:47:17
 <br>
-## <a href="#linky2" id="linky1">30 Wild and Crazy Things People Put in Their Wills</a><br>
+## <a href="#linky2" id="linky1">23 Awful Things That Warrant Hatred</a><br>
 
-<span style="font-size:4em">1. My vindictive grandmother left my aunt $20 as a reminder of the $20 my aunt stole from her once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202020.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Scientology. Its one of the most complex brainwashing schemes in the world. People who search for a meaning of life end up in these groups, and any of us can fall for them. Then there is no way out, or at least without huge consequences.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111036/87202080/deservinghate1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Not a Lawyer, but an aging woman my family knew left her house(large, and in a very affluent neighborhood) and estate to family friends for so long as her cats were alive and taken care of in said house. After they died, the house was to be sold and the remaining estate donated.The weird thing is, its been like 20 years and the cats are still alive.Also, theyve changed color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202005.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Phone scammers, and those who scam old people. Just disgusting.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111040/87202081/deservinghate3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Not a lawyer but my mom put in her will that if she dies under suspicious circumstances that my sister and I won’t be left anything. She watches a lot of true crime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202006.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Mosquitoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111046/87202082/deservinghate2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Saw this answer from a similar question some time ago. When a dad died he set up financial installments so long as his daughter remains under a certain weight. Dude was controlling her diet from the grave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202007.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Publishers that put microtransactions for non-cosmetic items in their games.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111052/87202083/deservinghate4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I (early 20s) was forced to write a will due to the health insurance i get at work, and, amongst sensible stuff, the in-house lawyer said it was totally okay for this clause to be added:My funeral wishes are that i be buried in a coffin which has been springloaded, such that opening the coffin would cause alarm to future archeologistsThen a bunch of stuff about if this is to costly id be cremated and have my ashes scattered in a specific place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202008.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Child beauty pageants.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111058/87202084/deservinghate5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Not a lawyer, but I work at a law firm. One client left $100,000.00 to his two cats so they could maintain their current lifestyle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202009.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. MLM’s.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111103/87202085/deservinghate6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. When my grandfather passed his will asked that I clean out his shed, and I alone.I found marijuana seeds, old reel style film pornography, which was hilarious and a bunch of other unsavory paraphernalia. 50s flick knives too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202010.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Five Minute Crafts. Personally I think that theyre deliberately making their hacks as outrageous as possible to get free promotion in the form of hate watchers and reaction channels.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111110/87202086/deservinghate7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Just last week I handled a matter where the parents left millions in artwork to various people, wads of cash to various charities, and only left their kids the family cats. Turns out they did it because the kids got them the cats to comfort the parents in their old age and the parents f*****g hated the cats but the kids wouldn’t let them get rid of the cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202011.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Ticks. Theyre completely useless and just bring sickness.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111114/87202087/deservinghate8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I work in probate. The oddest thing I’ve seen in a will is to euthanize their beloved horse, have it cremated and it’s ashes scattered with the decedent. Lucky for her horse, she named a horse that was already dead so the one she got afterwards lived to see another farm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202012.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Paparazzi.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111121/87202088/deservinghate9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A furby collection from models collected in the late 90’s. They were convinced they would retain future value.This was 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202013.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. People that go around being jerks under the excuse of trolling. There’s a correct way to do it, but people mess it up so often.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111125/87202089/deservinghate10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Lots of people sending their friends and family on weird errands to spread their ashes (leaving money for people to take trips and spread their ashes around the world). Pet trusts are a fun one: leaving a whole whack of money in a trust to be used for the care of the pet during their life. However, my favorite ever (that I obviously didn’t draft) was a lawyer who left the bulk of his estate (millions in today’s dollars) to whatever Toronto-area woman had the most children at a specific date some years in the future. I recall the winner had 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202014.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Stepping on a lego.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111133/87202090/deservinghate11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. My own grandmother specified which of the children and grandchildren should get which of the family recipes, and somehow felt the need to include commentary about why certain decisions were made. One recipe was this Prohibition-era recipe for beer which I knew my uncle, also a home brewer, wanted, but she left it to me, with the comment that I know you wanted it, Teddy, but she has the second-best penmanship of the girls and will make you a copy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202015.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. People who chew with their dang mouth open.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111136/87202091/deservinghate12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-And then like eight pages later, in among the specific descriptions of her vast collection of romance novels (really,) was a line: And [specific Jude Devereaux title] to Spidey, who will please subtract about half the hops before she copies the beer recipe for her Uncle Teddy so that any of us can drink it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202016.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Animal abuse.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111144/87202092/deservinghate13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">Our Jon had his IPA last summer and just about died.Uncle Jon just about burst into tears laughing and Uncle Teddy had long since left the room because he has no f***s whatsoever to give about romance novels. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202017.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Big pharma.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111148/87202093/deservinghate14.jpg.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Uncle Jon, of course, was still in the room because there was also still Yuengling. And no, I have no idea how she got this will done. My guess is she wrote it herself and the law students who come to her independent-living building signed off on it. It was...elaborate, thats for sure. The total value of the estate was well under eight thousand dollars, so it was mostly a funny last letter from Grandma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202018.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Nestle doesnt get enough hate, but they are incredibly huge once you start trying to avoid their products.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111156/87202094/deservinghate15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. No, maam, in order to bequeath something, you actually have to own it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202019.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Scalpers. Absolute parasites who are the reason you need to either get tickets to a concert right away or it’s too late.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111200/87202095/deservinghate16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I am a qualified solicitor, my favourite two are:1. A lady wanted to create a trust fund of £100,000, for her pet fish. When I asked if it was a special kind of fish, she confirmed it was just a normal goldfish but she wanted it to be fed fresh avocado every day and be looked after by a local dog walker after she died. She was absolutely serious.2. Another lady confessed she had a secret daughter, and she wanted to leave the daughter some money and photographs without the rest of her family finding out. Even her husband does not know. That will be a fun conversation when she passes away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202021.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. People who walk slowly and take up the middle of the sidewalk.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111207/87202096/deservinghate17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I had the first son so my dad decided to leave me more. Except he did the math wrong and it came out to 105%. He had dementia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202022.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Bed bugs. They don’t even really serve any purpose in the food chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111211/87202097/deservinghate18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. My sister’s mother in-law is leaving her house to her three sons. If one wants to sell out his third of the house, he has to sell it to the other two brothers for $1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202023.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Game of Thrones” season 7.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111219/87202098/deservinghate19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Might be late to the party and not a lawyer, but my great-grandad had a clause in his will that stated something along the lines of, “if any of the beneficiaries decide to dispute the contents of the decedent’s estate, their share becomes $1 and nothing else.”Seemed like a pretty good way to maintain harmony among his survivors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202024.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Shrinkflation. (The sneaky method of reducing product sizes instead of raising prices in order to increase profit.) Way worse than straight-up price rises in my opinion. At least price rises are clear.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111222/87202099/deservinghate20.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Had a very attractive woman with terminal cancer try to get herself stuffed by a taxidermist and given to some rich guy that had been basically a sugar daddy to her for a few months. She said He would give me a million dollar a week allowance as long as it was in an official will that he could see. I sent her to a lawyer who I knew that would do about anything for a buck because I didnt want to end up in the news when she died. That was 2 years ago, no clue what happened to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202025.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Youtubes unskippable ads. Every time they interrupt a video, I wish that the owner of youtube could get cold coffee, and slapped in the face with a tuna. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111230/87202100/deservinghate21.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Lady wanted her small dog to be buried with her. If the dog happened to be alive when the lady passed, she wanted the dog put down and then join her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202026.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. People who are jerks in multiplayer games just to be jerks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111232/87202101/deservinghate22.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. In my Mums will, which I have seen, she has left me the kitchen table and chairs. She lives on a South Manchester council estate. My brother gets the sideboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Client wanted her ashes spread at the restaurant (on the beach) where she met her husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. i got some rock my grandpa really liked</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My grandfather left me $1.00, he had dementia and confused my dad ripping him off with me. He left the rest of the family between $100,000 And a few million each.They all said they felt horrible because they knew the details, but not horrible enough to give up any of their share.The way I see it is it was never my money to begin with, so its not a loss. Im just glad my sister got a hundred thousand,she needed it more than any of the others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. When my great grandad died in his will he stated that his coin collection be split equally across his family. There was like 8-9 of us and 3 potato sacks full of coins. So we all gathered round a table and each took one coin each until nothing was left. Among the coins was an Iron Cross, which was quiet odd as the only person on that side of the family that went to war was his dad, and he served with the ANZAC’s in WW1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Here’s one from one of my dad’s law partners. He had a lady come in with an itemized list of books and wanted her will to contain all of the books and who will get what based on her choosing. So basically she decides who gets what specific book instead of letting her beneficiaries decide. The truly astonishing thing is how many books and how specific they get. According to dad’s law partner her list is at about 2,000 books to be divided among about 30 people. She is apparently very specific and comes back at least once a year to add all the new books she’s gotten.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Not a lawyer but my grandpa put in his will a chocolate bar for everyone one of his grand kids. Well I have like 12 cousins and very difficult to track down where a couple of them went. All this estates and money he had in will was at a stand still for months because they couldn’t find my couple cousins. Had to show court we put in effort to hire someone to track them down etc. The lawyer that was helping execute the Will was blown away that this lawyer allowed this and why he wouldn’t highly suggest not to do it. But I’m not complaining cause I got a Toblerone out of the deal!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I’m the executor of my grandmother’s will. I also get the house and everything in it and a share of life insurance that’s split three ways between myself, sister, and mom. My mom has always said that all my dad , my grandmothers son-in-law, would like to have is some table. Well in the will there’s like a whole paragraph that states how my dad gets nothing, he doesn’t lay a finger on any thing in the house or any money. How my dad is basically worthless and deserves nothing and how he was a c**p dad and that she begrudgingly has my mom in the will. Thanks grandma I’ll appreciate the awkwardness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202034.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Social Media Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111242/87202102/deservinghate23.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Secrets The CIA Couldn't Keep Hidden</a><br>
-
-<span style="font-size:4em">1. CIA lost nine cores of plutonium in the Himalayas trying to construct a listening post in the 60s - u/LordTin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Theres an encrypted art sculpture at the CIA Headquarters titled KRYPTOS. Its complete message has remained unsolved for over 30 years. - u/majorhigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The CIA sent its manual titled Psychological Operations in Guerrilla War to Nicaraguan rebels by balloon in March of 1984 during the Nicaraguan Revolution. - u/AutomaticWish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The famous Saigon evacuation helicopter photo at the end of the Vietnam War was not from the US embassy, but from the roof of an apartment building that housed senior CIA personnel. - u/l11ll11ll1111\</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Pond was a small US government intelligence organization that operated from 1942 and 1955. It worked in 32 countries, and after WWII was set up as a corporation contracted to the State Department, later merged with the CIA. The US government formally acknowledged it in 2001. - u/saddetective87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. CIA satellites in the 1960s would jettison heat-shielded film canisters with parachutes back to earth, to be retrieved in mid-air by plane - u/shoreyourtyler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Operation Gold, where the CIA/MI6 tunneled under Berlin to intercept Soviet communications. Problem was the KGB had a double agent and knew about the plan from the beginning. When it was safe to discover the tunnel the Soviets did so, causing much to the embarrassment of the West. - u/Status-Victory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. In 1944 the Office of Strategic Services (OSS; now the CIA) created top-secret manual titled Simple Sabotage Field Manual to assist training citizen-saboteurs in occupied countries like Norway and France. - u/batkc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The CIA hired a magician named John Mulholland in the 1950s to write a magic book for spies. The manual explained how spies could use skills like sleight of hand to poison an enemys drink, or to steal documents. Mulholland was also employed by the CIA to explore paranormal activities. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The night before Iraq invaded Kuwait there was a soar in pizza orders made by the CIA - u/Multipace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Part of the CIAs Memorial Wall is the Book of Honor which identifies agents who have died in the field. However, as of 2021, 37 of the 137 entries in the book have no names as the identities remain classified even decades later. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A KGB agent and a CIA agent became friends while trying to recruit each other; they knew the other was a spy and just didn’t talk about it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In May 25, 2003, two men boarded an empty Boeing 727 at an airport in Angola and flew off into the sunset. The FBI and CIA conducted a massive search, but neither the men nor the plane was ever seen or heard from again. it is one of the largest aircraft ever to disappear. - u/peta-chad88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. One of the prime movers behind the 1954 coup in Guatemala was the United Fruit Company. Although the operation was carried out by the CIA the UFC was deeply involved in advocating for the coup since its operations were threatened by Guatemalan land reforms. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The CIA paid Vietnam War spies by ordering them items from the Sears catalog because the spies operated in areas that had a barter economy and didnt rely on cash - u/CircusSeal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. One of the most high profile double agents during the Cold War was Kim Philby, who was at one point the liaison between the CIA and MI6. In 1955 foreign secretary Harold Macmillan told the Commons he was likely not a spy, which was disproved after Philby defected to the USSR in 1963. - u/UndyingCorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The A-12 and SR-71 were made mostly of titanium, which had to be sourced from the Worlds largest Titanium supplier, the Soviet Union. So, the planes we sent over to spy on them, were made of materials obtained from they through the CIA and a network of shell companies. - u/hoosyourdaddyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The CIA disguised seismometers as tiger poop to track Vietnamese troop movements during the Vietnam War. - u/I_Bang_Grannies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Project Azorian. In 1974 the CIA built a gigantic claw and lowered it three miles to the bottom of the Pacific Ocean to snag the entire wreck of a sunken Soviet submarine. And they partially succeeded. - u/captureorbit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The CIA recruited one of Fidel Castros mistresses to kill him in 1960, giving her poison pills, but he found out. Handing her his gun, he dared her to shoot, but her nerves failed and they had sex instead. - u/Ganesha811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200719.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">20 Marilyn Monroe Facts That We Never Knew</a><br>
-
-<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
+## <a href="#linky3" id="linky2">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
 
@@ -171,51 +65,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">20 Neanderthal Facts to Change Your Mind About Our Ancestors</a><br>
-
-<span style="font-size:4em">1. Neanderthals sailed the Mediterranean. Stone tools, of the kind made by Neanderthals, were found in areas that were known to be distant islands at the time. - u/Bronesey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A genetic association study report indicates a risk factor of the SARS-CoV-2 was inherited from Neanderthals 60,000 years ago, and is carried by around 50% of people in south Asia and around 16% of people in Europe. - u/Movie_Advance_101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Pestera cu Oase. Oase 1 was a modern human dated between 37000 and 42000 years ago. He had approximately 5-11% Neanderthal genome, suggesting a recent Neanderthal ancestor. Oase 2, another skeleton, had approximately 6% Neanderthal genome. - u/Certified_Cichlid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The ancestors of Neanderthals and Denisovans interbred with a superarchaic human species that separated from other human species 2 million years ago. - u/Certified_Cichlid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The average Neanderthal man had a estimated Body Mass Index of 26.9-28.2, overweight for a modern human because of their very robust build.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. DNA data reveals that many of us are carrying Neanderthal genes - u/CuteBananaMuffin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Neanderthals, which were traditionally thought of as extremely primitive humans, are now believed to have been extremely intelligent, even comparable to the intelligence of modern humans. They used tools, had social structures, thrived in hostile environments, and lived long lives. - u/IanMazgelis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hundreds of Neanderthal footprints made 80,000 years ago, 90% from children as young as two, were found on a beach in Le Rozel France - u/ZzzzzPopPopPop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Denny, the first remains discovered of a half-Denisovan, half-Neanderthal human - u/msbzmsbz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The most recent partial Neanderthal is a four year old child buried with a seashell. The bones date around 24 500 years ago.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Oase skeletons were European modern humans dating around 40 000 years ago. They are also 5-11% Neanderthal, suggesting a Neanderthal ancestry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. There are 5 species of hominids DNA in varying amounts in modern day humans- 3 highly variant Denisovans from Asia, Neanderthal, and Homo Sapien Sapien from Africa. - u/FazedLaser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Neanderthals are called Neanderthals because the first specimen was found in a valley in Neanderthal in Germany. The valley was called Neanderthal and spelled Neanderthaler in German, until the spelling reform of 1901. - u/amansaggu26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Neanderthals practiced cannibalism - u/Horseahead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. There is clear evidence that shows empathy and care towards disabled family members within early human and neanderthal groups. Individuals who could not aid in hunting and gathering still were taken care of. - u/oefiefieuwbe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Neanderthals had significantly larger brains than modern humans and that our intellectual superiority is actually up for debate - u/owen__wilsons__nose</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. While interbreeding occurred between neanderthals and early modern humans, the only genetic evidence of these events conserved within the human genome comes from Y chromosomal DNA meaning that all neanderthal DNA within modern humans comes from male neanderthal and female human pairings. - u/FlintKnappingWriter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Wolf Cave aka Susiluola, a cave in Finland claiming to have evidence of Neanderthals pre Ice Age. The only known evidence in Nordic countries. - u/folksywisdomfromback</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The oldest known musical instrument, a 43000 years old flute, could have been made by a Neanderthal. - u/Dontgiveaclam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Neanderthal artists made oldest-known cave paintings, 20,000 years before Homo sapiens arrived in that region. - u/Breeze_in_the_Trees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200789.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">20 Amazing Facts You Definitely Didn’t Know</a><br>
+## <a href="#linky4" id="linky3">20 Amazing Facts You Definitely Didn’t Know</a><br>
 
 <span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
 
@@ -259,7 +109,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
+## <a href="#linky5" id="linky4">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
 
@@ -283,7 +133,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
+## <a href="#linky6" id="linky5">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
 
@@ -299,7 +149,27 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
+## <a href="#linky7" id="linky6">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122344/87201183/h67453E09.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122333/87201181/h3C6DFB9A.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122336/87201182/hECD6397B.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122325/87201180/hDD18E45D.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123034/87201187/french-rude1.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123023/87201186/french-rude3.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123012/87201185/french-rude2.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123001/87201184/french-rude4.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
 
@@ -317,7 +187,87 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">20 Images That Are Unexplainably Cursed</a><br>
+## <a href="#linky9" id="linky8">38 Fascinating Things You Don't See Everyday</a><br>
+
+<span style="font-size:4em">1. “I came home to this last night. I married the right woman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The gap between my window and shades made the perfect glowing little number 1.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “In Portugal we have cellphone towers disguised as trees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “This donut box looks like a giant VHS tape.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Swedish mannequins have different shaped models.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My friend cut into his cake and said, ’Oh my gosh, this cake is a meme.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “An absolute unit of a carrot — large man forearm for scale”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “This is my foot. I’ve been wanting to see an X-ray for 22 years. Thought you guys might want to see it too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My niece thought my mom needed this sticker while she was sleeping.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “She met a dog for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A 14-foot-tall mannequin from the Moschino store in SoHo, NYC”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I wonder how far this onion could go.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Turns out my girlfriend’s dog is in love with me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I present to you: a gigantic opalized ammonite fossil.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My cousin (left) and our nana on her wedding day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I couldn’t imagine anyone loving popcorn so much.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My 90-year-old grandma just graduated!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Ever wonder how deaf people wake up in the morning? This is my vibrating alarm clock — I’m deaf and a heavy sleeper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “The deer on my moms property had an albino baby!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “A school (?) of jellyfish congregated under this boat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “I have been reusing the same scallion scraps for two months by growing them in water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The controls for the 1912 streetcar I drive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Visual contact that only the bravest can endure”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “I cracked three double-yolk eggs in a row.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “This little guy grabbed an equally little watermelon from my garden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “My brother’s epic mullet, circa 1994”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “I crocheted my dress, and a good friend crocheted my bouquet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Subway Served Me A Knife With My Sandwich.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “My shower has a pressure handle and temperature handle. I always have perfect temperature showers now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “A flower has grown between these tiles.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “This fake driver’s license for a literal bird came with my wallet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “Holding the first girl born into the family in 31 years”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “I found a phone that is shaped like a ketchup bottle at a thrift store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “Got some free socks with my pint.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “I sliced this bagel very evenly”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “Hotel stores their automated lawnmower in a dog house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “Finding out that my cat potty trained himself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “Found a caterpillar with penguins on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201051.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">20 Images That Are Unexplainably Cursed</a><br>
 
 <span style="font-size:4em">1. Not sure if it is the masks or the fact that its black & white, but this picture is creepy AF.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200464.jpg" style="width:100%"><br>
 
@@ -361,7 +311,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Proof That Old People Don’t Understand The Internet</a><br>
+## <a href="#linky11" id="linky10">Proof That Old People Don’t Understand The Internet</a><br>
 
 <span style="font-size:4em">1. I guess grandma was a bit too happy about the murder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200543.jpg" style="width:100%"><br>
 
@@ -403,133 +353,51 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">25 Dank Memes That Shattered the Dankness Scouter</a><br>
+## <a href="#linky12" id="linky11">20 Marilyn Monroe Facts That We Never Knew</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200878.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200873.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200870.png" style="width:100%"><br>
+<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200879.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200880.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200860.png" style="width:100%"><br>
+<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200866.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200861.png" style="width:100%"><br>
+<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200862.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200863.png" style="width:100%"><br>
+<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200864.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200867.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200868.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200869.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200872.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200874.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200876.png" style="width:100%"><br>
+<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200865.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200859.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Are These Couples Siblings, or Dating?</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040554/87202385/siblingordating3.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042759/87202409/dating3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040601/87202387/siblingordating5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/044006/87202428/dating3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040618/87202390/siblingordating7.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042922/87202419/siblings2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040606/87202388/siblingordating4.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Dating. Married, In fact. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042750/87202408/dating1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040613/87202389/siblingordating6.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042811/87202412/dating5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040550/87202384/siblingordating1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Siblings. Harry, and Gemma Styles. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042922/87202418/siblings4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040629/87202392/siblingordating10.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042801/87202410/dating4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040636/87202393/siblingordating11.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042747/87202407/dating2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040640/87202394/siblingordating12.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/044006/87202427/dating1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040625/87202391/siblingordating8.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Siblings. Gigi Hadid and her brother Anwar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042933/87202420/siblings5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040648/87202395/siblingordating13.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042843/87202415/dating7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040652/87202396/siblingordating14.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042911/87202417/siblings3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040701/87202397/siblingordating17.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/043957/87202426/dating5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040703/87202398/siblingordating18.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042945/87202421/siblings7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042553/87202403/redo3.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. Dating. Bryan Dechart and his wife! Who is thankfully not his sibling.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042833/87202414/dating9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042604/87202404/redo2.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042822/87202413/dating8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042627/87202406/redo5.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042956/87202422/siblings6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042615/87202405/redo4.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042810/87202411/dating6.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">25 Worst Mistakes Ever Made by a Coworker</a><br>
+## <a href="#linky13" id="linky12">25 Worst Mistakes Ever Made by a Coworker</a><br>
 
 <span style="font-size:4em">1. At a Petco, all the Guinea pigs were in a big plexiglass enclosure with a center divider. Boys on one side and girls on the other. An employee decided that all the long haired Guinea pigs should be on one side and short-haired on the other. It took forever to sort them out and all the females were pregnant.
 
@@ -632,103 +500,165 @@ After seeing the image, I yelled at the guy This is the baby. He is not playing,
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">38 Fascinating Things You Don't See Everyday</a><br>
+## <a href="#linky14" id="linky13">25 Dank Memes That Shattered the Dankness Scouter</a><br>
 
-<span style="font-size:4em">1. “I came home to this last night. I married the right woman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201015.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “The gap between my window and shades made the perfect glowing little number 1.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201037.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “In Portugal we have cellphone towers disguised as trees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201038.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “This donut box looks like a giant VHS tape.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201042.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200870.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Swedish mannequins have different shaped models.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201019.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “My friend cut into his cake and said, ’Oh my gosh, this cake is a meme.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201020.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “An absolute unit of a carrot — large man forearm for scale”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201022.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200860.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “This is my foot. I’ve been wanting to see an X-ray for 22 years. Thought you guys might want to see it too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201023.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My niece thought my mom needed this sticker while she was sleeping.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201024.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200861.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “She met a dog for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201025.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “A 14-foot-tall mannequin from the Moschino store in SoHo, NYC”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201021.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200863.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I wonder how far this onion could go.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201014.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Turns out my girlfriend’s dog is in love with me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201028.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I present to you: a gigantic opalized ammonite fossil.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201018.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “My cousin (left) and our nana on her wedding day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201029.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “I couldn’t imagine anyone loving popcorn so much.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201030.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “My 90-year-old grandma just graduated!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201031.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Ever wonder how deaf people wake up in the morning? This is my vibrating alarm clock — I’m deaf and a heavy sleeper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201032.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200876.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “The deer on my moms property had an albino baby!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201033.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “A school (?) of jellyfish congregated under this boat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201034.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “I have been reusing the same scallion scraps for two months by growing them in water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201035.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “The controls for the 1912 streetcar I drive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201036.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Visual contact that only the bravest can endure”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “I cracked three double-yolk eggs in a row.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “This little guy grabbed an equally little watermelon from my garden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “My brother’s epic mullet, circa 1994”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “I crocheted my dress, and a good friend crocheted my bouquet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Subway Served Me A Knife With My Sandwich.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “My shower has a pressure handle and temperature handle. I always have perfect temperature showers now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “A flower has grown between these tiles.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “This fake driver’s license for a literal bird came with my wallet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Holding the first girl born into the family in 31 years”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “I found a phone that is shaped like a ketchup bottle at a thrift store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “Got some free socks with my pint.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “I sliced this bagel very evenly”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “Hotel stores their automated lawnmower in a dog house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “Finding out that my cat potty trained himself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “Found a caterpillar with penguins on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201051.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200859.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
+## <a href="#linky15" id="linky14">30 Wild and Crazy Things People Put in Their Wills</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122344/87201183/h67453E09.png" style="width:100%"><br>
+<span style="font-size:4em">1. My vindictive grandmother left my aunt $20 as a reminder of the $20 my aunt stole from her once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122333/87201181/h3C6DFB9A.png" style="width:100%"><br>
+<span style="font-size:4em">2. Not a Lawyer, but an aging woman my family knew left her house(large, and in a very affluent neighborhood) and estate to family friends for so long as her cats were alive and taken care of in said house. After they died, the house was to be sold and the remaining estate donated.The weird thing is, its been like 20 years and the cats are still alive.Also, theyve changed color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122336/87201182/hECD6397B.png" style="width:100%"><br>
+<span style="font-size:4em">3. Not a lawyer but my mom put in her will that if she dies under suspicious circumstances that my sister and I won’t be left anything. She watches a lot of true crime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122325/87201180/hDD18E45D.png" style="width:100%"><br>
+<span style="font-size:4em">4. Saw this answer from a similar question some time ago. When a dad died he set up financial installments so long as his daughter remains under a certain weight. Dude was controlling her diet from the grave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123034/87201187/french-rude1.png" style="width:100%"><br>
+<span style="font-size:4em">5. I (early 20s) was forced to write a will due to the health insurance i get at work, and, amongst sensible stuff, the in-house lawyer said it was totally okay for this clause to be added:My funeral wishes are that i be buried in a coffin which has been springloaded, such that opening the coffin would cause alarm to future archeologistsThen a bunch of stuff about if this is to costly id be cremated and have my ashes scattered in a specific place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123023/87201186/french-rude3.png" style="width:100%"><br>
+<span style="font-size:4em">6. Not a lawyer, but I work at a law firm. One client left $100,000.00 to his two cats so they could maintain their current lifestyle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123012/87201185/french-rude2.png" style="width:100%"><br>
+<span style="font-size:4em">7. When my grandfather passed his will asked that I clean out his shed, and I alone.I found marijuana seeds, old reel style film pornography, which was hilarious and a bunch of other unsavory paraphernalia. 50s flick knives too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123001/87201184/french-rude4.png" style="width:100%"><br>
+<span style="font-size:4em">8. Just last week I handled a matter where the parents left millions in artwork to various people, wads of cash to various charities, and only left their kids the family cats. Turns out they did it because the kids got them the cats to comfort the parents in their old age and the parents f*****g hated the cats but the kids wouldn’t let them get rid of the cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I work in probate. The oddest thing I’ve seen in a will is to euthanize their beloved horse, have it cremated and it’s ashes scattered with the decedent. Lucky for her horse, she named a horse that was already dead so the one she got afterwards lived to see another farm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A furby collection from models collected in the late 90’s. They were convinced they would retain future value.This was 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Lots of people sending their friends and family on weird errands to spread their ashes (leaving money for people to take trips and spread their ashes around the world). Pet trusts are a fun one: leaving a whole whack of money in a trust to be used for the care of the pet during their life. However, my favorite ever (that I obviously didn’t draft) was a lawyer who left the bulk of his estate (millions in today’s dollars) to whatever Toronto-area woman had the most children at a specific date some years in the future. I recall the winner had 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My own grandmother specified which of the children and grandchildren should get which of the family recipes, and somehow felt the need to include commentary about why certain decisions were made. One recipe was this Prohibition-era recipe for beer which I knew my uncle, also a home brewer, wanted, but she left it to me, with the comment that I know you wanted it, Teddy, but she has the second-best penmanship of the girls and will make you a copy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+And then like eight pages later, in among the specific descriptions of her vast collection of romance novels (really,) was a line: And [specific Jude Devereaux title] to Spidey, who will please subtract about half the hops before she copies the beer recipe for her Uncle Teddy so that any of us can drink it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">Our Jon had his IPA last summer and just about died.Uncle Jon just about burst into tears laughing and Uncle Teddy had long since left the room because he has no f***s whatsoever to give about romance novels. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Uncle Jon, of course, was still in the room because there was also still Yuengling. And no, I have no idea how she got this will done. My guess is she wrote it herself and the law students who come to her independent-living building signed off on it. It was...elaborate, thats for sure. The total value of the estate was well under eight thousand dollars, so it was mostly a funny last letter from Grandma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. No, maam, in order to bequeath something, you actually have to own it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I am a qualified solicitor, my favourite two are:1. A lady wanted to create a trust fund of £100,000, for her pet fish. When I asked if it was a special kind of fish, she confirmed it was just a normal goldfish but she wanted it to be fed fresh avocado every day and be looked after by a local dog walker after she died. She was absolutely serious.2. Another lady confessed she had a secret daughter, and she wanted to leave the daughter some money and photographs without the rest of her family finding out. Even her husband does not know. That will be a fun conversation when she passes away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I had the first son so my dad decided to leave me more. Except he did the math wrong and it came out to 105%. He had dementia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My sister’s mother in-law is leaving her house to her three sons. If one wants to sell out his third of the house, he has to sell it to the other two brothers for $1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Might be late to the party and not a lawyer, but my great-grandad had a clause in his will that stated something along the lines of, “if any of the beneficiaries decide to dispute the contents of the decedent’s estate, their share becomes $1 and nothing else.”Seemed like a pretty good way to maintain harmony among his survivors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Had a very attractive woman with terminal cancer try to get herself stuffed by a taxidermist and given to some rich guy that had been basically a sugar daddy to her for a few months. She said He would give me a million dollar a week allowance as long as it was in an official will that he could see. I sent her to a lawyer who I knew that would do about anything for a buck because I didnt want to end up in the news when she died. That was 2 years ago, no clue what happened to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Lady wanted her small dog to be buried with her. If the dog happened to be alive when the lady passed, she wanted the dog put down and then join her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In my Mums will, which I have seen, she has left me the kitchen table and chairs. She lives on a South Manchester council estate. My brother gets the sideboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Client wanted her ashes spread at the restaurant (on the beach) where she met her husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. i got some rock my grandpa really liked</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My grandfather left me $1.00, he had dementia and confused my dad ripping him off with me. He left the rest of the family between $100,000 And a few million each.They all said they felt horrible because they knew the details, but not horrible enough to give up any of their share.The way I see it is it was never my money to begin with, so its not a loss. Im just glad my sister got a hundred thousand,she needed it more than any of the others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. When my great grandad died in his will he stated that his coin collection be split equally across his family. There was like 8-9 of us and 3 potato sacks full of coins. So we all gathered round a table and each took one coin each until nothing was left. Among the coins was an Iron Cross, which was quiet odd as the only person on that side of the family that went to war was his dad, and he served with the ANZAC’s in WW1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Here’s one from one of my dad’s law partners. He had a lady come in with an itemized list of books and wanted her will to contain all of the books and who will get what based on her choosing. So basically she decides who gets what specific book instead of letting her beneficiaries decide. The truly astonishing thing is how many books and how specific they get. According to dad’s law partner her list is at about 2,000 books to be divided among about 30 people. She is apparently very specific and comes back at least once a year to add all the new books she’s gotten.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Not a lawyer but my grandpa put in his will a chocolate bar for everyone one of his grand kids. Well I have like 12 cousins and very difficult to track down where a couple of them went. All this estates and money he had in will was at a stand still for months because they couldn’t find my couple cousins. Had to show court we put in effort to hire someone to track them down etc. The lawyer that was helping execute the Will was blown away that this lawyer allowed this and why he wouldn’t highly suggest not to do it. But I’m not complaining cause I got a Toblerone out of the deal!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I’m the executor of my grandmother’s will. I also get the house and everything in it and a share of life insurance that’s split three ways between myself, sister, and mom. My mom has always said that all my dad , my grandmothers son-in-law, would like to have is some table. Well in the will there’s like a whole paragraph that states how my dad gets nothing, he doesn’t lay a finger on any thing in the house or any money. How my dad is basically worthless and deserves nothing and how he was a c**p dad and that she begrudgingly has my mom in the will. Thanks grandma I’ll appreciate the awkwardness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202034.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">20 Secrets The CIA Couldn't Keep Hidden</a><br>
+
+<span style="font-size:4em">1. CIA lost nine cores of plutonium in the Himalayas trying to construct a listening post in the 60s - u/LordTin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Theres an encrypted art sculpture at the CIA Headquarters titled KRYPTOS. Its complete message has remained unsolved for over 30 years. - u/majorhigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The CIA sent its manual titled Psychological Operations in Guerrilla War to Nicaraguan rebels by balloon in March of 1984 during the Nicaraguan Revolution. - u/AutomaticWish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The famous Saigon evacuation helicopter photo at the end of the Vietnam War was not from the US embassy, but from the roof of an apartment building that housed senior CIA personnel. - u/l11ll11ll1111\</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Pond was a small US government intelligence organization that operated from 1942 and 1955. It worked in 32 countries, and after WWII was set up as a corporation contracted to the State Department, later merged with the CIA. The US government formally acknowledged it in 2001. - u/saddetective87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. CIA satellites in the 1960s would jettison heat-shielded film canisters with parachutes back to earth, to be retrieved in mid-air by plane - u/shoreyourtyler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Operation Gold, where the CIA/MI6 tunneled under Berlin to intercept Soviet communications. Problem was the KGB had a double agent and knew about the plan from the beginning. When it was safe to discover the tunnel the Soviets did so, causing much to the embarrassment of the West. - u/Status-Victory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. In 1944 the Office of Strategic Services (OSS; now the CIA) created top-secret manual titled Simple Sabotage Field Manual to assist training citizen-saboteurs in occupied countries like Norway and France. - u/batkc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The CIA hired a magician named John Mulholland in the 1950s to write a magic book for spies. The manual explained how spies could use skills like sleight of hand to poison an enemys drink, or to steal documents. Mulholland was also employed by the CIA to explore paranormal activities. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The night before Iraq invaded Kuwait there was a soar in pizza orders made by the CIA - u/Multipace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Part of the CIAs Memorial Wall is the Book of Honor which identifies agents who have died in the field. However, as of 2021, 37 of the 137 entries in the book have no names as the identities remain classified even decades later. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A KGB agent and a CIA agent became friends while trying to recruit each other; they knew the other was a spy and just didn’t talk about it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In May 25, 2003, two men boarded an empty Boeing 727 at an airport in Angola and flew off into the sunset. The FBI and CIA conducted a massive search, but neither the men nor the plane was ever seen or heard from again. it is one of the largest aircraft ever to disappear. - u/peta-chad88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. One of the prime movers behind the 1954 coup in Guatemala was the United Fruit Company. Although the operation was carried out by the CIA the UFC was deeply involved in advocating for the coup since its operations were threatened by Guatemalan land reforms. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The CIA paid Vietnam War spies by ordering them items from the Sears catalog because the spies operated in areas that had a barter economy and didnt rely on cash - u/CircusSeal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. One of the most high profile double agents during the Cold War was Kim Philby, who was at one point the liaison between the CIA and MI6. In 1955 foreign secretary Harold Macmillan told the Commons he was likely not a spy, which was disproved after Philby defected to the USSR in 1963. - u/UndyingCorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The A-12 and SR-71 were made mostly of titanium, which had to be sourced from the Worlds largest Titanium supplier, the Soviet Union. So, the planes we sent over to spy on them, were made of materials obtained from they through the CIA and a network of shell companies. - u/hoosyourdaddyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The CIA disguised seismometers as tiger poop to track Vietnamese troop movements during the Vietnam War. - u/I_Bang_Grannies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Project Azorian. In 1974 the CIA built a gigantic claw and lowered it three miles to the bottom of the Pacific Ocean to snag the entire wreck of a sunken Soviet submarine. And they partially succeeded. - u/captureorbit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The CIA recruited one of Fidel Castros mistresses to kill him in 1960, giving her poison pills, but he found out. Handing her his gun, he dared her to shoot, but her nerves failed and they had sex instead. - u/Ganesha811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200719.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
