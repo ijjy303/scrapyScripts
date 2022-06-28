@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/28/2022-07:47:18
+Last updated: 06/28/2022-08:47:18
 <br>
 ## <a href="#linky2" id="linky1">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
 
@@ -17,177 +17,7 @@ Last updated: 06/28/2022-07:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 Fake Tough Guys Embarrassing Themselves</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112344/87199216/tootough2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112410/87199221/tootough6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112601/87199240/tootough27.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112418/87199222/tootough7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112455/87199229/tootough14.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112430/87199224/tootough9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112614/87199243/tootough30.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112440/87199226/tootough11.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112444/87199227/tootough12.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112451/87199228/tootough13.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112503/87199230/tootough15.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112514/87199232/tootough17.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112517/87199233/tootough18.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112506/87199231/tootough16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112525/87199234/tootough19.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112407/87199220/tootough5.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112528/87199235/tootough20.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112537/87199236/tootough21.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112540/87199237/tootough23.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112549/87199238/tootough24.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112552/87199239/tootough25.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112603/87199241/tootough28.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112612/87199242/tootough29.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112356/87199218/tootough3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112359/87199219/tootough4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112432/87199225/tootough10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112623/87199244/tootough31.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112421/87199223/tootough8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112625/87199245/tootough32.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112635/87199246/tootough33.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">25 Shocking Facts About Uber</a><br>
-
-<span style="font-size:4em">1. Samantha Josephson mistakenly entered a wrong vehicle after ordering an Uber and was stabbed over 100 times in the backseat. She couldnt escape the vehicle because her assailant engaged the child lock mechanism for her doors. This incident sparked new laws and procedures to protect passengers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Lance Armstrong was ordered to pay over $20 million after his cycling doping scandal. However, his fortunes were partially saved by being one of Ubers first investors in 2009.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199570.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. In 2014, black taxi cab drivers brought parts of London to a standstill, protesting against Uber. This led to an 850% increase in downloads of Uber.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Comedian/Actor Joel McHale took an Uber from Rochester, NY to Manhattan. His flight out was canceled and needed to get to his appearance on Jimmy Fallon, so he spent $700 on a (350 mile, 5-6 hour) Uber ride and paid $200 in tips, as well as paid the driver additional money for his gas back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Elwood Edwards, The voice of AOL’s ‘You’ve Got Mail’ was paid $200 for recording the ubiquitous phrase in 1989. He got the job because his wife worked at an AOL predecessor. He is now an Uber Driver in Ohio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Since Uber was introduced in New York City in 2011, drinking-related car wrecks decreased by 25–35 percent in all boroughs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Benedict Cumberbatch, Doctor Strange in the MCU, saved a cyclist from an attempted robbery by fighting off a gang of muggers in London. He was in an Uber when he saw 4 muggers jumping a delivery cyclist. He got out, screamed at the attackers and then dragged them off of the victim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Uber drivers in China changed their profile photos to ghosts and zombie images so that when potential passengers saw these pictures they would cancel the ride they’d just booked, thus earning the driver the cancellation fee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An Uber Driver asked his Passenger to drive while on a 300-mile route so he could take a nap. He awoke to them being chased by the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199576.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. In Pakistan, when Uber joined the market, car dealership owners signed up their free cars to take advantage of payments given for loss of business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ubers operation SLOG tried to undermine Lyft, including trying to recruit Lyft drivers and calling, then canceling over 5000 rides on the Lyft app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In Ubers 2018 fatal self-driving car accident the system mis-identified the pedestrian and didnt act to avoid the accident. The cars emergency braking system could have acted at the last second, but that system had been disabled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Travis Kalanick, billionaire founder and CEO of Uber, was the #2 ranked Wii Tennis player in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 2019, UCLA students call about 11,000 Uber and Lyft rides that never leave the campus every week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. An Uber driver sued Snapchat, alleging that the teen who crashed into him at 107 mph was using Snapchats speed filter while driving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Angel investor Jason Calacanis turned a $25k initial investment in Uber into $100M.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hakan Şükür, former world class striker and top scorer of the Turkish national soccer team, works as an Uber driver in Washington D.C.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Uber drivers will occasionally notify the police when they drop off/observe lots of (US) teens with alcohol going into a party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The FAA has banned all uber airplane ridesharing type services.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Four years ago, Uber released documents revealing its self-driving cars drove 20,354 miles... but required human intervention at every mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199586.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Uber Technologies has filed a patent on how self-driving cars might communicate with pedestrians. The patent title is Light output system for a self-driving vehicle. The patent looks at how flashing lights and signs on the outside of self-driving cars might tell pedestrians what is happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. In 2013, Uber delivered kittens for a cuddle for a $20 donation on National Cat Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Tostitos made a promotional bag for the Superbowl that had sensors to detect alcohol on a persons breath. If alcohol was detected the bag gave a 10% discount for Uber, and also had a NFC tag to call the driver.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199589.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. The Billion Dollar Tweet: Travis was looking for a co-founder after coming up with the idea of Uber He tweeted that he wants a partner and Ryan replied within a minute. Both of these guys were billionaires just 16 months after this tweet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The app-based Taxi service Uber is legally banned in all of Germany.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199591.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">Charts and Maps to Fill Your Brain with Knowledge</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198633.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Monday Morning Randomness User Edition - MohAki1</a><br>
+## <a href="#linky3" id="linky2">Monday Morning Randomness User Edition - MohAki1</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87199764.jpg" style="width:100%"><br>
 
@@ -283,103 +113,7 @@ Last updated: 06/28/2022-07:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122344/87201183/h67453E09.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122333/87201181/h3C6DFB9A.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122336/87201182/hECD6397B.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122325/87201180/hDD18E45D.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123034/87201187/french-rude1.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123023/87201186/french-rude3.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123012/87201185/french-rude2.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123001/87201184/french-rude4.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">36 Pics and Memes Perfect for Slacking Off With</a><br>
-
-<span style="font-size:4em">1. Darth Vader Cat finds your lack of treats disturbing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Its all well and good until either you cant get the dashboard back together or short out something in the electrical system in the process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200154.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200158.gif" style="width:100%"><br>
-
-<span style="font-size:4em">15. Yeth, can I help you?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I guess that is what happens when you didnt grow up with the crappy predecessors of modern technology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200143.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200168.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200171.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A device created by someone who could see the future and knew we would need it for all the crap on the internet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200172.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200179.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Well, thats quite terrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200182.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Boss Refuses to Accept Employee's Resignation, Tells Him He "Can't Leave" </a><br>
+## <a href="#linky4" id="linky3">Boss Refuses to Accept Employee's Resignation, Tells Him He "Can't Leave" </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114626/87201172/boss-didnt-accept-my-resignation-i-did.png" style="width:100%"><br>
 
@@ -401,87 +135,61 @@ Last updated: 06/28/2022-07:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">38 Fascinating Things You Don't See Everyday</a><br>
+## <a href="#linky5" id="linky4">25 Shocking Facts About Uber</a><br>
 
-<span style="font-size:4em">1. “I came home to this last night. I married the right woman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201015.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Samantha Josephson mistakenly entered a wrong vehicle after ordering an Uber and was stabbed over 100 times in the backseat. She couldnt escape the vehicle because her assailant engaged the child lock mechanism for her doors. This incident sparked new laws and procedures to protect passengers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199569.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “The gap between my window and shades made the perfect glowing little number 1.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201037.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Lance Armstrong was ordered to pay over $20 million after his cycling doping scandal. However, his fortunes were partially saved by being one of Ubers first investors in 2009.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199570.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “In Portugal we have cellphone towers disguised as trees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201038.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In 2014, black taxi cab drivers brought parts of London to a standstill, protesting against Uber. This led to an 850% increase in downloads of Uber.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199571.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “This donut box looks like a giant VHS tape.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201042.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Comedian/Actor Joel McHale took an Uber from Rochester, NY to Manhattan. His flight out was canceled and needed to get to his appearance on Jimmy Fallon, so he spent $700 on a (350 mile, 5-6 hour) Uber ride and paid $200 in tips, as well as paid the driver additional money for his gas back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199568.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Swedish mannequins have different shaped models.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201019.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Elwood Edwards, The voice of AOL’s ‘You’ve Got Mail’ was paid $200 for recording the ubiquitous phrase in 1989. He got the job because his wife worked at an AOL predecessor. He is now an Uber Driver in Ohio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199572.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “My friend cut into his cake and said, ’Oh my gosh, this cake is a meme.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201020.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Since Uber was introduced in New York City in 2011, drinking-related car wrecks decreased by 25–35 percent in all boroughs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199573.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “An absolute unit of a carrot — large man forearm for scale”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201022.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Benedict Cumberbatch, Doctor Strange in the MCU, saved a cyclist from an attempted robbery by fighting off a gang of muggers in London. He was in an Uber when he saw 4 muggers jumping a delivery cyclist. He got out, screamed at the attackers and then dragged them off of the victim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199574.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “This is my foot. I’ve been wanting to see an X-ray for 22 years. Thought you guys might want to see it too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201023.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Uber drivers in China changed their profile photos to ghosts and zombie images so that when potential passengers saw these pictures they would cancel the ride they’d just booked, thus earning the driver the cancellation fee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199575.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My niece thought my mom needed this sticker while she was sleeping.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201024.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. An Uber Driver asked his Passenger to drive while on a 300-mile route so he could take a nap. He awoke to them being chased by the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199576.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “She met a dog for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201025.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. In Pakistan, when Uber joined the market, car dealership owners signed up their free cars to take advantage of payments given for loss of business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199577.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “A 14-foot-tall mannequin from the Moschino store in SoHo, NYC”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201021.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Ubers operation SLOG tried to undermine Lyft, including trying to recruit Lyft drivers and calling, then canceling over 5000 rides on the Lyft app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199578.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I wonder how far this onion could go.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201014.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. In Ubers 2018 fatal self-driving car accident the system mis-identified the pedestrian and didnt act to avoid the accident. The cars emergency braking system could have acted at the last second, but that system had been disabled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199567.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Turns out my girlfriend’s dog is in love with me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201028.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Travis Kalanick, billionaire founder and CEO of Uber, was the #2 ranked Wii Tennis player in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I present to you: a gigantic opalized ammonite fossil.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201018.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In 2019, UCLA students call about 11,000 Uber and Lyft rides that never leave the campus every week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199580.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “My cousin (left) and our nana on her wedding day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201029.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. An Uber driver sued Snapchat, alleging that the teen who crashed into him at 107 mph was using Snapchats speed filter while driving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “I couldn’t imagine anyone loving popcorn so much.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201030.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Angel investor Jason Calacanis turned a $25k initial investment in Uber into $100M.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199582.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “My 90-year-old grandma just graduated!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201031.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Hakan Şükür, former world class striker and top scorer of the Turkish national soccer team, works as an Uber driver in Washington D.C.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Ever wonder how deaf people wake up in the morning? This is my vibrating alarm clock — I’m deaf and a heavy sleeper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201032.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Uber drivers will occasionally notify the police when they drop off/observe lots of (US) teens with alcohol going into a party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “The deer on my moms property had an albino baby!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201033.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The FAA has banned all uber airplane ridesharing type services.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “A school (?) of jellyfish congregated under this boat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201034.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Four years ago, Uber released documents revealing its self-driving cars drove 20,354 miles... but required human intervention at every mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199586.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “I have been reusing the same scallion scraps for two months by growing them in water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201035.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Uber Technologies has filed a patent on how self-driving cars might communicate with pedestrians. The patent title is Light output system for a self-driving vehicle. The patent looks at how flashing lights and signs on the outside of self-driving cars might tell pedestrians what is happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “The controls for the 1912 streetcar I drive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201036.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. In 2013, Uber delivered kittens for a cuddle for a $20 donation on National Cat Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Visual contact that only the bravest can endure”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201027.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Tostitos made a promotional bag for the Superbowl that had sensors to detect alcohol on a persons breath. If alcohol was detected the bag gave a 10% discount for Uber, and also had a NFC tag to call the driver.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199589.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. “I cracked three double-yolk eggs in a row.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201040.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. The Billion Dollar Tweet: Travis was looking for a co-founder after coming up with the idea of Uber He tweeted that he wants a partner and Ryan replied within a minute. Both of these guys were billionaires just 16 months after this tweet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “This little guy grabbed an equally little watermelon from my garden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “My brother’s epic mullet, circa 1994”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “I crocheted my dress, and a good friend crocheted my bouquet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Subway Served Me A Knife With My Sandwich.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “My shower has a pressure handle and temperature handle. I always have perfect temperature showers now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “A flower has grown between these tiles.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “This fake driver’s license for a literal bird came with my wallet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Holding the first girl born into the family in 31 years”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “I found a phone that is shaped like a ketchup bottle at a thrift store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “Got some free socks with my pint.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “I sliced this bagel very evenly”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “Hotel stores their automated lawnmower in a dog house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “Finding out that my cat potty trained himself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “Found a caterpillar with penguins on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201051.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. The app-based Taxi service Uber is legally banned in all of Germany.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199591.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Fed-Up Pilot Humiliates Selfish Plane Karen </a><br>
+## <a href="#linky6" id="linky5">Fed-Up Pilot Humiliates Selfish Plane Karen </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200026.png" style="width:100%"><br>
 
@@ -503,7 +211,7 @@ Last updated: 06/28/2022-07:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">20 Neanderthal Facts to Change Your Mind About Our Ancestors</a><br>
+## <a href="#linky7" id="linky6">20 Neanderthal Facts to Change Your Mind About Our Ancestors</a><br>
 
 <span style="font-size:4em">1. Neanderthals sailed the Mediterranean. Stone tools, of the kind made by Neanderthals, were found in areas that were known to be distant islands at the time. - u/Bronesey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200770.jpg" style="width:100%"><br>
 
@@ -547,227 +255,7 @@ Last updated: 06/28/2022-07:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 Marilyn Monroe Facts That We Never Knew</a><br>
-
-<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">20 Secrets The CIA Couldn't Keep Hidden</a><br>
-
-<span style="font-size:4em">1. CIA lost nine cores of plutonium in the Himalayas trying to construct a listening post in the 60s - u/LordTin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. theres an encrypted art sculpture at the CIA Headquarters titled KRYPTOS. Its complete message has remained unsolved for over 30 years. - u/majorhigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. the CIA sent its manual titled Psychological Operations in Guerrilla War to Nicaraguan rebels by balloon in March of 1984 during the Nicaraguan Revolution. - u/AutomaticWish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. the famous Saigon evacuation helicopter photo at the end of the Vietnam War was not from the US embassy, but from the roof of an apartment building that housed senior CIA personnel. - u/l11ll11ll1111\</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Pond was a small US government intelligence organization that operated from 1942 and 1955. It worked in 32 countries, and after WWII was set up as a corporation contracted to the State Department, later merged with the CIA. The US government formally acknowledged it in 2001. - u/saddetective87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. CIA satellites in the 1960s would jettison heat-shielded film canisters with parachutes back to earth, to be retrieved in mid-air by plane - u/shoreyourtyler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Operation Gold, where the CIA/MI6 tunneled under Berlin to intercept Soviet communications. Problem was the KGB had a double agent and knew about the plan from the beginning. When it was safe to discover the tunnel the Soviets did so, causing much to the embarrassment of the West. - u/Status-Victory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. in 1944 the Office of Strategic Services (OSS; now the CIA) created top-secret manual titled Simple Sabotage Field Manual to assist training citizen-saboteurs in occupied countries like Norway and France. - u/batkc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. the CIA hired a magician named John Mulholland in the 1950s to write a magic book for spies. The manual explained how spies could use skills like sleight of hand to poison an enemys drink, or to steal documents. Mulholland was also employed by the CIA to explore paranormal activities. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. the night before Iraq invaded Kuwait there was a soar in pizza orders made by the CIA - u/Multipace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. part of the CIAs Memorial Wall is the Book of Honor which identifies agents who have died in the field. However, as of 2021, 37 of the 137 entries in the book have no names as the identities remain classified even decades later. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. a KGB agent and a CIA agent became friends while trying to recruit each other; they knew the other was a spy and just didn’t talk about it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. in May 25, 2003, two men boarded an empty Boeing 727 at an airport in Angola and flew off into the sunset. The FBI and CIA conducted a massive search, but neither the men nor the plane was ever seen or heard from again. it is one of the largest aircraft ever to disappear. - u/peta-chad88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. one of the prime movers behind the 1954 coup in Guatemala was the United Fruit Company. Although the operation was carried out by the CIA the UFC was deeply involved in advocating for the coup since its operations were threatened by Guatemalan land reforms. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. the CIA paid Vietnam War spies by ordering them items from the Sears catalog because the spies operated in areas that had a barter economy and didnt rely on cash - u/CircusSeal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. One of the most high profile double agents during the Cold War was Kim Philby, who was at one point the liaison between the CIA and MI6. In 1955 foreign secretary Harold Macmillan told the Commons he was likely not a spy, which was disproved after Philby defected to the USSR in 1963. - u/UndyingCorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The A-12 and SR-71 were made mostly of titanium, which had to be sourced from the Worlds largest Titanium supplier, the Soviet Union. So, the planes we sent over to spy on them, were made of materials obtained from they through the CIA and a network of shell companies. - u/hoosyourdaddyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. the CIA disguised seismometers as tiger poop to track Vietnamese troop movements during the Vietnam War. - u/I_Bang_Grannies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Project Azorian. In 1974 the CIA built a gigantic claw and lowered it three miles to the bottom of the Pacific Ocean to snag the entire wreck of a sunken Soviet submarine. And they partially succeeded. - u/captureorbit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. the CIA recruited one of Fidel Castros mistresses to kill him in 1960, giving her poison pills, but he found out. Handing her his gun, he dared her to shoot, but her nerves failed and they had sex instead. - u/Ganesha811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200719.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125309/87201193/hB0C7ED98.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125302/87201192/h332E578F.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125620/87201206/h7392E435.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125602/87201202/hBB726DEB.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201203/h9AE80C1B.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125550/87201201/h47BF5AC5.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125539/87201200/hBB0E45F8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">25 Dank Memes That Shattered the Dankness Scouter</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200870.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200860.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200861.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200863.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200876.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200859.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">20 Amazing Facts You Definitely Didn’t Know</a><br>
-
-<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky19" id="linky18">41 Terrible House Guests People Won't Invite Over Again</a><br>
+## <a href="#linky8" id="linky7">41 Terrible House Guests People Won't Invite Over Again</a><br>
 
 <span style="font-size:4em">1. They broke our one TV and didnt pay for a replacement. My family has always been dirt poor and my mom busted her butt to buy that stupid TV, too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195576.jpg" style="width:100%"><br>
 
@@ -888,6 +376,454 @@ My mum didnt say much and shy as I was I didnt say anything either. Over a decad
 Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom. (My son wasnt home, thank goodness. ) Had a different drunk friend pee all over my bathroom floor- which I discovered by walking into the bathroom the next morning- while wearing socks. I need to stop letting drunk people stay over...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195607.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">17. Puked in our washing machine and didn’t tell anyone. Found it a couple days later when we went to do laundry...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195606.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">38 Fascinating Things You Don't See Everyday</a><br>
+
+<span style="font-size:4em">1. “I came home to this last night. I married the right woman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The gap between my window and shades made the perfect glowing little number 1.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “In Portugal we have cellphone towers disguised as trees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “This donut box looks like a giant VHS tape.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Swedish mannequins have different shaped models.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My friend cut into his cake and said, ’Oh my gosh, this cake is a meme.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “An absolute unit of a carrot — large man forearm for scale”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “This is my foot. I’ve been wanting to see an X-ray for 22 years. Thought you guys might want to see it too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My niece thought my mom needed this sticker while she was sleeping.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “She met a dog for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A 14-foot-tall mannequin from the Moschino store in SoHo, NYC”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I wonder how far this onion could go.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Turns out my girlfriend’s dog is in love with me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I present to you: a gigantic opalized ammonite fossil.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My cousin (left) and our nana on her wedding day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I couldn’t imagine anyone loving popcorn so much.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My 90-year-old grandma just graduated!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Ever wonder how deaf people wake up in the morning? This is my vibrating alarm clock — I’m deaf and a heavy sleeper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “The deer on my moms property had an albino baby!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “A school (?) of jellyfish congregated under this boat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “I have been reusing the same scallion scraps for two months by growing them in water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The controls for the 1912 streetcar I drive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Visual contact that only the bravest can endure”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “I cracked three double-yolk eggs in a row.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “This little guy grabbed an equally little watermelon from my garden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “My brother’s epic mullet, circa 1994”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “I crocheted my dress, and a good friend crocheted my bouquet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Subway Served Me A Knife With My Sandwich.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “My shower has a pressure handle and temperature handle. I always have perfect temperature showers now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “A flower has grown between these tiles.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “This fake driver’s license for a literal bird came with my wallet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “Holding the first girl born into the family in 31 years”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “I found a phone that is shaped like a ketchup bottle at a thrift store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “Got some free socks with my pint.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “I sliced this bagel very evenly”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “Hotel stores their automated lawnmower in a dog house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “Finding out that my cat potty trained himself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “Found a caterpillar with penguins on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201051.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">20 Secrets The CIA Couldn't Keep Hidden</a><br>
+
+<span style="font-size:4em">1. CIA lost nine cores of plutonium in the Himalayas trying to construct a listening post in the 60s - u/LordTin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. theres an encrypted art sculpture at the CIA Headquarters titled KRYPTOS. Its complete message has remained unsolved for over 30 years. - u/majorhigh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. the CIA sent its manual titled Psychological Operations in Guerrilla War to Nicaraguan rebels by balloon in March of 1984 during the Nicaraguan Revolution. - u/AutomaticWish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. the famous Saigon evacuation helicopter photo at the end of the Vietnam War was not from the US embassy, but from the roof of an apartment building that housed senior CIA personnel. - u/l11ll11ll1111\</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Pond was a small US government intelligence organization that operated from 1942 and 1955. It worked in 32 countries, and after WWII was set up as a corporation contracted to the State Department, later merged with the CIA. The US government formally acknowledged it in 2001. - u/saddetective87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. CIA satellites in the 1960s would jettison heat-shielded film canisters with parachutes back to earth, to be retrieved in mid-air by plane - u/shoreyourtyler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Operation Gold, where the CIA/MI6 tunneled under Berlin to intercept Soviet communications. Problem was the KGB had a double agent and knew about the plan from the beginning. When it was safe to discover the tunnel the Soviets did so, causing much to the embarrassment of the West. - u/Status-Victory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. in 1944 the Office of Strategic Services (OSS; now the CIA) created top-secret manual titled Simple Sabotage Field Manual to assist training citizen-saboteurs in occupied countries like Norway and France. - u/batkc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. the CIA hired a magician named John Mulholland in the 1950s to write a magic book for spies. The manual explained how spies could use skills like sleight of hand to poison an enemys drink, or to steal documents. Mulholland was also employed by the CIA to explore paranormal activities. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. the night before Iraq invaded Kuwait there was a soar in pizza orders made by the CIA - u/Multipace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. part of the CIAs Memorial Wall is the Book of Honor which identifies agents who have died in the field. However, as of 2021, 37 of the 137 entries in the book have no names as the identities remain classified even decades later. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. a KGB agent and a CIA agent became friends while trying to recruit each other; they knew the other was a spy and just didn’t talk about it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. in May 25, 2003, two men boarded an empty Boeing 727 at an airport in Angola and flew off into the sunset. The FBI and CIA conducted a massive search, but neither the men nor the plane was ever seen or heard from again. it is one of the largest aircraft ever to disappear. - u/peta-chad88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. one of the prime movers behind the 1954 coup in Guatemala was the United Fruit Company. Although the operation was carried out by the CIA the UFC was deeply involved in advocating for the coup since its operations were threatened by Guatemalan land reforms. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. the CIA paid Vietnam War spies by ordering them items from the Sears catalog because the spies operated in areas that had a barter economy and didnt rely on cash - u/CircusSeal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. One of the most high profile double agents during the Cold War was Kim Philby, who was at one point the liaison between the CIA and MI6. In 1955 foreign secretary Harold Macmillan told the Commons he was likely not a spy, which was disproved after Philby defected to the USSR in 1963. - u/UndyingCorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The A-12 and SR-71 were made mostly of titanium, which had to be sourced from the Worlds largest Titanium supplier, the Soviet Union. So, the planes we sent over to spy on them, were made of materials obtained from they through the CIA and a network of shell companies. - u/hoosyourdaddyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. the CIA disguised seismometers as tiger poop to track Vietnamese troop movements during the Vietnam War. - u/I_Bang_Grannies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Project Azorian. In 1974 the CIA built a gigantic claw and lowered it three miles to the bottom of the Pacific Ocean to snag the entire wreck of a sunken Soviet submarine. And they partially succeeded. - u/captureorbit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. the CIA recruited one of Fidel Castros mistresses to kill him in 1960, giving her poison pills, but he found out. Handing her his gun, he dared her to shoot, but her nerves failed and they had sex instead. - u/Ganesha811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200719.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">25 Dank Memes That Shattered the Dankness Scouter</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200870.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200860.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200861.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200863.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200876.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200859.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">20 Marilyn Monroe Facts That We Never Knew</a><br>
+
+<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">36 Pics and Memes Perfect for Slacking Off With</a><br>
+
+<span style="font-size:4em">1. Darth Vader Cat finds your lack of treats disturbing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Its all well and good until either you cant get the dashboard back together or short out something in the electrical system in the process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200154.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200158.gif" style="width:100%"><br>
+
+<span style="font-size:4em">15. Yeth, can I help you?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I guess that is what happens when you didnt grow up with the crappy predecessors of modern technology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200143.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200168.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200171.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A device created by someone who could see the future and knew we would need it for all the crap on the internet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200172.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200179.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Well, thats quite terrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87200182.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125309/87201193/hB0C7ED98.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125302/87201192/h332E578F.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125620/87201206/h7392E435.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125602/87201202/hBB726DEB.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201203/h9AE80C1B.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125550/87201201/h47BF5AC5.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125539/87201200/hBB0E45F8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">20 Amazing Facts You Definitely Didn’t Know</a><br>
+
+<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">Charts and Maps to Fill Your Brain with Knowledge</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198633.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122344/87201183/h67453E09.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122333/87201181/h3C6DFB9A.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122336/87201182/hECD6397B.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122325/87201180/hDD18E45D.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123034/87201187/french-rude1.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123023/87201186/french-rude3.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123012/87201185/french-rude2.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123001/87201184/french-rude4.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
