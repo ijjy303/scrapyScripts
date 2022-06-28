@@ -1,133 +1,187 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/27/2022-19:47:18
+Last updated: 06/27/2022-20:47:18
 <br>
-## <a href="#linky2" id="linky1">25 Dank Memes That Shattered the Dankness Scouter</a><br>
+## <a href="#linky2" id="linky1">52 Choice Randoms For Your Weekend Enjoyment</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200878.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200873.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200870.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200879.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200880.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200860.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200866.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200861.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200862.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200863.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200864.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200867.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200868.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200869.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200872.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200874.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200876.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200865.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200857.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200877.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200875.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200859.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024530/87199475/87199105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024542/87199476/87199108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024553/87199477/87199111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024600/87199478/87199110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024604/87199479/87199112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024612/87199480/87199116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024615/87199481/87199117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024626/87199482/87199118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024637/87199483/87199123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024649/87199484/87199125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024700/87199485/87199126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024711/87199486/87199143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024721/87199487/87199130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024723/87199488/87199144.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">38 Things You Might Find Interesting</a><br>
+## <a href="#linky3" id="linky2">Charts and Maps to Fill Your Brain with Knowledge</a><br>
 
-<span style="font-size:4em">1. Ball of salt that I took out of the dead sea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199213.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198611.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The inside of this marble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199170.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198612.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A basketball sprayed with vantablack paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199171.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198613.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The top of this 1954 camper is a boat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199172.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Feathers of the spot-bellied eagle-owl appear as tiny black hearts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199173.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. These stairs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199174.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Scrap metal Hulk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199175.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This tree is 380ft tall. I’m guessing it’s the tallest tree ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199176.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Um, that’s a sand sculpture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199177.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Someone made a bathroom floor from 6,500 pennies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199178.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Somebody managed to shoot an arrow through the power line.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199179.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A limestone cave slowly absorbing a human skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199180.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Chinese explorer Zheng He’s ship compared to Christopher Columbus’s Santa Maria. Both lived and sailed at the same time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199181.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. This can happen when you blink faster than the shutter on your camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199182.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. That’s an ostrich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199183.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. 1,400-year-old gingko tree shedding its leaves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199184.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The 4-pack of sand timers I ordered are all 2-minutes but have different amounts of sand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199185.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Someone made some art out of the dirt & dust on the back of this car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199187.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Water chestnuts look pure evil before they get processed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199188.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. That’s a floor… but is it though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199189.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Someone made a limo out of 3 DeLoreans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199190.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Want to get rid of wrinkles fast? Just get bitten by a rattlesnake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199191.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. This burn on my finger doesn’t get dirty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199196.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198632.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. The Service dog bathroom at the Kelowna, British Columbia, Canada airport</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I found a pink grasshopper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A real and very rare $500 bill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. This is what a giraffe’s leg looks like</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. One of my twix was not dipped in chocolate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The chair that Abraham Lincoln was sitting in when he was killed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Our teacher had us do word searches in ASL to practice finger spelling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Came across a typewriter for writing music</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. my oven shows the time that you started cooking incase you didn’t set a timer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. What blood looks like with the red blood cells removed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. Extra long scissors for wrapping paper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Parking space lines you can actually see while parking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. My sister replaced her office chair wheels with rollerblade wheels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. These sausages from Costco Japan come with bones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. These batteries are flavored so kids won’t eat them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199212.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198633.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -227,55 +281,47 @@ Last updated: 06/27/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Charts and Maps to Fill Your Brain with Knowledge</a><br>
+## <a href="#linky5" id="linky4">20 Marilyn Monroe Facts That We Never Knew</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198611.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198612.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198613.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198614.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198615.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198616.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198634.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198617.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198619.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198620.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198621.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198622.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198618.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198623.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198624.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198625.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198626.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198627.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198628.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87198633.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -599,71 +645,7 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">30 Fake Tough Guys Embarrassing Themselves</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112344/87199216/tootough2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112410/87199221/tootough6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112601/87199240/tootough27.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112418/87199222/tootough7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112455/87199229/tootough14.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112430/87199224/tootough9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112614/87199243/tootough30.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112440/87199226/tootough11.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112444/87199227/tootough12.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112451/87199228/tootough13.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112503/87199230/tootough15.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112514/87199232/tootough17.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112517/87199233/tootough18.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112506/87199231/tootough16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112525/87199234/tootough19.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112407/87199220/tootough5.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112528/87199235/tootough20.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112537/87199236/tootough21.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112540/87199237/tootough23.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112549/87199238/tootough24.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112552/87199239/tootough25.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112603/87199241/tootough28.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112612/87199242/tootough29.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112356/87199218/tootough3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112359/87199219/tootough4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112432/87199225/tootough10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112623/87199244/tootough31.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112421/87199223/tootough8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112625/87199245/tootough32.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112635/87199246/tootough33.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
+## <a href="#linky11" id="linky10">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122344/87201183/h67453E09.png" style="width:100%"><br>
 
@@ -683,7 +665,7 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">38 Fascinating Things You Don't See Everyday</a><br>
+## <a href="#linky12" id="linky11">38 Fascinating Things You Don't See Everyday</a><br>
 
 <span style="font-size:4em">1. “I came home to this last night. I married the right woman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201015.jpg" style="width:100%"><br>
 
@@ -763,7 +745,7 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">20 Secrets The CIA Couldn't Keep Hidden</a><br>
+## <a href="#linky13" id="linky12">20 Secrets The CIA Couldn't Keep Hidden</a><br>
 
 <span style="font-size:4em">1. CIA lost nine cores of plutonium in the Himalayas trying to construct a listening post in the 60s - u/LordTin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200720.jpg" style="width:100%"><br>
 
@@ -807,139 +789,7 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">52 Choice Randoms For Your Weekend Enjoyment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87198789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024530/87199475/87199105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024542/87199476/87199108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024553/87199477/87199111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024600/87199478/87199110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024604/87199479/87199112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024612/87199480/87199116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024615/87199481/87199117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024626/87199482/87199118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024637/87199483/87199123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024649/87199484/87199125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024700/87199485/87199126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024711/87199486/87199143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024721/87199487/87199130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/024723/87199488/87199144.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">23 People Who Didn't Do Their Only Job</a><br>
+## <a href="#linky14" id="linky13">23 People Who Didn't Do Their Only Job</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/030832/87199516/onejob2.png" style="width:100%"><br>
 
@@ -989,7 +839,201 @@ Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">Fed-Up Pilot Humiliates Selfish Plane Karen </a><br>
+## <a href="#linky15" id="linky14">25 Dank Memes That Shattered the Dankness Scouter</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200870.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200860.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200861.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200863.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200876.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200859.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">30 Fake Tough Guys Embarrassing Themselves</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112344/87199216/tootough2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112410/87199221/tootough6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112601/87199240/tootough27.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112418/87199222/tootough7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112455/87199229/tootough14.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112430/87199224/tootough9.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112614/87199243/tootough30.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112440/87199226/tootough11.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112444/87199227/tootough12.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112451/87199228/tootough13.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112503/87199230/tootough15.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112514/87199232/tootough17.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112517/87199233/tootough18.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112506/87199231/tootough16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112525/87199234/tootough19.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112407/87199220/tootough5.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112528/87199235/tootough20.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112537/87199236/tootough21.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112540/87199237/tootough23.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112549/87199238/tootough24.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112552/87199239/tootough25.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112603/87199241/tootough28.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112612/87199242/tootough29.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112356/87199218/tootough3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112359/87199219/tootough4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112432/87199225/tootough10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112623/87199244/tootough31.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112421/87199223/tootough8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112625/87199245/tootough32.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/24/112635/87199246/tootough33.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">38 Things You Might Find Interesting</a><br>
+
+<span style="font-size:4em">1. Ball of salt that I took out of the dead sea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The inside of this marble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A basketball sprayed with vantablack paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The top of this 1954 camper is a boat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Feathers of the spot-bellied eagle-owl appear as tiny black hearts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. These stairs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Scrap metal Hulk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This tree is 380ft tall. I’m guessing it’s the tallest tree ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Um, that’s a sand sculpture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Someone made a bathroom floor from 6,500 pennies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Somebody managed to shoot an arrow through the power line.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A limestone cave slowly absorbing a human skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Chinese explorer Zheng He’s ship compared to Christopher Columbus’s Santa Maria. Both lived and sailed at the same time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. This can happen when you blink faster than the shutter on your camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. That’s an ostrich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. 1,400-year-old gingko tree shedding its leaves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The 4-pack of sand timers I ordered are all 2-minutes but have different amounts of sand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Someone made some art out of the dirt & dust on the back of this car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Water chestnuts look pure evil before they get processed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. That’s a floor… but is it though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Someone made a limo out of 3 DeLoreans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Want to get rid of wrinkles fast? Just get bitten by a rattlesnake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. This burn on my finger doesn’t get dirty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The Service dog bathroom at the Kelowna, British Columbia, Canada airport</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I found a pink grasshopper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A real and very rare $500 bill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. This is what a giraffe’s leg looks like</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. One of my twix was not dipped in chocolate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The chair that Abraham Lincoln was sitting in when he was killed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Our teacher had us do word searches in ASL to practice finger spelling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Came across a typewriter for writing music</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. my oven shows the time that you started cooking incase you didn’t set a timer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. What blood looks like with the red blood cells removed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. Extra long scissors for wrapping paper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Parking space lines you can actually see while parking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. My sister replaced her office chair wheels with rollerblade wheels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. These sausages from Costco Japan come with bones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. These batteries are flavored so kids won’t eat them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87199212.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">Fed-Up Pilot Humiliates Selfish Plane Karen </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200026.png" style="width:100%"><br>
 
