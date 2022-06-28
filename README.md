@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/28/2022-10:47:18
+Last updated: 06/28/2022-11:47:18
 <br>
 ## <a href="#linky2" id="linky1">20 Images That Are Unexplainably Cursed</a><br>
 
@@ -121,29 +121,7 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Fed-Up Pilot Humiliates Selfish Plane Karen </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200026.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200034.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200033.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200032.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200031.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200030.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200029.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200028.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87200027.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">20 Neanderthal Facts to Change Your Mind About Our Ancestors</a><br>
+## <a href="#linky4" id="linky3">20 Neanderthal Facts to Change Your Mind About Our Ancestors</a><br>
 
 <span style="font-size:4em">1. Neanderthals sailed the Mediterranean. Stone tools, of the kind made by Neanderthals, were found in areas that were known to be distant islands at the time. - u/Bronesey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200770.jpg" style="width:100%"><br>
 
@@ -187,27 +165,29 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
+## <a href="#linky5" id="linky4">Boss Refuses to Accept Employee's Resignation, Tells Him He "Can't Leave" </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122344/87201183/h67453E09.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114626/87201172/boss-didnt-accept-my-resignation-i-did.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122333/87201181/h3C6DFB9A.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114603/87201170/boss-didnt-accept-my-resignation-i-did-1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122336/87201182/hECD6397B.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114614/87201171/boss-didnt-accept-my-resignation-i-did-2.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122325/87201180/hDD18E45D.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114552/87201169/boss-didnt-accept-my-resignation-i-did-3.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123034/87201187/french-rude1.png" style="width:100%"><br>
+<span style="font-size:4em">5. This is the best course of action. Pick up that phone and tell him your day rate. What the worst that could happen? You get to hang up on him? Oh the joy! </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115127/87201174/boss-didnt-accept-my-resignation-i-did-7.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123023/87201186/french-rude3.png" style="width:100%"><br>
+<span style="font-size:4em">6. Nothing but empty threats. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115138/87201175/boss-didnt-accept-my-resignation-i-did-6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123012/87201185/french-rude2.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115150/87201176/boss-didnt-accept-my-resignation-i-did-4.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123001/87201184/french-rude4.png" style="width:100%"><br>
+<span style="font-size:4em">8. Yeah, people often misconstrue, good relationships with manipulative relationships. Oh your boss makes you feel good? Are you sure that isnt in their best interests?  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115116/87201173/boss-didnt-accept-my-resignation-i-did-8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115158/87201177/boss-didnt-accept-my-resignation-i-did-5.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">38 Fascinating Things You Don't See Everyday</a><br>
+## <a href="#linky6" id="linky5">38 Fascinating Things You Don't See Everyday</a><br>
 
 <span style="font-size:4em">1. “I came home to this last night. I married the right woman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201015.jpg" style="width:100%"><br>
 
@@ -287,7 +267,7 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">20 Secrets The CIA Couldn't Keep Hidden</a><br>
+## <a href="#linky7" id="linky6">20 Secrets The CIA Couldn't Keep Hidden</a><br>
 
 <span style="font-size:4em">1. CIA lost nine cores of plutonium in the Himalayas trying to construct a listening post in the 60s - u/LordTin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200720.jpg" style="width:100%"><br>
 
@@ -331,7 +311,7 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Dank Memes That Shattered the Dankness Scouter</a><br>
+## <a href="#linky8" id="linky7">25 Dank Memes That Shattered the Dankness Scouter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
 
@@ -381,7 +361,7 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">20 Marilyn Monroe Facts That We Never Knew</a><br>
+## <a href="#linky9" id="linky8">20 Marilyn Monroe Facts That We Never Knew</a><br>
 
 <span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
 
@@ -425,7 +405,7 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
+## <a href="#linky10" id="linky9">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
 
@@ -439,29 +419,323 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Boss Refuses to Accept Employee's Resignation, Tells Him He "Can't Leave" </a><br>
+## <a href="#linky11" id="linky10">25 Shocking Facts About Uber</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114626/87201172/boss-didnt-accept-my-resignation-i-did.png" style="width:100%"><br>
+<span style="font-size:4em">1. Samantha Josephson mistakenly entered a wrong vehicle after ordering an Uber and was stabbed over 100 times in the backseat. She couldnt escape the vehicle because her assailant engaged the child lock mechanism for her doors. This incident sparked new laws and procedures to protect passengers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199569.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114603/87201170/boss-didnt-accept-my-resignation-i-did-1.png" style="width:100%"><br>
+<span style="font-size:4em">2. Lance Armstrong was ordered to pay over $20 million after his cycling doping scandal. However, his fortunes were partially saved by being one of Ubers first investors in 2009.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199570.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114614/87201171/boss-didnt-accept-my-resignation-i-did-2.png" style="width:100%"><br>
+<span style="font-size:4em">3. In 2014, black taxi cab drivers brought parts of London to a standstill, protesting against Uber. This led to an 850% increase in downloads of Uber.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199571.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/114552/87201169/boss-didnt-accept-my-resignation-i-did-3.png" style="width:100%"><br>
+<span style="font-size:4em">4. Comedian/Actor Joel McHale took an Uber from Rochester, NY to Manhattan. His flight out was canceled and needed to get to his appearance on Jimmy Fallon, so he spent $700 on a (350 mile, 5-6 hour) Uber ride and paid $200 in tips, as well as paid the driver additional money for his gas back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199568.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This is the best course of action. Pick up that phone and tell him your day rate. What the worst that could happen? You get to hang up on him? Oh the joy! </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115127/87201174/boss-didnt-accept-my-resignation-i-did-7.png" style="width:100%"><br>
+<span style="font-size:4em">5. Elwood Edwards, The voice of AOL’s ‘You’ve Got Mail’ was paid $200 for recording the ubiquitous phrase in 1989. He got the job because his wife worked at an AOL predecessor. He is now an Uber Driver in Ohio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199572.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Nothing but empty threats. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115138/87201175/boss-didnt-accept-my-resignation-i-did-6.png" style="width:100%"><br>
+<span style="font-size:4em">6. Since Uber was introduced in New York City in 2011, drinking-related car wrecks decreased by 25–35 percent in all boroughs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199573.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115150/87201176/boss-didnt-accept-my-resignation-i-did-4.png" style="width:100%"><br>
+<span style="font-size:4em">7. Benedict Cumberbatch, Doctor Strange in the MCU, saved a cyclist from an attempted robbery by fighting off a gang of muggers in London. He was in an Uber when he saw 4 muggers jumping a delivery cyclist. He got out, screamed at the attackers and then dragged them off of the victim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199574.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Yeah, people often misconstrue, good relationships with manipulative relationships. Oh your boss makes you feel good? Are you sure that isnt in their best interests?  </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115116/87201173/boss-didnt-accept-my-resignation-i-did-8.png" style="width:100%"><br>
+<span style="font-size:4em">8. Uber drivers in China changed their profile photos to ghosts and zombie images so that when potential passengers saw these pictures they would cancel the ride they’d just booked, thus earning the driver the cancellation fee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199575.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/115158/87201177/boss-didnt-accept-my-resignation-i-did-5.png" style="width:100%"><br>
+<span style="font-size:4em">9. An Uber Driver asked his Passenger to drive while on a 300-mile route so he could take a nap. He awoke to them being chased by the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199576.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. In Pakistan, when Uber joined the market, car dealership owners signed up their free cars to take advantage of payments given for loss of business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ubers operation SLOG tried to undermine Lyft, including trying to recruit Lyft drivers and calling, then canceling over 5000 rides on the Lyft app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In Ubers 2018 fatal self-driving car accident the system mis-identified the pedestrian and didnt act to avoid the accident. The cars emergency braking system could have acted at the last second, but that system had been disabled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Travis Kalanick, billionaire founder and CEO of Uber, was the #2 ranked Wii Tennis player in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 2019, UCLA students call about 11,000 Uber and Lyft rides that never leave the campus every week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. An Uber driver sued Snapchat, alleging that the teen who crashed into him at 107 mph was using Snapchats speed filter while driving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Angel investor Jason Calacanis turned a $25k initial investment in Uber into $100M.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hakan Şükür, former world class striker and top scorer of the Turkish national soccer team, works as an Uber driver in Washington D.C.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Uber drivers will occasionally notify the police when they drop off/observe lots of (US) teens with alcohol going into a party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The FAA has banned all uber airplane ridesharing type services.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Four years ago, Uber released documents revealing its self-driving cars drove 20,354 miles... but required human intervention at every mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199586.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Uber Technologies has filed a patent on how self-driving cars might communicate with pedestrians. The patent title is Light output system for a self-driving vehicle. The patent looks at how flashing lights and signs on the outside of self-driving cars might tell pedestrians what is happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. In 2013, Uber delivered kittens for a cuddle for a $20 donation on National Cat Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Tostitos made a promotional bag for the Superbowl that had sensors to detect alcohol on a persons breath. If alcohol was detected the bag gave a 10% discount for Uber, and also had a NFC tag to call the driver.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199589.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. The Billion Dollar Tweet: Travis was looking for a co-founder after coming up with the idea of Uber He tweeted that he wants a partner and Ryan replied within a minute. Both of these guys were billionaires just 16 months after this tweet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The app-based Taxi service Uber is legally banned in all of Germany.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199591.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 Amazing Facts You Definitely Didn’t Know</a><br>
+## <a href="#linky12" id="linky11">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125309/87201193/hB0C7ED98.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125302/87201192/h332E578F.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125620/87201206/h7392E435.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125602/87201202/hBB726DEB.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201203/h9AE80C1B.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125550/87201201/h47BF5AC5.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125539/87201200/hBB0E45F8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">French Postal Worker Who Refused to Help American Has Rude Awakening </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122344/87201183/h67453E09.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122333/87201181/h3C6DFB9A.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122336/87201182/hECD6397B.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/122325/87201180/hDD18E45D.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123034/87201187/french-rude1.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123023/87201186/french-rude3.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123012/87201185/french-rude2.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/123001/87201184/french-rude4.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">50 Choice Randoms For Your Weekly Enjoyment</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201575.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201619.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013555/87201381/male-karen-get-karma2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013549/87201380/male-karen-get-karma3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014048/87201386/male-karen-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014045/87201385/male-karen-comments2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014037/87201384/karen-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014034/87201383/karen-comments-2.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">38 Wholesome Pics & Memes to Make You Smile</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">20 Amazing Facts You Definitely Didn’t Know</a><br>
 
 <span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
 
@@ -505,47 +779,7 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125309/87201193/hB0C7ED98.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125302/87201192/h332E578F.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125620/87201206/h7392E435.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125602/87201202/hBB726DEB.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201203/h9AE80C1B.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125550/87201201/h47BF5AC5.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125539/87201200/hBB0E45F8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">Monday Morning Randomness User Edition - MohAki1</a><br>
+## <a href="#linky19" id="linky18">Monday Morning Randomness User Edition - MohAki1</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87199764.jpg" style="width:100%"><br>
 
@@ -641,178 +875,7 @@ Last updated: 06/28/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">30 Fascinating Photos Collected From History</a><br>
-
-<span style="font-size:4em">1. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
-She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">30 Wild and Crazy Things People Put In Their Wills</a><br>
-
-<span style="font-size:4em">1. My vindictive grandmother left my aunt $20 as a reminder of the $20 my aunt stole from her once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Not a Lawyer, but an aging woman my family knew left her house(large, and in a very affluent neighborhood) and estate to family friends for so long as her cats were alive and taken care of in said house. After they died, the house was to be sold and the remaining estate donated.
-
-The weird thing is, its been like 20 years and the cats are still alive.
-
-Also, theyve changed color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Not a lawyer but my mom put in her will that if she dies under suspicious circumstances that my sister and I won’t be left anything. She watches a lot of true crime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Saw this answer from a similar question some time ago. When a dad died he set up financial installments so long as his daughter remains under a certain weight. Dude was controlling her diet from the grave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I (early 20s) was forced to write a will due to the health insurance i get at work, and, amongst sensible stuff, the in-house lawyer said it was totally okay for this clause to be added:
-
-My funeral wishes are that i be buried in a coffin which has been springloaded, such that opening the coffin would cause alarm to future archeologists
-
-Then a bunch of stuff about if this is to costly id be cremated and have my ashes scattered in a specific place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Not a lawyer, but I work at a law firm. One client left $100,000.00 to his two cats so they could maintain their current lifestyle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. When my grandfather passed his will asked that I clean out his shed, and I alone.
-
-I found marijuana seeds, old reel style film pornography, which was hilarious and a bunch of other unsavory paraphernalia. 50s flick knives too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Just last week I handled a matter where the parents left millions in artwork to various people, wads of cash to various charities, and only left their kids the family cats. Turns out they did it because the kids got them the cats to comfort the parents in their old age and the parents f*****g hated the cats but the kids wouldn’t let them get rid of the cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I work in probate. The oddest thing I’ve seen in a will is to euthanize their beloved horse, have it cremated and it’s ashes scattered with the decedent. Lucky for her horse, she named a horse that was already dead so the one she got afterwards lived to see another farm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A furby collection from models collected in the late 90’s. They were convinced they would retain future value.
-
-This was 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Lots of people sending their friends and family on weird errands to spread their ashes (leaving money for people to take trips and spread their ashes around the world).
-
-Pet trusts are a fun one: leaving a whole whack of money in a trust to be used for the care of the pet during their life.
-
-However, my favourite ever (that I obviously didn’t draft) was a lawyer who left the bulk of his estate (millions in today’s dollars) to whatever Toronto-area woman had the most children at a specific date some years in the future. I recall the winner had 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My own grandmother specified which of the children and grandchildren should get which of the family recipes, and somehow felt the need to include commentary about why certain decisions were made. One recipe was this Prohibition era recipe for beer which I knew my uncle, also a home brewer, wanted, but she left it to me, with the comment that I know you wanted it, Teddy, but she has the second-best penmanship of the girls and will make you a copy.
-
-And then like eight pages later, in among the specific descriptions of her vast collection of romance novels (really,) was a line: And [specific Jude Devereaux title] to Spidey, who will please subtract about half the hops before she copies the beer recipe for her Uncle Teddy so that any of us can drink it. Our Jon had his IPA last summer and just about died.
-
-Uncle Jon just about burst into tears laughing and Uncle Teddy had long since left the room because he has no f***s whatsoever to give about romance novels. Uncle Jon, of course, was still in the room because there was also still Yuengling.
-
-And no, I have no idea how she got this will done. My guess is she wrote it herself and the law students who come to her independent-living building signed off on it. It was...elaborate, thats for sure. Total value of the estate was well under eight thousand dollars, so it was mostly a funny last letter from Grandma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. No, maam, in order to bequeath something, you actually have to own it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I am a qualified solicitor, my favourite two are:
-
-1. A lady wanted to create a trust fund of £100,000, for her pet fish. When I asked if it was a special kind of fish, she confirmed it was just a normal goldfish but she wanted it to be fed fresh avocado every day and be looked after by a local dog walker after she died. She was absolutely serious.
-
-2. Another lady confessed she had a secret daughter, and she wanted to leave the daughter some money and photographs without the rest of her family finding out. Even her husband does not know. That will be a fun conversation when she passes away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I had the first son so my dad decided to leave me more. Except he did the math wrong and it came out to 105%. He had dementia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My sister’s mother in-law is leaving her house to her three sons. If one wants to sell out his third of the house, he has to sell it to the other two brothers for $1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Might be late to the party and not a lawyer, but my great-grandad had a clause in his will that stated something along the lines of, “if any of the beneficiaries decide to dispute the contents of the decedent’s estate, their share becomes $1 and nothing else.”
-
-Seemed like a pretty good way to maintain harmony among his survivors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Had a very attractive woman with terminal cancer try to get herself stuffed by a taxidermist and given to some rich guy that had been basically a sugar daddy to her for a few months. She said He would give me a million dollar a week allowance as long as it was in an official will that he could see. I sent her to a lawyer who I knew that would do about anything for a buck because I didnt want to end up in the news when she died. That was 2 years ago, no clue what happened to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Lady wanted her small dog to be buried with her. If the dog happened to be alive when the lady passed, she wanted the dog put down and then join her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In my Mums will, which I have seen, she has left me the kitchen table and chairs.
-
-She lives on a South Manchester council estate.
-
-My brother gets the sideboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Client wanted her ashes spread at the restaurant (on the beach) where she met her husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. i got some rock my grandpa really liked</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My grandfather left me $1.00, he had dementia and confused my dad ripping him off with me. He left the rest of the family between $100,000 And a few million each.
-They all said they felt horrible because they knew the details, but not horrible enough to give up any of their share.
-The way I see it is it was never my money to begin with, so its not a loss. Im just glad my sister got a hundred thousand,she needed it more than any of the others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. When my great grandad died in his will he stated that his coin collection be split equally across his family. There was like 8-9 of us and 3 potato sacks full of coins. So we all gathered round a table and each took one coin each until nothing was left. Among the coins was an Iron Cross, which was quiet odd as the only person on that side of the family that went to war was his dad, and he served with the ANZAC’s in WW1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Here’s one from one of my dad’s law partners. He had a lady come in with an itemized list of books and wanted her will to contain all of the books and who will get what based on her choosing. So basically she decides who gets what specific book instead of letting her beneficiaries decide. The truly astonishing thing is how many books and how specific they get. According to dad’s law partner her list is at about 2,000 books to be divided among about 30 people. She is apparently very specific and comes back at least once a year to add all the new books she’s gotten.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Not a lawyer but my grandpa put in his will a chocolate bar for everyone one of his grand kids. Well I have like 12 cousins and very difficult to track down where a couple of them went. All this estates and money he had in will was at a stand still for months because they couldn’t find my couple cousins. Had to show court we put in effort to hire someone to track them down etc. The lawyer that was helping execute the Will was blown away that this lawyer allowed this and why he wouldn’t highly suggest not to do it. But I’m not complaining cause I got a Toblerone out of the deal!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I’m the executor of my grandmother’s will. I also get the house and everything in it and a share of life insurance that’s split three ways between myself, sister, and mom. My mom has always said that all my dad , my grandmothers son-in-law, would like to have is some table. Well in the will there’s like a whole paragraph that states how my dad gets nothing, he doesn’t lay a finger on any thing in the house or any money. How my dad is basically worthless and deserves nothing and how he was a c**p dad and that she begrudgingly has my mom in the will. Thanks grandma I’ll appreciate the awkwardness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. My father is heavily involved in my great aunt and uncles lives since their health has begun to decline (both mid 90s with no children), and has seen their will.
-They have a small fortune (in excess of £1,000,000), and have left it all to a local dogs home.
-When he asked them about it, my great uncles response was nobody has helped me in life, so I wont be helping anybody either.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Not a lawyer but I worked with plenty of estates and trust accounts over the years. This particular scenario isnt so much about the will itself being strange, but the circumstances that led up to the trust account being opened:
-
-I used to work at a bank in the estates department. I was an administrator who had to manage the files including encroachments upon the capital (i.e. I want to take some money out now, please).
-
-I had this one account - multi-million dollar trust for one single beneficiary - the son of the deceased. Whats interesting is that the son killed the parents... with a hammer in grotesque and brutal fashion. He plead insanity.
-
-He would call once a year from the penitentiary / mental hospital, requesting $50 for commissary (to buy chips and gum). The call was always strange. He was very polite, very doped up. The quality of the call was always very tinny like he was far away from the phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I once wrote a will for a guy who thought he could get away from giving his ex-wife half his assets by putting them in a will for his kids. Doesn’t work like that, buddy boy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202034.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky19" id="linky18">41 Terrible House Guests People Won't Invite Over Again</a><br>
+## <a href="#linky20" id="linky19">41 Terrible House Guests People Won't Invite Over Again</a><br>
 
 <span style="font-size:4em">1. They broke our one TV and didnt pay for a replacement. My family has always been dirt poor and my mom busted her butt to buy that stupid TV, too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195576.jpg" style="width:100%"><br>
 
@@ -933,128 +996,6 @@ My mum didnt say much and shy as I was I didnt say anything either. Over a decad
 Had a drunk friend puke on my sons bedroom floor, he thought it was the bathroom. (My son wasnt home, thank goodness. ) Had a different drunk friend pee all over my bathroom floor- which I discovered by walking into the bathroom the next morning- while wearing socks. I need to stop letting drunk people stay over...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195607.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">17. Puked in our washing machine and didn’t tell anyone. Found it a couple days later when we went to do laundry...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195606.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky20" id="linky19">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013555/87201381/male-karen-get-karma2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013549/87201380/male-karen-get-karma3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014048/87201386/male-karen-comments1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014045/87201385/male-karen-comments2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014037/87201384/karen-comments1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014034/87201383/karen-comments-2.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky21" id="linky20">23 Things That Deserve All the Hate They Get</a><br>
-
-<span style="font-size:4em">1. Scientology. Its one of the most complex brainwashing schemes in the world. People who search for a meaning of life end up in these groups, and any of us can fall for them. Then there is no way out, or at least without huge consequences.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111036/87202080/deservinghate1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Phone scammers, and those who scam old people. Just disgusting.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111040/87202081/deservinghate3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Mosquitoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111046/87202082/deservinghate2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Publishers that put microtransactions for non-cosmetic items in their games.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111052/87202083/deservinghate4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Child beauty pageants.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111058/87202084/deservinghate5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. MLM’s.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111103/87202085/deservinghate6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Five Minute Crafts. Personally I think that theyre deliberately making their hacks as outrageous as possible to get free promotion in the form of hate watchers and reaction channels.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111110/87202086/deservinghate7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ticks. Theyre completely useless and just bring sickness.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111114/87202087/deservinghate8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Paparazzi.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111121/87202088/deservinghate9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. People that go around being jerks under the excuse of trolling. There’s a correct way to do it, but people mess it up so often.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111125/87202089/deservinghate10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Stepping on a lego.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111133/87202090/deservinghate11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. People who chew with their dang mouth open.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111136/87202091/deservinghate12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Animal abuse.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111144/87202092/deservinghate13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Big pharma.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111148/87202093/deservinghate14.jpg.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Nestle doesnt get enough hate, but they are incredibly huge once you start trying to avoid their products.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111156/87202094/deservinghate15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Scalpers. Absolute parasites who are the reason you need to either get tickets to a concert right away or it’s too late.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111200/87202095/deservinghate16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. People who walk slowly and take up the middle of the sidewalk.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111207/87202096/deservinghate17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bed bugs. They don’t even really serve any purpose in the food chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111211/87202097/deservinghate18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Game of Thrones” season 7.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111219/87202098/deservinghate19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Shrinkflation. (The sneaky method of reducing product sizes instead of raising prices in order to increase profit.) Way worse than straight-up price rises in my opinion. At least price rises are clear.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111222/87202099/deservinghate20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Youtubes unskippable ads. Every time they interrupt a video, I wish that the owner of youtube could get cold coffee, and slapped in the face with a tuna. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111230/87202100/deservinghate21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. People who are jerks in multiplayer games just to be jerks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111232/87202101/deservinghate22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Social Media Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111242/87202102/deservinghate23.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky22" id="linky21">25 Shocking Facts About Uber</a><br>
-
-<span style="font-size:4em">1. Samantha Josephson mistakenly entered a wrong vehicle after ordering an Uber and was stabbed over 100 times in the backseat. She couldnt escape the vehicle because her assailant engaged the child lock mechanism for her doors. This incident sparked new laws and procedures to protect passengers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Lance Armstrong was ordered to pay over $20 million after his cycling doping scandal. However, his fortunes were partially saved by being one of Ubers first investors in 2009.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199570.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. In 2014, black taxi cab drivers brought parts of London to a standstill, protesting against Uber. This led to an 850% increase in downloads of Uber.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Comedian/Actor Joel McHale took an Uber from Rochester, NY to Manhattan. His flight out was canceled and needed to get to his appearance on Jimmy Fallon, so he spent $700 on a (350 mile, 5-6 hour) Uber ride and paid $200 in tips, as well as paid the driver additional money for his gas back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Elwood Edwards, The voice of AOL’s ‘You’ve Got Mail’ was paid $200 for recording the ubiquitous phrase in 1989. He got the job because his wife worked at an AOL predecessor. He is now an Uber Driver in Ohio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Since Uber was introduced in New York City in 2011, drinking-related car wrecks decreased by 25–35 percent in all boroughs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Benedict Cumberbatch, Doctor Strange in the MCU, saved a cyclist from an attempted robbery by fighting off a gang of muggers in London. He was in an Uber when he saw 4 muggers jumping a delivery cyclist. He got out, screamed at the attackers and then dragged them off of the victim.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Uber drivers in China changed their profile photos to ghosts and zombie images so that when potential passengers saw these pictures they would cancel the ride they’d just booked, thus earning the driver the cancellation fee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An Uber Driver asked his Passenger to drive while on a 300-mile route so he could take a nap. He awoke to them being chased by the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199576.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. In Pakistan, when Uber joined the market, car dealership owners signed up their free cars to take advantage of payments given for loss of business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ubers operation SLOG tried to undermine Lyft, including trying to recruit Lyft drivers and calling, then canceling over 5000 rides on the Lyft app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In Ubers 2018 fatal self-driving car accident the system mis-identified the pedestrian and didnt act to avoid the accident. The cars emergency braking system could have acted at the last second, but that system had been disabled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Travis Kalanick, billionaire founder and CEO of Uber, was the #2 ranked Wii Tennis player in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 2019, UCLA students call about 11,000 Uber and Lyft rides that never leave the campus every week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. An Uber driver sued Snapchat, alleging that the teen who crashed into him at 107 mph was using Snapchats speed filter while driving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Angel investor Jason Calacanis turned a $25k initial investment in Uber into $100M.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hakan Şükür, former world class striker and top scorer of the Turkish national soccer team, works as an Uber driver in Washington D.C.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Uber drivers will occasionally notify the police when they drop off/observe lots of (US) teens with alcohol going into a party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The FAA has banned all uber airplane ridesharing type services.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Four years ago, Uber released documents revealing its self-driving cars drove 20,354 miles... but required human intervention at every mile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199586.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Uber Technologies has filed a patent on how self-driving cars might communicate with pedestrians. The patent title is Light output system for a self-driving vehicle. The patent looks at how flashing lights and signs on the outside of self-driving cars might tell pedestrians what is happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. In 2013, Uber delivered kittens for a cuddle for a $20 donation on National Cat Day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Tostitos made a promotional bag for the Superbowl that had sensors to detect alcohol on a persons breath. If alcohol was detected the bag gave a 10% discount for Uber, and also had a NFC tag to call the driver.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199589.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. The Billion Dollar Tweet: Travis was looking for a co-founder after coming up with the idea of Uber He tweeted that he wants a partner and Ryan replied within a minute. Both of these guys were billionaires just 16 months after this tweet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The app-based Taxi service Uber is legally banned in all of Germany.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87199591.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
