@@ -1,49 +1,138 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/29/2022-17:47:18
+Last updated: 06/29/2022-18:47:18
 <br>
-## <a href="#linky2" id="linky1">22 Dank Memes That Are a Little Fed Up</a><br>
+## <a href="#linky2" id="linky1">Redneck Moments Proving You’re Country AF</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202887.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202888.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202889.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203257.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202892.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202894.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203259.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202895.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202896.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203283.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202897.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203261.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202890.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202898.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202900.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203265.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202901.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203266.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202902.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203267.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202904.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202905.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202906.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202891.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203285.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202907.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202908.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203288.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">23 Awful Things That Warrant Hatred</a><br>
+## <a href="#linky3" id="linky2">30 Rare Photos from History to Change Your Perspective</a><br>
+
+<span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
+She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">23 Awful Things That Warrant Hatred</a><br>
 
 <span style="font-size:4em">1. Scientology. Its one of the most complex brainwashing schemes in the world. People who search for a meaning of life end up in these groups, and any of us can fall for them. Then there is no way out, or at least without huge consequences.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111036/87202080/deservinghate1.jpg" style="width:100%"><br>
 
@@ -90,86 +179,6 @@ Last updated: 06/29/2022-17:47:18
 <span style="font-size:4em">22. People who are jerks in multiplayer games just to be jerks.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111232/87202101/deservinghate22.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. Social Media Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111242/87202102/deservinghate23.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -341,7 +350,45 @@ Last updated: 06/29/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
+## <a href="#linky8" id="linky7">17 Things that are Irrationally Irritating</a><br>
+
+<span style="font-size:4em">1. “Faceplanted onto asphalt yesterday. Literally my nightmare.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Having to clean this up after a movie”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I was mowing the lawn and found some money.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “The toilet paper at a $30,000,000,000 company”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “My first day as a delivery guy at Domino’s”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Before you ask, it’s a jackfruit.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Just wanted a croissant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Finally got a prize from the claw game... at least I thought I did.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I appreciate your late night attempt to clean, random party guest, but wooden cutting boards DO NOT go in the dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I just spilled a full cup of orange juice all over myself on the last day of vacation. And I didn’t bring an extra pair of pants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Accidentally ran my favorite necklace through the washing machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Was waiting for a new tree, but got more sidewalk instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My sister is borrowing my car and pissed someone off because she kept parking in the handicapped parking space.”“So they keyed my car in retaliation.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “This $10 salad I paid for at a restaurant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Found some graffiti on my fence this morning. Just finished putting it up a couple weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Get away from me you creep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “How they cut the cake at my aunt’s birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201313.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202181.png" style="width:100%"><br>
 
@@ -365,7 +412,7 @@ Last updated: 06/29/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
+## <a href="#linky10" id="linky9">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040554/87202385/siblingordating3.png" style="width:100%"><br>
 
@@ -441,7 +488,49 @@ Last updated: 06/29/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">30 Chilling Facts You May Regret Learning</a><br>
+## <a href="#linky11" id="linky10">22 Dank Memes That Are a Little Fed Up</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202889.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202908.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">30 Chilling Facts You May Regret Learning</a><br>
 
 <span style="font-size:4em">1. Speaking from personal experience here, but your body can randomly decide to become allergic to damn near everything edible at any time. Not very fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203141.jpg" style="width:100%"><br>
 
@@ -510,110 +599,133 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">17 Things that are Irrationally Irritating</a><br>
+## <a href="#linky13" id="linky12">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
 
-<span style="font-size:4em">1. “Faceplanted onto asphalt yesterday. Literally my nightmare.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201315.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Having to clean this up after a movie”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201312.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I was mowing the lawn and found some money.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201314.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “The toilet paper at a $30,000,000,000 company”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201299.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “My first day as a delivery guy at Domino’s”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201300.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Before you ask, it’s a jackfruit.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201301.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Just wanted a croissant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201302.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Finally got a prize from the claw game... at least I thought I did.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201303.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “I appreciate your late night attempt to clean, random party guest, but wooden cutting boards DO NOT go in the dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201304.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I just spilled a full cup of orange juice all over myself on the last day of vacation. And I didn’t bring an extra pair of pants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201305.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Accidentally ran my favorite necklace through the washing machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201306.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Was waiting for a new tree, but got more sidewalk instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201307.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My sister is borrowing my car and pissed someone off because she kept parking in the handicapped parking space.”“So they keyed my car in retaliation.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201308.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “This $10 salad I paid for at a restaurant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201309.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Found some graffiti on my fence this morning. Just finished putting it up a couple weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201310.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Get away from me you creep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201311.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “How they cut the cake at my aunt’s birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201313.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">30 Rare Photos from History to Change Your Perspective</a><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
-She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
+## <a href="#linky14" id="linky13">Hemingway Facts Just as Wild as the Man Himself</a><br>
+
+<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201569.jpg" style="width:100%"><br>
 
@@ -714,52 +826,6 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201618.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201619.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Hemingway Facts Just as Wild as the Man Himself</a><br>
-
-<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
