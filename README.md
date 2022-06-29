@@ -1,31 +1,131 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/29/2022-05:47:17
+Last updated: 06/29/2022-06:47:17
 <br>
-## <a href="#linky2" id="linky1">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
+## <a href="#linky2" id="linky1">27 Bada-- Helmets Taken Straight Out of the History Books</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202181.png" style="width:100%"><br>
+<span style="font-size:4em">1. Helmet worn by the Athenian General Miltiades 2500 years ago in the battle of Marathon, given as an offering to the temple of Zeus at Olympia. Circa 490 BC. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030244/87202342/athens.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202182.png" style="width:100%"><br>
+<span style="font-size:4em">2. Ancient Greek Helmets from Classical Period, Olympia Museum. u/Ergorath</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030256/87202343/ancient.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202183.png" style="width:100%"><br>
+<span style="font-size:4em">3. This helmet belonged to Tadakatsu, known as “the Samurai of Samurais” and “the Warrior Who Surpassed Death”, because he fought over 55 battles without ever sustaining a serious injury. Dating from the latter half of the 16th century. u/ParaMike46</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030306/87202344/black.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202184.png" style="width:100%"><br>
+<span style="font-size:4em">4. Greek/Cretan Bronze Helmet, 800s BC. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030318/87202345/bronze.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202185.png" style="width:100%"><br>
+<span style="font-size:4em">5. A Gallic bronze helmet found by archeologists in Tintignac, France, in 2004. 3rd-4th century BCE. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030329/87202346/circle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202186.png" style="width:100%"><br>
+<span style="font-size:4em">6. A samurai helmet with a Chinese character 大 (dai) on the top, meaning big or great, and a silver skull on the front. 17th century CE, Edo period, now on display at the Tachibana Museum in Japan. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030340/87202347/dai.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202187.png" style="width:100%"><br>
+<span style="font-size:4em">7. Italian siege helmet, 1610-20. u/Jokerang</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030433/87202354/eyes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202188.png" style="width:100%"><br>
+<span style="font-size:4em">8. Coppergate Helmet, one of the best preserved Anglo-Saxon helmets, dated AD 770-775. It was found in Coppergate, York in 1982. u/Kunstkurator</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030350/87202348/copper.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202189.png" style="width:100%"><br>
+<span style="font-size:4em">9. Corinthian helmet from the Battle of Marathon (490 BC) found with the warriors skull inside. u/innuendoPL</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030351/87202350/corinthian.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202190.png" style="width:100%"><br>
+<span style="font-size:4em">10. Helmet shaped like an eggplant. Japan, 1671-1699. u/fpriyakorn</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030402/87202351/egg.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The exceptional find of a Greek-Illyrian helmet, as well as numerous other valuable grave goods have been found during the archaeological excavations of graves from the fourth century BC in Zakotarac on the Pelješac peninsula, in southern Dalmatia, Croatia. u/bigmeat</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030425/87202353/illyrian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. An eboshi-shaped kabuto (helmet) with maedate (crest) in form of a mantis, Edo period, 17th century, Iron, lacquer, cord, silk, wood, gold, and papier-maché. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030437/87202355/mantis.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A Tlingit sea lion warrior helmet. 19th century, part of the Kunstkamera collection in St. Petersburg. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030444/87202356/lion.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Bronze Phrygian Helmet, Greek, Late Classical to Early Hellenistic, c. 350-300. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030448/87202357/mustache.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Samnite bronze helmet and neckguard from 450 BC. The Samnites were a sworn enemy of Rome in Italy. They were literally annihilated by Sulla in I Century BC. u/imperiumromanum_edu</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030457/87202358/neck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ancient Roman helmet worn by the elite Roman cavalry (equites Romani). 2000 years old. u/innuendoPL</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030413/87202352/face.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Samurai helmet with octopus, 18th century, Japan. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030459/87202359/oct.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. This perfectly preserved helmet from Pompeii may be evidence of a Jewish gladiator in the city. u/PorcupineMerchant</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030508/87202360/pompeii.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A Roman helmet found in the Rhine River, With the name of the soldier who wore it, L. Lucretius Celeris, inscribed inside. u/CoolAndGoodAndYes</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030511/87202361/rome.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Samurai helmet (kabuko) shaped like an octopus. 1700s, Japan. u/PolarMolecule</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030520/87202362/sam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This 7th century helmet was discovered inside a ship burial at Vendel - Uppland, Sweden. ~ Swedish History Museum. u/bigmeat</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030521/87202363/ship.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A brilliantly preserved bronze Phrygian winged helmet, dated to the 4th Century BC. It recently sold at auction for £160,000. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030557/87202367/winged.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Viking helmet from a mid 7th century boat grave. u/PvDec</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030545/87202365/viking.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. WW1 U.S. Army Helmet with skull trench art on the front. u/18761</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030604/87202368/skull.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Ichinotani Style Helmet, Iris leaf design, Azuchi-Momoyama-Edo period, 16th-17th century, Tokyo National Museum. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030604/87202369/sword.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Savoyard Helmet, 17th century. u/Trail_of_Tears-T_T</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030533/87202364/skeleton.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Etruscan wolfs head helmet, 6th-5th century BC, currently at Harvard. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/031259/87202373/wolf.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Amazing Facts You Definitely Didn’t Know</a><br>
+## <a href="#linky3" id="linky2">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125309/87201193/hB0C7ED98.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125302/87201192/h332E578F.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125620/87201206/h7392E435.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125602/87201202/hBB726DEB.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201203/h9AE80C1B.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125550/87201201/h47BF5AC5.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125539/87201200/hBB0E45F8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Proof That Old People Don’t Understand The Internet</a><br>
+
+<span style="font-size:4em">1. I guess grandma was a bit too happy about the murder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. While the greeting is cute and amusing, the uploader says he never received the gift she promised him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Grandma wants to date again, and DMs are a bit too old-school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In defense of the elderly, she isnt the only person who hates Squirrels. Donald Duck hates them as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Thats her profile pic, and what does that comment even mean?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Yep, the group would love a random message about nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Geez, I dont know. When did we purchase Facebook?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The occasion certainly calls for a celebration.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Found in the comments of a facebook ad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My granny’s first story on her new Facebook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My Aunt is Feeling Blessed?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. From the Nextdoor app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A not so perfect day at the beach.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Watch out ladies! How could anyone resist?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Well, I guess well just have to take his word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. You can tell how much she loves them by her smile!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Better safe than sorry after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Im not sure thats how that works. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Well, all of the letters are right, just need to work on the order. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200561.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">20 Amazing Facts You Definitely Didn’t Know</a><br>
 
 <span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
 
@@ -69,212 +169,7 @@ Last updated: 06/29/2022-05:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">20 Images That Are Unexplainably Cursed</a><br>
-
-<span style="font-size:4em">1. Not sure if it is the masks or the fact that its black & white, but this picture is creepy AF.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Humpty Dumpty sat on a wall; Humpty Dumpty made everyone fall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A-Well-a bird bird bird, bird is the word.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Oh, Well, this is just sad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Is that her tongue? Does anyone know which country is this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. What is going on in this picture?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Aquaman 3?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. What happens in the woods stays in the woods.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Wait, this has to be a sculpture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Shawstank Redemption 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Well, at least the pet compliments the owner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A typical photobomb. Nothing out of the usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Eww. How cursed is this toilet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200482.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">Proof That Old People Don’t Understand The Internet</a><br>
-
-<span style="font-size:4em">1. I guess grandma was a bit too happy about the murder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. While the greeting is cute and amusing, the uploader says he never received the gift she promised him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Grandma wants to date again, and DMs are a bit too old-school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In defense of the elderly, she isnt the only person who hates Squirrels. Donald Duck hates them as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Thats her profile pic, and what does that comment even mean?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Yep, the group would love a random message about nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Geez, I dont know. When did we purchase Facebook?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The occasion certainly calls for a celebration.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Found in the comments of a facebook ad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My granny’s first story on her new Facebook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Aunt is Feeling Blessed?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. From the Nextdoor app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A not so perfect day at the beach.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Watch out ladies! How could anyone resist?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Well, I guess well just have to take his word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. You can tell how much she loves them by her smile!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Better safe than sorry after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Im not sure thats how that works. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Well, all of the letters are right, just need to work on the order. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200561.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">25 Worst Mistakes Ever Made by a Coworker</a><br>
-
-<span style="font-size:4em">1. At a Petco, all the Guinea pigs were in a big plexiglass enclosure with a center divider. Boys on one side and girls on the other. An employee decided that all the long haired Guinea pigs should be on one side and short-haired on the other. It took forever to sort them out and all the females were pregnant.
-
--u/PumpkinsDad
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Not a mistake necessarily, but I once witnessed our chief accounting officer (and our only accountant; it was a small company) type in values into two Excel cells, pull out a calculator, add the two numbers together in the calculator, and then type the answer in a third cell. She had apparently been doing this for years, with sheets consisting of thousands of rows. I explained how to use formulas and copy them but she apparently forgot because I saw her doing the same thing again months later.
-
--u/zachm26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Tried to cool down hot oil (in a chute, all ready to be emptied) with a nice big bucket of water…..I heard “THOMAS NO” only to turn around and see a GEYSER of hot oil shooting towards the ceiling before it hit and splashed down around him. Nobody was hurt some f*cking how.
-
--u/Ohiolongboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. When I worked construction, there was a guy who showed up with nothing in his tool belt except a small bag of peanuts in one pocket. He didnt stay around too long.
-
--u/Incredible_mango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I had a coworker who was a guidance counselor at five schools in the district. She was supposed to work one day at each school, unless she was called to a school for an urgent case. She would frequently call the school she was supposed to be at, stating she had an urgent case at another school.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-One day at lunch she was talking about what was happening in her favorite soap opera. This was before VCRs, and the show aired long before the school day ended. The principal was sitting at our lunch table. He got up, smiled, and told her, see me when you are done with your lunch. After checking, she hadnt seen more than a few kids per week, for many months. Funny thing is, complaints about her work had gone down in that time. She was a crappy guidance counselor.
-
--u/1Os</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The designer, creative director, and head of production all missed that there was an eight-day week on a calendar. We sent 10,000 copies of a useless calendar to a client. Rightly so, they refused to pay for it.
-
--u/atot806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I worked on a golf course during the summer. Area with lots of poison ivy. Two of my coworkers were instructed to weedy a river edge area. If we encounter poison ivy, we either stop what we are doing or go get full suit protection with respirators. These dumbasses were weed-whacking in the thickest poison ivy I had ever seen. No protective suit or glasses or respirator. I roll up and notice what the hell theyre doing and point out all the poison ivy everywhere- they were aerosolizing the oil. They both ended up in the hospital on steroids to prevent their death because of the oils they inhaled.
-
--u/Onwisconsin42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I grabbed the arm of an intern once, right as he was about to grab a 00 gauge (the big wires that feed electricity the whole building) bare-handed to move it out of the way to show us a problem behind. It was hot.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
- He claimed it was fine cause he was only gonna touch one wire at a time. The lead electrician respectfully requested said intern be removed from his sight before turning himself into carbon and paperwork. I agreed with this sentiment and had an intern watching OSHA videos for almost 3 days straight as punishment.
-
--u/overengineered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201441.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I worked in a paint shop and every time a new chemical was introduced to the shop, I would ask about the hazards. They would tell me that it is a green chemical; there are no hazards. Its baby safe they would say. Once when I entered the shop I saw a guy using a new spray. The side of the bucket indicated that it was dangerously poisonous and highly corrosive.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I told him that he should be using a mask and gloves to use that chemical. He said Dont worry, its baby safe. They even have a picture of a baby playing in it. Sure enough it did.
-After seeing the image, I yelled at the guy This is the baby. He is not playing, he is not swimming, HES DYING!
-
--u/TomoyoHoshijiro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Shut down a critical file server, then lied about it...even after he was presented with the logs that showed it was his user account that initiated the shut down. Its not so much the mistake that he made, but it was when he lied about making the mistake...that was a rookie move.
-
--u/muppetmat13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. New guy was dragging two 8000lb rolls of paper through the warehouse. This is against the rules for good reason, anyway, he drove through a door designed for 1 roll, and drug the top roll through the wall.
-
--u/GrandMoffHarkonen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. When I was in the Navy, this known dumbass and pathological liar was on armed watch with an M-14 patrolling the topside decks. Literally, all you have to do is walk around for 4 hours with a rifle on your shoulder. This dude came back to the Quarterdeck (main entrance to the ship) WITH NO GUN. He tried to claim it fell off his shoulder and into the water while tying his shoe. How a rifle would fall off your shoulder, pass through your hands that were tying the shoe, and through all three lifelines (like guard rails) is still a mystery. My theory is that he was doing drill team stuff - like tossing it spinning in the air - and lost it that way.
-
--u/not-gandalf-bot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Tried to retrieve his lighter from a deep fat fryer with his hands. boy was that fun to clean up.
-
--u/Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Worked in a machine shop. One of the lathe operators left the bar of cold-rolled steel he was turning hanging out the back. When he turned the machine on, it literally deformed and turned into a freaking helicopter blade that ripped the back of the machine apart, and eventually flew off at high speed. Luckily no one got hit by it. If so, theyd be dead.
-
--u/ribeye256</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The office we worked in was shut down due to Covid and the company went 100% remote. A new senior engineer was hired to work directly with our product team and also manage a team of developers. During our company-wide weekly Zoom meeting after he was done presenting for the company he turned his camera off but forgot to put himself on mute. 100+ people heard this man playing Fortnite and talking down about the company to someone else in the background among other things. He only lasted a month.
-
--u/theysocool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I used to work for a landscaping company and over the course of a summer, I witnessed one of my co-workers accidentally set 3 different things on fire (a hedge trimmer, a truck, and himself).
-
--u/RosenBrtt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Poured sink cleaning solution into the ice cream machine instead of the cream mixture and I had to stop them, they then said: Im sure itll be fine, it was only a little. No that would poison people. I had to clean out the whole machine top to bottom and refill it. I ended up throwing away nearly a whole bucket full of contaminated ice cream mixture. I would also like to add that the containers didnt look anything alike, the sink stuff came in big plastic jugs with screw tops and the ice cream comes in cardboard cartons (like orange juice) that you have to cut open. So I dont know how she could have possibly mixed the two up.
-
--u/Yaboijustlikesgoats</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Took the wrong coffin to a funeral. Someone else had to drive to the cemetery with the correct deceased on board, and thankfully they made it before the viewing.
-
--u/Shubabi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I worked as a Radiation Protection Tech at a power plant that was re-fueling. My job was to sit outside of a contaminated area and if anyone wanted to take something out of the area (tools, etc.) I had to make sure it didnt have any radioactive particles on it. To do this you wipe the tool with something like a tissue and then hold the tissue up to a machine called a frisker. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201454.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">30 Wild and Crazy Things People Put in Their Wills</a><br>
+## <a href="#linky6" id="linky5">30 Wild and Crazy Things People Put in Their Wills</a><br>
 
 <span style="font-size:4em">1. My vindictive grandmother left my aunt $20 as a reminder of the $20 my aunt stole from her once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202020.jpg" style="width:100%"><br>
 
@@ -342,7 +237,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">23 Awful Things That Warrant Hatred</a><br>
+## <a href="#linky7" id="linky6">23 Awful Things That Warrant Hatred</a><br>
 
 <span style="font-size:4em">1. Scientology. Its one of the most complex brainwashing schemes in the world. People who search for a meaning of life end up in these groups, and any of us can fall for them. Then there is no way out, or at least without huge consequences.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111036/87202080/deservinghate1.jpg" style="width:100%"><br>
 
@@ -392,7 +287,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
+## <a href="#linky8" id="linky7">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201569.jpg" style="width:100%"><br>
 
@@ -496,7 +391,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Hemingway Facts Just as Wild as the Man Himself</a><br>
+## <a href="#linky9" id="linky8">Hemingway Facts Just as Wild as the Man Himself</a><br>
 
 <span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
 
@@ -542,31 +437,72 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
+## <a href="#linky10" id="linky9">30 Rare Photos from History to Change Your Perspective</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
+<span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125309/87201193/hB0C7ED98.png" style="width:100%"><br>
+<span style="font-size:4em">2. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125302/87201192/h332E578F.png" style="width:100%"><br>
+<span style="font-size:4em">3. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125620/87201206/h7392E435.png" style="width:100%"><br>
+<span style="font-size:4em">4. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125602/87201202/hBB726DEB.png" style="width:100%"><br>
+<span style="font-size:4em">5. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201203/h9AE80C1B.png" style="width:100%"><br>
+<span style="font-size:4em">6. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125550/87201201/h47BF5AC5.png" style="width:100%"><br>
+<span style="font-size:4em">7. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125539/87201200/hBB0E45F8.png" style="width:100%"><br>
+<span style="font-size:4em">8. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
+<span style="font-size:4em">9. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
+<span style="font-size:4em">10. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
+She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
+## <a href="#linky11" id="linky10">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
 
@@ -646,7 +582,31 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
+## <a href="#linky12" id="linky11">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202181.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202182.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202183.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202184.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202185.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202186.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202187.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202188.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202189.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202190.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
 
@@ -664,82 +624,166 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">30 Rare Photos from History to Change Your Perspective</a><br>
+## <a href="#linky14" id="linky13">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
 
-<span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
-She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
+## <a href="#linky15" id="linky14">25 Worst Mistakes Ever Made by a Coworker</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
+<span style="font-size:4em">1. At a Petco, all the Guinea pigs were in a big plexiglass enclosure with a center divider. Boys on one side and girls on the other. An employee decided that all the long haired Guinea pigs should be on one side and short-haired on the other. It took forever to sort them out and all the females were pregnant.
+
+-u/PumpkinsDad
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
+<span style="font-size:4em">2. Not a mistake necessarily, but I once witnessed our chief accounting officer (and our only accountant; it was a small company) type in values into two Excel cells, pull out a calculator, add the two numbers together in the calculator, and then type the answer in a third cell. She had apparently been doing this for years, with sheets consisting of thousands of rows. I explained how to use formulas and copy them but she apparently forgot because I saw her doing the same thing again months later.
+
+-u/zachm26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201432.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
+<span style="font-size:4em">3. Tried to cool down hot oil (in a chute, all ready to be emptied) with a nice big bucket of water…..I heard “THOMAS NO” only to turn around and see a GEYSER of hot oil shooting towards the ceiling before it hit and splashed down around him. Nobody was hurt some f*cking how.
+
+-u/Ohiolongboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
+<span style="font-size:4em">4. When I worked construction, there was a guy who showed up with nothing in his tool belt except a small bag of peanuts in one pocket. He didnt stay around too long.
+
+-u/Incredible_mango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
+<span style="font-size:4em">5. I had a coworker who was a guidance counselor at five schools in the district. She was supposed to work one day at each school, unless she was called to a school for an urgent case. She would frequently call the school she was supposed to be at, stating she had an urgent case at another school.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+One day at lunch she was talking about what was happening in her favorite soap opera. This was before VCRs, and the show aired long before the school day ended. The principal was sitting at our lunch table. He got up, smiled, and told her, see me when you are done with your lunch. After checking, she hadnt seen more than a few kids per week, for many months. Funny thing is, complaints about her work had gone down in that time. She was a crappy guidance counselor.
+
+-u/1Os</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The designer, creative director, and head of production all missed that there was an eight-day week on a calendar. We sent 10,000 copies of a useless calendar to a client. Rightly so, they refused to pay for it.
+
+-u/atot806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I worked on a golf course during the summer. Area with lots of poison ivy. Two of my coworkers were instructed to weedy a river edge area. If we encounter poison ivy, we either stop what we are doing or go get full suit protection with respirators. These dumbasses were weed-whacking in the thickest poison ivy I had ever seen. No protective suit or glasses or respirator. I roll up and notice what the hell theyre doing and point out all the poison ivy everywhere- they were aerosolizing the oil. They both ended up in the hospital on steroids to prevent their death because of the oils they inhaled.
+
+-u/Onwisconsin42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I grabbed the arm of an intern once, right as he was about to grab a 00 gauge (the big wires that feed electricity the whole building) bare-handed to move it out of the way to show us a problem behind. It was hot.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+ He claimed it was fine cause he was only gonna touch one wire at a time. The lead electrician respectfully requested said intern be removed from his sight before turning himself into carbon and paperwork. I agreed with this sentiment and had an intern watching OSHA videos for almost 3 days straight as punishment.
+
+-u/overengineered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201441.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I worked in a paint shop and every time a new chemical was introduced to the shop, I would ask about the hazards. They would tell me that it is a green chemical; there are no hazards. Its baby safe they would say. Once when I entered the shop I saw a guy using a new spray. The side of the bucket indicated that it was dangerously poisonous and highly corrosive.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201443.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I told him that he should be using a mask and gloves to use that chemical. He said Dont worry, its baby safe. They even have a picture of a baby playing in it. Sure enough it did.
+After seeing the image, I yelled at the guy This is the baby. He is not playing, he is not swimming, HES DYING!
+
+-u/TomoyoHoshijiro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Shut down a critical file server, then lied about it...even after he was presented with the logs that showed it was his user account that initiated the shut down. Its not so much the mistake that he made, but it was when he lied about making the mistake...that was a rookie move.
+
+-u/muppetmat13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. New guy was dragging two 8000lb rolls of paper through the warehouse. This is against the rules for good reason, anyway, he drove through a door designed for 1 roll, and drug the top roll through the wall.
+
+-u/GrandMoffHarkonen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When I was in the Navy, this known dumbass and pathological liar was on armed watch with an M-14 patrolling the topside decks. Literally, all you have to do is walk around for 4 hours with a rifle on your shoulder. This dude came back to the Quarterdeck (main entrance to the ship) WITH NO GUN. He tried to claim it fell off his shoulder and into the water while tying his shoe. How a rifle would fall off your shoulder, pass through your hands that were tying the shoe, and through all three lifelines (like guard rails) is still a mystery. My theory is that he was doing drill team stuff - like tossing it spinning in the air - and lost it that way.
+
+-u/not-gandalf-bot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Tried to retrieve his lighter from a deep fat fryer with his hands. boy was that fun to clean up.
+
+-u/Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Worked in a machine shop. One of the lathe operators left the bar of cold-rolled steel he was turning hanging out the back. When he turned the machine on, it literally deformed and turned into a freaking helicopter blade that ripped the back of the machine apart, and eventually flew off at high speed. Luckily no one got hit by it. If so, theyd be dead.
+
+-u/ribeye256</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The office we worked in was shut down due to Covid and the company went 100% remote. A new senior engineer was hired to work directly with our product team and also manage a team of developers. During our company-wide weekly Zoom meeting after he was done presenting for the company he turned his camera off but forgot to put himself on mute. 100+ people heard this man playing Fortnite and talking down about the company to someone else in the background among other things. He only lasted a month.
+
+-u/theysocool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I used to work for a landscaping company and over the course of a summer, I witnessed one of my co-workers accidentally set 3 different things on fire (a hedge trimmer, a truck, and himself).
+
+-u/RosenBrtt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Poured sink cleaning solution into the ice cream machine instead of the cream mixture and I had to stop them, they then said: Im sure itll be fine, it was only a little. No that would poison people. I had to clean out the whole machine top to bottom and refill it. I ended up throwing away nearly a whole bucket full of contaminated ice cream mixture. I would also like to add that the containers didnt look anything alike, the sink stuff came in big plastic jugs with screw tops and the ice cream comes in cardboard cartons (like orange juice) that you have to cut open. So I dont know how she could have possibly mixed the two up.
+
+-u/Yaboijustlikesgoats</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Took the wrong coffin to a funeral. Someone else had to drive to the cemetery with the correct deceased on board, and thankfully they made it before the viewing.
+
+-u/Shubabi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I worked as a Radiation Protection Tech at a power plant that was re-fueling. My job was to sit outside of a contaminated area and if anyone wanted to take something out of the area (tools, etc.) I had to make sure it didnt have any radioactive particles on it. To do this you wipe the tool with something like a tissue and then hold the tissue up to a machine called a frisker. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201454.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">20 Images That Are Unexplainably Cursed</a><br>
+
+<span style="font-size:4em">1. Not sure if it is the masks or the fact that its black & white, but this picture is creepy AF.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Humpty Dumpty sat on a wall; Humpty Dumpty made everyone fall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A-Well-a bird bird bird, bird is the word.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Oh, Well, this is just sad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Is that her tongue? Does anyone know which country is this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. What is going on in this picture?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Aquaman 3?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. What happens in the woods stays in the woods.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Wait, this has to be a sculpture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Shawstank Redemption 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Well, at least the pet compliments the owner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A typical photobomb. Nothing out of the usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Eww. How cursed is this toilet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200482.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
