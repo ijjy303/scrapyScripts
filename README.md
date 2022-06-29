@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/29/2022-01:47:17
+Last updated: 06/29/2022-02:47:17
 <br>
 ## <a href="#linky2" id="linky1">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
 
@@ -105,17 +105,47 @@ Last updated: 06/29/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
+## <a href="#linky4" id="linky3">20 Images That Are Unexplainably Cursed</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
+<span style="font-size:4em">1. Not sure if it is the masks or the fact that its black & white, but this picture is creepy AF.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
+<span style="font-size:4em">2. Humpty Dumpty sat on a wall; Humpty Dumpty made everyone fall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
+<span style="font-size:4em">3. A-Well-a bird bird bird, bird is the word.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
+<span style="font-size:4em">5. Oh, Well, this is just sad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Is that her tongue? Does anyone know which country is this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. What is going on in this picture?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Aquaman 3?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. What happens in the woods stays in the woods.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Wait, this has to be a sculpture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Shawstank Redemption 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Well, at least the pet compliments the owner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A typical photobomb. Nothing out of the usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Eww. How cursed is this toilet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200482.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -350,51 +380,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">20 Amazing Facts You Definitely Didn’t Know</a><br>
-
-<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">23 Awful Things That Warrant Hatred</a><br>
+## <a href="#linky9" id="linky8">23 Awful Things That Warrant Hatred</a><br>
 
 <span style="font-size:4em">1. Scientology. Its one of the most complex brainwashing schemes in the world. People who search for a meaning of life end up in these groups, and any of us can fall for them. Then there is no way out, or at least without huge consequences.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111036/87202080/deservinghate1.jpg" style="width:100%"><br>
 
@@ -444,7 +430,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
+## <a href="#linky10" id="linky9">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201569.jpg" style="width:100%"><br>
 
@@ -548,7 +534,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Hemingway Facts Just as Wild as the Man Himself</a><br>
+## <a href="#linky11" id="linky10">Hemingway Facts Just as Wild as the Man Himself</a><br>
 
 <span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
 
@@ -594,7 +580,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">30 Rare Photos from History to Change Your Perspective</a><br>
+## <a href="#linky12" id="linky11">30 Rare Photos from History to Change Your Perspective</a><br>
 
 <span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
 
@@ -659,47 +645,61 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">20 Images That Are Unexplainably Cursed</a><br>
+## <a href="#linky13" id="linky12">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
 
-<span style="font-size:4em">1. Not sure if it is the masks or the fact that its black & white, but this picture is creepy AF.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200464.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Humpty Dumpty sat on a wall; Humpty Dumpty made everyone fall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200467.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. A-Well-a bird bird bird, bird is the word.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200468.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200474.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Oh, Well, this is just sad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200470.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200463.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">7. Is that her tongue? Does anyone know which country is this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200465.jpg" style="width:100%"><br>
+## <a href="#linky14" id="linky13">20 Amazing Facts You Definitely Didn’t Know</a><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200471.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200480.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200479.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200476.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. What is going on in this picture?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200481.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Aquaman 3?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200472.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. What happens in the woods stays in the woods.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200466.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Wait, this has to be a sculpture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200473.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Shawstank Redemption 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200477.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Well, at least the pet compliments the owner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200469.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. A typical photobomb. Nothing out of the usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200475.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200478.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Eww. How cursed is this toilet?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200482.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
