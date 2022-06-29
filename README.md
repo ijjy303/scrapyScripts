@@ -1,181 +1,116 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/28/2022-20:47:18
+Last updated: 06/28/2022-21:47:17
 <br>
-## <a href="#linky2" id="linky1">Hemingway Facts Just as Wild as the Man Himself</a><br>
+## <a href="#linky2" id="linky1">30 Rare Photos from History to Change Your Perspective</a><br>
 
-<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
+She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">22. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">20 Amazing Facts You Definitely Didn’t Know</a><br>
+<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
+## <a href="#linky3" id="linky2">20 Marilyn Monroe Facts That We Never Knew</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
+<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
+<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
+<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
+<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
+<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
+<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
+<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013555/87201381/male-karen-get-karma2.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013549/87201380/male-karen-get-karma3.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014048/87201386/male-karen-comments1.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014045/87201385/male-karen-comments2.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014037/87201384/karen-comments1.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014034/87201383/karen-comments-2.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">25 Dank Memes That Shattered the Dankness Scouter</a><br>
+<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200856.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200878.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200870.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200860.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200861.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200863.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200876.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87200859.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Images That Are Unexplainably Cursed</a><br>
+## <a href="#linky4" id="linky3">20 Images That Are Unexplainably Cursed</a><br>
 
 <span style="font-size:4em">1. Not sure if it is the masks or the fact that its black & white, but this picture is creepy AF.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200464.jpg" style="width:100%"><br>
 
@@ -219,7 +154,41 @@ Last updated: 06/28/2022-20:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Proof That Old People Don’t Understand The Internet</a><br>
+## <a href="#linky5" id="linky4">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013555/87201381/male-karen-get-karma2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013549/87201380/male-karen-get-karma3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014048/87201386/male-karen-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014045/87201385/male-karen-comments2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014037/87201384/karen-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014034/87201383/karen-comments-2.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">Proof That Old People Don’t Understand The Internet</a><br>
 
 <span style="font-size:4em">1. I guess grandma was a bit too happy about the murder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200543.jpg" style="width:100%"><br>
 
@@ -261,7 +230,7 @@ Last updated: 06/28/2022-20:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Worst Mistakes Ever Made by a Coworker</a><br>
+## <a href="#linky8" id="linky7">25 Worst Mistakes Ever Made by a Coworker</a><br>
 
 <span style="font-size:4em">1. At a Petco, all the Guinea pigs were in a big plexiglass enclosure with a center divider. Boys on one side and girls on the other. An employee decided that all the long haired Guinea pigs should be on one side and short-haired on the other. It took forever to sort them out and all the females were pregnant.
 
@@ -364,7 +333,7 @@ After seeing the image, I yelled at the guy This is the baby. He is not playing,
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">30 Wild and Crazy Things People Put in Their Wills</a><br>
+## <a href="#linky9" id="linky8">30 Wild and Crazy Things People Put in Their Wills</a><br>
 
 <span style="font-size:4em">1. My vindictive grandmother left my aunt $20 as a reminder of the $20 my aunt stole from her once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202020.jpg" style="width:100%"><br>
 
@@ -432,7 +401,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">23 Awful Things That Warrant Hatred</a><br>
+## <a href="#linky10" id="linky9">23 Awful Things That Warrant Hatred</a><br>
 
 <span style="font-size:4em">1. Scientology. Its one of the most complex brainwashing schemes in the world. People who search for a meaning of life end up in these groups, and any of us can fall for them. Then there is no way out, or at least without huge consequences.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/111036/87202080/deservinghate1.jpg" style="width:100%"><br>
 
@@ -482,7 +451,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
+## <a href="#linky11" id="linky10">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201569.jpg" style="width:100%"><br>
 
@@ -586,7 +555,111 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
+## <a href="#linky12" id="linky11">Hemingway Facts Just as Wild as the Man Himself</a><br>
+
+<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">20 Amazing Facts You Definitely Didn’t Know</a><br>
+
+<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
 
@@ -607,64 +680,6 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 <span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">20 Marilyn Monroe Facts That We Never Knew</a><br>
-
-<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
