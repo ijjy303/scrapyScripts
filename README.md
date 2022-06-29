@@ -1,116 +1,119 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/28/2022-21:47:17
+Last updated: 06/28/2022-22:47:17
 <br>
-## <a href="#linky2" id="linky1">30 Rare Photos from History to Change Your Perspective</a><br>
+## <a href="#linky2" id="linky1">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
 
-<span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
-She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">20 Marilyn Monroe Facts That We Never Knew</a><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">20 Images That Are Unexplainably Cursed</a><br>
+## <a href="#linky3" id="linky2">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013555/87201381/male-karen-get-karma2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013549/87201380/male-karen-get-karma3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014048/87201386/male-karen-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014045/87201385/male-karen-comments2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014037/87201384/karen-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014034/87201383/karen-comments-2.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">20 Images That Are Unexplainably Cursed</a><br>
 
 <span style="font-size:4em">1. Not sure if it is the masks or the fact that its black & white, but this picture is creepy AF.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200464.jpg" style="width:100%"><br>
 
@@ -154,37 +157,47 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Male Karen Loses Reserved Parking Spot After Petty Neighbor Upgrades Parking Pass</a><br>
+## <a href="#linky6" id="linky5">20 Marilyn Monroe Facts That We Never Knew</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013600/87201382/male-karen-get-karma1.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Marilyn Monroe got chin surgery because she overheard someone call her “a chinless wonder” at a party, behind her back. - u/menudoMiHaceDuro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013555/87201381/male-karen-get-karma2.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The most valuable locks of hair ever sold were from Che Guevara ($119500), Elvis ($115000), and Michael Jackson ($100000). Among the 40 most expensive locks: Justin Bieber ($44000), Lincoln ($38837), Washington ($18750), Napoleon ($13000), Napoleons horse ($10588), and Marilyn Monroe ($9200). - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/013549/87201380/male-karen-get-karma3.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Contrary to popular belief, Marilyn Monroe was not a UK size 16, equating to the ‘curvy’ role model she is painted as, but ranged from a UK size 4-8. - u/l4uri3j</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014048/87201386/male-karen-comments1.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Marilyn Monroe converted to Judaism. - u/mikwee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014045/87201385/male-karen-comments2.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Before Norma Jean was Marilyn Monroe, she was a surfer. - u/pinkbanana2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014037/87201384/karen-comments1.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Arthur Millers (Famous author of Death of a Salesman) brother was named Kermit. A salesman. And best man at Arthurs wedding to Marilyn Monroe. - u/explikator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/014034/87201383/karen-comments-2.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The man in the crypt above Marilyn Monroe is entombed face down, above the movie star. - u/jalapena_pinata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200793.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">8. Having been raised to hold more progressive views on race, Marilyn Monroe became an advocate for civil rights & was elected as an alternate delegate to Connecticuts state Democratic convention. Monroe attended rallies protesting the violation of civil liberties caused by anti-Communist fervor. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200795.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
+<span style="font-size:4em">9. In 2016, the Ripley’s Believe It or Not Museum in Hollywood paid $4.8 million for Marilyn Monroes “Happy Birthday, Mr. President” dress that Monroe wore at JFKs 45th birthday celebration. The purchase cements it as one of the most expensive pieces of pop-culture memorabilia of all time. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
+<span style="font-size:4em">10. The DA reopened Marilyn Monroes death investigation when the coroner claimed coercion to profess suicide, and the autopsy file, police report and her diary, which they believed had damaging information on the Kennedys, vanished. A $10,000 reward was offered for her missing diary. - u/KnotKarma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
+<span style="font-size:4em">11. Marilyn Monroe’s signature breathy speaking voice was actually a tactic the actress used to overcome a childhood stutter. A speech therapist reportedly trained her to adopt the throaty style, and it ended up becoming one of her standout traits as an actress and singer. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
+<span style="font-size:4em">12. The Sophia Loren - Jayne Mansfield photo that caused an international sensation in 1957. Loren was being welcomed to Hollywood by Paramount at a dinner at Romanoffs in Beverly Hills. 20th Century Fox was promoting Mansfield as the blonde-bombshell successor to Marilyn Monroe. - u/ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
+<span style="font-size:4em">13. Marilyn Monroe nearly passed away from an overdose in the Hamptons 5 years before her death. - u/MattMedvedOfficial</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
+<span style="font-size:4em">14. Marilyn Monroe was once roommate with actress Shelley Winters, and they made a list of men they wanted to sleep with. There was no one under 50 on hers, Winters later said. I never got to ask her before she died how much of her list she had achieved, but on her list was Albert Ein-stein. - u/malalatargaryen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
+<span style="font-size:4em">15. There exists a film of Marilyn Monroe performing oral sex on an unidentified man. It was sold at auction for $1.5M to a NY businessman who has kept it private. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Before and after he assumed the presidency, Kennedy reportedly had affairs with a number of women, including Marilyn Monroe, Gunilla von Post, Judith Campbell, Mary Pinchot Meyer, Marlene Dietrich, Mimi Alford, and his wifes press secretary, Pamela Turnure. - u/One_Man_Riot_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hugh Hefner paid a Chicago calendar company $500 for a nude images of Marilyn Monroe. These photos launched Playboy in 1953 and helped to create the first edition of the famous magazine. Monroe never posed for Playboy and was never paid directly for the use of the images. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Alec Baldwin, Marilyn Monroe, Clint Eastwood, Sally Field, Richard Gere, Katherine Hepburn, and Ashley Judd are all descendants of original Mayflower settlers. - u/Romobyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Joe DiMaggio was so in love with Marilyn Monroe that after her death he had flowers delivered to her grave twice a week for 20 years. - u/turnaroundu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Marilyn Monroe suffered from depression, and was unable to have children throughout her life. - u/woohooima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200810.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -230,106 +243,47 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">25 Worst Mistakes Ever Made by a Coworker</a><br>
+## <a href="#linky8" id="linky7">20 Amazing Facts You Definitely Didn’t Know</a><br>
 
-<span style="font-size:4em">1. At a Petco, all the Guinea pigs were in a big plexiglass enclosure with a center divider. Boys on one side and girls on the other. An employee decided that all the long haired Guinea pigs should be on one side and short-haired on the other. It took forever to sort them out and all the females were pregnant.
-
--u/PumpkinsDad
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201430.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Not a mistake necessarily, but I once witnessed our chief accounting officer (and our only accountant; it was a small company) type in values into two Excel cells, pull out a calculator, add the two numbers together in the calculator, and then type the answer in a third cell. She had apparently been doing this for years, with sheets consisting of thousands of rows. I explained how to use formulas and copy them but she apparently forgot because I saw her doing the same thing again months later.
-
--u/zachm26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201432.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Tried to cool down hot oil (in a chute, all ready to be emptied) with a nice big bucket of water…..I heard “THOMAS NO” only to turn around and see a GEYSER of hot oil shooting towards the ceiling before it hit and splashed down around him. Nobody was hurt some f*cking how.
-
--u/Ohiolongboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201433.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. When I worked construction, there was a guy who showed up with nothing in his tool belt except a small bag of peanuts in one pocket. He didnt stay around too long.
-
--u/Incredible_mango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201434.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I had a coworker who was a guidance counselor at five schools in the district. She was supposed to work one day at each school, unless she was called to a school for an urgent case. She would frequently call the school she was supposed to be at, stating she had an urgent case at another school.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201435.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201436.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-One day at lunch she was talking about what was happening in her favorite soap opera. This was before VCRs, and the show aired long before the school day ended. The principal was sitting at our lunch table. He got up, smiled, and told her, see me when you are done with your lunch. After checking, she hadnt seen more than a few kids per week, for many months. Funny thing is, complaints about her work had gone down in that time. She was a crappy guidance counselor.
-
--u/1Os</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201431.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The designer, creative director, and head of production all missed that there was an eight-day week on a calendar. We sent 10,000 copies of a useless calendar to a client. Rightly so, they refused to pay for it.
-
--u/atot806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201437.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I worked on a golf course during the summer. Area with lots of poison ivy. Two of my coworkers were instructed to weedy a river edge area. If we encounter poison ivy, we either stop what we are doing or go get full suit protection with respirators. These dumbasses were weed-whacking in the thickest poison ivy I had ever seen. No protective suit or glasses or respirator. I roll up and notice what the hell theyre doing and point out all the poison ivy everywhere- they were aerosolizing the oil. They both ended up in the hospital on steroids to prevent their death because of the oils they inhaled.
-
--u/Onwisconsin42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201438.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I grabbed the arm of an intern once, right as he was about to grab a 00 gauge (the big wires that feed electricity the whole building) bare-handed to move it out of the way to show us a problem behind. It was hot.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201439.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201440.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
- He claimed it was fine cause he was only gonna touch one wire at a time. The lead electrician respectfully requested said intern be removed from his sight before turning himself into carbon and paperwork. I agreed with this sentiment and had an intern watching OSHA videos for almost 3 days straight as punishment.
-
--u/overengineered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201441.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I worked in a paint shop and every time a new chemical was introduced to the shop, I would ask about the hazards. They would tell me that it is a green chemical; there are no hazards. Its baby safe they would say. Once when I entered the shop I saw a guy using a new spray. The side of the bucket indicated that it was dangerously poisonous and highly corrosive.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201442.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201443.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-I told him that he should be using a mask and gloves to use that chemical. He said Dont worry, its baby safe. They even have a picture of a baby playing in it. Sure enough it did.
-After seeing the image, I yelled at the guy This is the baby. He is not playing, he is not swimming, HES DYING!
-
--u/TomoyoHoshijiro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201444.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Shut down a critical file server, then lied about it...even after he was presented with the logs that showed it was his user account that initiated the shut down. Its not so much the mistake that he made, but it was when he lied about making the mistake...that was a rookie move.
-
--u/muppetmat13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201445.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. New guy was dragging two 8000lb rolls of paper through the warehouse. This is against the rules for good reason, anyway, he drove through a door designed for 1 roll, and drug the top roll through the wall.
-
--u/GrandMoffHarkonen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201446.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. When I was in the Navy, this known dumbass and pathological liar was on armed watch with an M-14 patrolling the topside decks. Literally, all you have to do is walk around for 4 hours with a rifle on your shoulder. This dude came back to the Quarterdeck (main entrance to the ship) WITH NO GUN. He tried to claim it fell off his shoulder and into the water while tying his shoe. How a rifle would fall off your shoulder, pass through your hands that were tying the shoe, and through all three lifelines (like guard rails) is still a mystery. My theory is that he was doing drill team stuff - like tossing it spinning in the air - and lost it that way.
-
--u/not-gandalf-bot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201447.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Tried to retrieve his lighter from a deep fat fryer with his hands. boy was that fun to clean up.
-
--u/Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201448.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Worked in a machine shop. One of the lathe operators left the bar of cold-rolled steel he was turning hanging out the back. When he turned the machine on, it literally deformed and turned into a freaking helicopter blade that ripped the back of the machine apart, and eventually flew off at high speed. Luckily no one got hit by it. If so, theyd be dead.
-
--u/ribeye256</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The office we worked in was shut down due to Covid and the company went 100% remote. A new senior engineer was hired to work directly with our product team and also manage a team of developers. During our company-wide weekly Zoom meeting after he was done presenting for the company he turned his camera off but forgot to put himself on mute. 100+ people heard this man playing Fortnite and talking down about the company to someone else in the background among other things. He only lasted a month.
-
--u/theysocool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I used to work for a landscaping company and over the course of a summer, I witnessed one of my co-workers accidentally set 3 different things on fire (a hedge trimmer, a truck, and himself).
-
--u/RosenBrtt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Poured sink cleaning solution into the ice cream machine instead of the cream mixture and I had to stop them, they then said: Im sure itll be fine, it was only a little. No that would poison people. I had to clean out the whole machine top to bottom and refill it. I ended up throwing away nearly a whole bucket full of contaminated ice cream mixture. I would also like to add that the containers didnt look anything alike, the sink stuff came in big plastic jugs with screw tops and the ice cream comes in cardboard cartons (like orange juice) that you have to cut open. So I dont know how she could have possibly mixed the two up.
-
--u/Yaboijustlikesgoats</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Took the wrong coffin to a funeral. Someone else had to drive to the cemetery with the correct deceased on board, and thankfully they made it before the viewing.
-
--u/Shubabi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I worked as a Radiation Protection Tech at a power plant that was re-fueling. My job was to sit outside of a contaminated area and if anyone wanted to take something out of the area (tools, etc.) I had to make sure it didnt have any radioactive particles on it. To do this you wipe the tool with something like a tissue and then hold the tissue up to a machine called a frisker. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201454.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -555,7 +509,72 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Hemingway Facts Just as Wild as the Man Himself</a><br>
+## <a href="#linky12" id="linky11">30 Rare Photos from History to Change Your Perspective</a><br>
+
+<span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cowboys sit around Bob Leavitt’s Saloon in Jordan, Montana, 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Rare photo of general and former U.S. president Ulysses S. Grant behind him is a posture brace to help prevent movement during a photo session, sudden movements would cause blurring due to long exposure time. early 1860’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. A black U.S. soldier reads a message left by the Việt Cộng during the Vietnam War, the message reads: “U.S. Negro Armymen, you are committing the same ignominious crimes in South Vietnam that the KKK clique is perpetrating against your family at home.”, 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Sumo wrestling. Yokohama – Japan, 1887</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Ethiopian Negus Menelik II who defeated the Italians in the battle of Adawa and thus saving his nation from colonisation. 1913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201404.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Man standing on lap of colossal figure of Ramses, 1856</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Polish children await physical examinations, the passing of which would allow them to be adopted by German families. Failure led to the death camps. c.1940.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Newly liberated Jewish survivors of Buchenwald concentration camp are joined by Jewish U.S. Army soldiers who helped liberate the camp for the first day of Shavuot religious service conducted by U.S. Army chaplain Rabbi Herschel Schachter. 18 May 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Soviet political commissar of the 220th Infantry Regiment calling soldiers to an assault, Eastern Front, in Soviet Ukraine, 12 July 1942. it has been said that the subject of this photo died minutes after it was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The American Look in 1945 according to the department store, Lord & Taylor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Coal miner and his family in their home. Scott’s Run, West Virginia. March 19, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Opium addicts in Beijing, 1908</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. John Wilkes Booth (left) dressed as Mark Antony in an 1864 play of Shakespeare’s “Julius Caesar,” whose assassination influenced him in killing Lincoln.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Martha Jane Cannary, better known as Calamity Jane, was a well-known American frontierswoman, sharpshooter, and raconteur.
+She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men’s clothing to dresses. In addition to many exploits she was known for being an acquaintance of Wild Bill Hickok. Late in her life, she appeared in Buffalo Bill’s Wild West show and at the 1901 Pan-American Exposition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mentally ill patients in England, 1910.“Hydrotherapy treatments consisted of placing patients in baths or steam cabinets for extended periods of time to treat various conditions or simply to calm the patients down. The patients were often not given a choice and were forced to undergo treatment if the patient wasn’t calm.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201402.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. A damaged US B-17 Bomber after a mission over Cologne, Germany in 1944.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Revolutionary leader Che Guevara attending a United Nations Trade Conference at Geneva. August 28, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Toffs and Toughs – A famous photo taken by Jimmy Sime at Lord’s Cricket Ground in 1937 illustrating the class divide in Britain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Jim Jarrett wearing the Tritonia diving suit, preparing to explore the wreck of RMS Lusitania, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. FDR visits a Civilian Conservation Corps camp, 1933. In 9 years, 3 million poor young men joined the CCC. They were fed, housed, and paid a wage that was mostly sent to their families. Their efforts improved public land to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Class photo, Missouri farm school in the 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. A Universal Carrier crew of the 8th Battalion, Rifle Brigade hands out chocolate to Dutch civilians during the advance of 11th Armoured Division in the Netherlands on September 22, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Homosexual prisoners at the concentration camp at Sachsenhausen, Germany, wearing pink triangles on their uniforms on December 19, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. On May 27, 1942, an assassination of Reinhard Heydrich, the ‘architect of Holocaust’, was undertaken by Josef Gabčík and Jan Kubiš in Prague, making it one of the few successful assassinations of a high profile Nazi during the WW2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Following the war, Franz Böttger, a supervisor at Dachau, was hunted down and captured by his own surviving victims. This is Dachau survivor Michael Pellis personally approaching and identifying Böttger, who is now trial for his life. He would be found guilty and hanged, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Oswald Pohl, the head administrator of the Nazi concentration camp system, has a final photo taken moments before he is executed by the U.S. military at Landsberg Prison. The U.S. commissioner called Pohl one of the prison’s absolute “worst of the worst”. West Germany, 1951</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201415.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. U.S. Marines in Peiping, China readies for deployment to lift the siege in Peking during the Boxer Rebellion, c. June 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Hemingway Facts Just as Wild as the Man Himself</a><br>
 
 <span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
 
@@ -601,65 +620,7 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 Amazing Facts You Definitely Didn’t Know</a><br>
-
-<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Bats eat enough insects to save the US over $1 Billion a year in crop damage and pesticide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wells Fargo was forced by the feds to rehire a whistleblower employee that reported fraud, and pay him $5.4 million in damages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Harambe’s mother, only full brother, and two of his half siblings were killed when a tub of wet chlorine tablets was left by a space heater. The toxic fumes were blown into the gorilla enclosure and killed the four gorillas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The first McDonalds Drive Through was made for soldiers, who were unable to leave their vehicle while in uniform.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Maasai tribe in Africa donated 14 cows to the United States after 9/11.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Disney World is legally allowed to build a nuclear plant in Florida under a 1960s law.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. United Airlines once forgot to escort a blind woman off the plane, despite assuring her they would. While waiting, she suddenly heard the planes door seal shut: And then, just complete silence. And I started calling out with no response. She was later saved by the maintenance crew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The iconic Einstein-sticking-his-tongue-out photo was his annoyed reaction to paparazzi goading him to smile on his 72nd birthday. It achieved cult status mostly because Einstein himself asked for a cropped version, ordered many prints and proceeded to send them to friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Robin Williams was offered, and accepted the role of The Joker in the 1989 film, Batman. Warner Brothers had only made the offer to bait their first choice, Jack Nicholson, into signing on, which he eventually did. Williams was furious, and demanded an apology from the film studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Tiger beetles run so fast they temporarily blind themselves. When moving at up to 120 body lengths per second, their environment becomes a blur as their eyes cant gather enough light to form an image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A fire destroyed most of Harvard Library’s collection in 1764. Only a small number of books were spared, including 144 that were checked out at the time. One of these books was found and returned in 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Donald Duck has a twin sister named Della. First mentioned back in 1937, she did not make her animation debut until 2017. She is actually the mother of Huey, Dewey, and Louie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There are more Lebanese descendants in Brazil than people living in Lebanon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Batmans suit, arsenal of awesome gadgets, and secret identity were not created by Bob Kane. Gotham City was not even created by him. All these creations belong to Bill Finger, who died penniless while Kane did everything he could to suppress Finger’s involvement in creating the character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. World War II Spitfires only had about 20 seconds of gun time before running out of ammo, making most movie depictions wildly inaccurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bermuda has no natural water source. Each house collects rainwater using white, stepped roofs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Scientists at the Parkes radio telescope in Australia spent 17 years trying to identify powerful but extremely short radio bursts that would appear at seemingly random intervals. In 2015 they finally identified the cause: a microwave oven at the facility being opened prematurely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Pop Rocks, Tang, and Cool Whip were all invented by one person, Dr. William A. Mitchell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the operatic song in The Fifth Element, composer Eric Sierra purposely wrote un-singable things so she’d sound like an alien. When opera singer Inva Muls came for the part, she sang 85% of what [Eric] thought was technically impossible, the rest being assembled in the studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200443.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
+## <a href="#linky14" id="linky13">Freeloading Coworkers Get Ousted After Scapegoating the Only Dedicated Employee</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125313/87201194/h66AF0AE4.png" style="width:100%"><br>
 
@@ -680,6 +641,125 @@ Uncle Jon, of course, was still in the room because there was also still Yuengli
 <span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125609/87201204/hFFFFBD24.png" style="width:100%"><br>
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/125613/87201205/hC452EB39.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">Trashy Tenant Throws Garbage into Neighbor’s Yard, Gets Instant Karma</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035807/87201423/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035819/87201424/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035830/87201426/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035756/87201422/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035744/87201421/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/27/035827/87201425/six.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">25 Worst Mistakes Ever Made by a Coworker</a><br>
+
+<span style="font-size:4em">1. At a Petco, all the Guinea pigs were in a big plexiglass enclosure with a center divider. Boys on one side and girls on the other. An employee decided that all the long haired Guinea pigs should be on one side and short-haired on the other. It took forever to sort them out and all the females were pregnant.
+
+-u/PumpkinsDad
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Not a mistake necessarily, but I once witnessed our chief accounting officer (and our only accountant; it was a small company) type in values into two Excel cells, pull out a calculator, add the two numbers together in the calculator, and then type the answer in a third cell. She had apparently been doing this for years, with sheets consisting of thousands of rows. I explained how to use formulas and copy them but she apparently forgot because I saw her doing the same thing again months later.
+
+-u/zachm26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Tried to cool down hot oil (in a chute, all ready to be emptied) with a nice big bucket of water…..I heard “THOMAS NO” only to turn around and see a GEYSER of hot oil shooting towards the ceiling before it hit and splashed down around him. Nobody was hurt some f*cking how.
+
+-u/Ohiolongboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. When I worked construction, there was a guy who showed up with nothing in his tool belt except a small bag of peanuts in one pocket. He didnt stay around too long.
+
+-u/Incredible_mango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I had a coworker who was a guidance counselor at five schools in the district. She was supposed to work one day at each school, unless she was called to a school for an urgent case. She would frequently call the school she was supposed to be at, stating she had an urgent case at another school.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+One day at lunch she was talking about what was happening in her favorite soap opera. This was before VCRs, and the show aired long before the school day ended. The principal was sitting at our lunch table. He got up, smiled, and told her, see me when you are done with your lunch. After checking, she hadnt seen more than a few kids per week, for many months. Funny thing is, complaints about her work had gone down in that time. She was a crappy guidance counselor.
+
+-u/1Os</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The designer, creative director, and head of production all missed that there was an eight-day week on a calendar. We sent 10,000 copies of a useless calendar to a client. Rightly so, they refused to pay for it.
+
+-u/atot806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I worked on a golf course during the summer. Area with lots of poison ivy. Two of my coworkers were instructed to weedy a river edge area. If we encounter poison ivy, we either stop what we are doing or go get full suit protection with respirators. These dumbasses were weed-whacking in the thickest poison ivy I had ever seen. No protective suit or glasses or respirator. I roll up and notice what the hell theyre doing and point out all the poison ivy everywhere- they were aerosolizing the oil. They both ended up in the hospital on steroids to prevent their death because of the oils they inhaled.
+
+-u/Onwisconsin42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I grabbed the arm of an intern once, right as he was about to grab a 00 gauge (the big wires that feed electricity the whole building) bare-handed to move it out of the way to show us a problem behind. It was hot.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+ He claimed it was fine cause he was only gonna touch one wire at a time. The lead electrician respectfully requested said intern be removed from his sight before turning himself into carbon and paperwork. I agreed with this sentiment and had an intern watching OSHA videos for almost 3 days straight as punishment.
+
+-u/overengineered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201441.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I worked in a paint shop and every time a new chemical was introduced to the shop, I would ask about the hazards. They would tell me that it is a green chemical; there are no hazards. Its baby safe they would say. Once when I entered the shop I saw a guy using a new spray. The side of the bucket indicated that it was dangerously poisonous and highly corrosive.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201443.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I told him that he should be using a mask and gloves to use that chemical. He said Dont worry, its baby safe. They even have a picture of a baby playing in it. Sure enough it did.
+After seeing the image, I yelled at the guy This is the baby. He is not playing, he is not swimming, HES DYING!
+
+-u/TomoyoHoshijiro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Shut down a critical file server, then lied about it...even after he was presented with the logs that showed it was his user account that initiated the shut down. Its not so much the mistake that he made, but it was when he lied about making the mistake...that was a rookie move.
+
+-u/muppetmat13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. New guy was dragging two 8000lb rolls of paper through the warehouse. This is against the rules for good reason, anyway, he drove through a door designed for 1 roll, and drug the top roll through the wall.
+
+-u/GrandMoffHarkonen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When I was in the Navy, this known dumbass and pathological liar was on armed watch with an M-14 patrolling the topside decks. Literally, all you have to do is walk around for 4 hours with a rifle on your shoulder. This dude came back to the Quarterdeck (main entrance to the ship) WITH NO GUN. He tried to claim it fell off his shoulder and into the water while tying his shoe. How a rifle would fall off your shoulder, pass through your hands that were tying the shoe, and through all three lifelines (like guard rails) is still a mystery. My theory is that he was doing drill team stuff - like tossing it spinning in the air - and lost it that way.
+
+-u/not-gandalf-bot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Tried to retrieve his lighter from a deep fat fryer with his hands. boy was that fun to clean up.
+
+-u/Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Worked in a machine shop. One of the lathe operators left the bar of cold-rolled steel he was turning hanging out the back. When he turned the machine on, it literally deformed and turned into a freaking helicopter blade that ripped the back of the machine apart, and eventually flew off at high speed. Luckily no one got hit by it. If so, theyd be dead.
+
+-u/ribeye256</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The office we worked in was shut down due to Covid and the company went 100% remote. A new senior engineer was hired to work directly with our product team and also manage a team of developers. During our company-wide weekly Zoom meeting after he was done presenting for the company he turned his camera off but forgot to put himself on mute. 100+ people heard this man playing Fortnite and talking down about the company to someone else in the background among other things. He only lasted a month.
+
+-u/theysocool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I used to work for a landscaping company and over the course of a summer, I witnessed one of my co-workers accidentally set 3 different things on fire (a hedge trimmer, a truck, and himself).
+
+-u/RosenBrtt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Poured sink cleaning solution into the ice cream machine instead of the cream mixture and I had to stop them, they then said: Im sure itll be fine, it was only a little. No that would poison people. I had to clean out the whole machine top to bottom and refill it. I ended up throwing away nearly a whole bucket full of contaminated ice cream mixture. I would also like to add that the containers didnt look anything alike, the sink stuff came in big plastic jugs with screw tops and the ice cream comes in cardboard cartons (like orange juice) that you have to cut open. So I dont know how she could have possibly mixed the two up.
+
+-u/Yaboijustlikesgoats</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Took the wrong coffin to a funeral. Someone else had to drive to the cemetery with the correct deceased on board, and thankfully they made it before the viewing.
+
+-u/Shubabi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I worked as a Radiation Protection Tech at a power plant that was re-fueling. My job was to sit outside of a contaminated area and if anyone wanted to take something out of the area (tools, etc.) I had to make sure it didnt have any radioactive particles on it. To do this you wipe the tool with something like a tissue and then hold the tissue up to a machine called a frisker. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201454.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
