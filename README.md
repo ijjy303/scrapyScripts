@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/29/2022-13:47:17
+Last updated: 06/29/2022-14:47:18
 <br>
 ## <a href="#linky2" id="linky1">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
 
@@ -77,71 +77,49 @@ Last updated: 06/29/2022-13:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 Wild and Crazy Things People Put in Their Wills</a><br>
+## <a href="#linky3" id="linky2">Hemingway Facts Just as Wild as the Man Himself</a><br>
 
-<span style="font-size:4em">1. My vindictive grandmother left my aunt $20 as a reminder of the $20 my aunt stole from her once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202020.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Not a Lawyer, but an aging woman my family knew left her house(large, and in a very affluent neighborhood) and estate to family friends for so long as her cats were alive and taken care of in said house. After they died, the house was to be sold and the remaining estate donated.The weird thing is, its been like 20 years and the cats are still alive.Also, theyve changed color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202005.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Not a lawyer but my mom put in her will that if she dies under suspicious circumstances that my sister and I won’t be left anything. She watches a lot of true crime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202006.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Saw this answer from a similar question some time ago. When a dad died he set up financial installments so long as his daughter remains under a certain weight. Dude was controlling her diet from the grave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202007.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I (early 20s) was forced to write a will due to the health insurance i get at work, and, amongst sensible stuff, the in-house lawyer said it was totally okay for this clause to be added:My funeral wishes are that i be buried in a coffin which has been springloaded, such that opening the coffin would cause alarm to future archeologistsThen a bunch of stuff about if this is to costly id be cremated and have my ashes scattered in a specific place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202008.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Not a lawyer, but I work at a law firm. One client left $100,000.00 to his two cats so they could maintain their current lifestyle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202009.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. When my grandfather passed his will asked that I clean out his shed, and I alone.I found marijuana seeds, old reel style film pornography, which was hilarious and a bunch of other unsavory paraphernalia. 50s flick knives too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202010.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Just last week I handled a matter where the parents left millions in artwork to various people, wads of cash to various charities, and only left their kids the family cats. Turns out they did it because the kids got them the cats to comfort the parents in their old age and the parents f*****g hated the cats but the kids wouldn’t let them get rid of the cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202011.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I work in probate. The oddest thing I’ve seen in a will is to euthanize their beloved horse, have it cremated and it’s ashes scattered with the decedent. Lucky for her horse, she named a horse that was already dead so the one she got afterwards lived to see another farm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202012.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A furby collection from models collected in the late 90’s. They were convinced they would retain future value.This was 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202013.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Lots of people sending their friends and family on weird errands to spread their ashes (leaving money for people to take trips and spread their ashes around the world). Pet trusts are a fun one: leaving a whole whack of money in a trust to be used for the care of the pet during their life. However, my favorite ever (that I obviously didn’t draft) was a lawyer who left the bulk of his estate (millions in today’s dollars) to whatever Toronto-area woman had the most children at a specific date some years in the future. I recall the winner had 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202014.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. My own grandmother specified which of the children and grandchildren should get which of the family recipes, and somehow felt the need to include commentary about why certain decisions were made. One recipe was this Prohibition-era recipe for beer which I knew my uncle, also a home brewer, wanted, but she left it to me, with the comment that I know you wanted it, Teddy, but she has the second-best penmanship of the girls and will make you a copy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202015.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-And then like eight pages later, in among the specific descriptions of her vast collection of romance novels (really,) was a line: And [specific Jude Devereaux title] to Spidey, who will please subtract about half the hops before she copies the beer recipe for her Uncle Teddy so that any of us can drink it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202016.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">Our Jon had his IPA last summer and just about died.Uncle Jon just about burst into tears laughing and Uncle Teddy had long since left the room because he has no f***s whatsoever to give about romance novels. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202017.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Uncle Jon, of course, was still in the room because there was also still Yuengling. And no, I have no idea how she got this will done. My guess is she wrote it herself and the law students who come to her independent-living building signed off on it. It was...elaborate, thats for sure. The total value of the estate was well under eight thousand dollars, so it was mostly a funny last letter from Grandma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202018.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. No, maam, in order to bequeath something, you actually have to own it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202019.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I am a qualified solicitor, my favourite two are:1. A lady wanted to create a trust fund of £100,000, for her pet fish. When I asked if it was a special kind of fish, she confirmed it was just a normal goldfish but she wanted it to be fed fresh avocado every day and be looked after by a local dog walker after she died. She was absolutely serious.2. Another lady confessed she had a secret daughter, and she wanted to leave the daughter some money and photographs without the rest of her family finding out. Even her husband does not know. That will be a fun conversation when she passes away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202021.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I had the first son so my dad decided to leave me more. Except he did the math wrong and it came out to 105%. He had dementia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202022.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. My sister’s mother in-law is leaving her house to her three sons. If one wants to sell out his third of the house, he has to sell it to the other two brothers for $1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202023.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Might be late to the party and not a lawyer, but my great-grandad had a clause in his will that stated something along the lines of, “if any of the beneficiaries decide to dispute the contents of the decedent’s estate, their share becomes $1 and nothing else.”Seemed like a pretty good way to maintain harmony among his survivors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202024.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Had a very attractive woman with terminal cancer try to get herself stuffed by a taxidermist and given to some rich guy that had been basically a sugar daddy to her for a few months. She said He would give me a million dollar a week allowance as long as it was in an official will that he could see. I sent her to a lawyer who I knew that would do about anything for a buck because I didnt want to end up in the news when she died. That was 2 years ago, no clue what happened to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Lady wanted her small dog to be buried with her. If the dog happened to be alive when the lady passed, she wanted the dog put down and then join her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In my Mums will, which I have seen, she has left me the kitchen table and chairs. She lives on a South Manchester council estate. My brother gets the sideboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Client wanted her ashes spread at the restaurant (on the beach) where she met her husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. i got some rock my grandpa really liked</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My grandfather left me $1.00, he had dementia and confused my dad ripping him off with me. He left the rest of the family between $100,000 And a few million each.They all said they felt horrible because they knew the details, but not horrible enough to give up any of their share.The way I see it is it was never my money to begin with, so its not a loss. Im just glad my sister got a hundred thousand,she needed it more than any of the others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. When my great grandad died in his will he stated that his coin collection be split equally across his family. There was like 8-9 of us and 3 potato sacks full of coins. So we all gathered round a table and each took one coin each until nothing was left. Among the coins was an Iron Cross, which was quiet odd as the only person on that side of the family that went to war was his dad, and he served with the ANZAC’s in WW1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Here’s one from one of my dad’s law partners. He had a lady come in with an itemized list of books and wanted her will to contain all of the books and who will get what based on her choosing. So basically she decides who gets what specific book instead of letting her beneficiaries decide. The truly astonishing thing is how many books and how specific they get. According to dad’s law partner her list is at about 2,000 books to be divided among about 30 people. She is apparently very specific and comes back at least once a year to add all the new books she’s gotten.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Not a lawyer but my grandpa put in his will a chocolate bar for everyone one of his grand kids. Well I have like 12 cousins and very difficult to track down where a couple of them went. All this estates and money he had in will was at a stand still for months because they couldn’t find my couple cousins. Had to show court we put in effort to hire someone to track them down etc. The lawyer that was helping execute the Will was blown away that this lawyer allowed this and why he wouldn’t highly suggest not to do it. But I’m not complaining cause I got a Toblerone out of the deal!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I’m the executor of my grandmother’s will. I also get the house and everything in it and a share of life insurance that’s split three ways between myself, sister, and mom. My mom has always said that all my dad , my grandmothers son-in-law, would like to have is some table. Well in the will there’s like a whole paragraph that states how my dad gets nothing, he doesn’t lay a finger on any thing in the house or any money. How my dad is basically worthless and deserves nothing and how he was a c**p dad and that she begrudgingly has my mom in the will. Thanks grandma I’ll appreciate the awkwardness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202034.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -313,49 +291,7 @@ After seeing the image, I yelled at the guy This is the baby. He is not playing,
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Proof That Old People Don’t Understand The Internet</a><br>
-
-<span style="font-size:4em">1. I guess grandma was a bit too happy about the murder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. While the greeting is cute and amusing, the uploader says he never received the gift she promised him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Grandma wants to date again, and DMs are a bit too old-school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In defense of the elderly, she isnt the only person who hates Squirrels. Donald Duck hates them as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Thats her profile pic, and what does that comment even mean?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Yep, the group would love a random message about nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Geez, I dont know. When did we purchase Facebook?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The occasion certainly calls for a celebration.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Found in the comments of a facebook ad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My granny’s first story on her new Facebook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Aunt is Feeling Blessed?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. From the Nextdoor app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A not so perfect day at the beach.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Watch out ladies! How could anyone resist?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Well, I guess well just have to take his word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. You can tell how much she loves them by her smile!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Better safe than sorry after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Im not sure thats how that works. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Well, all of the letters are right, just need to work on the order. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200561.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
+## <a href="#linky6" id="linky5">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202181.png" style="width:100%"><br>
 
@@ -376,6 +312,86 @@ After seeing the image, I yelled at the guy This is the baby. He is not playing,
 <span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202189.png" style="width:100%"><br>
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202190.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -437,173 +453,7 @@ After seeing the image, I yelled at the guy This is the baby. He is not playing,
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">16 Trashy Posts To Take Out to the Dumpster</a><br>
-
-<span style="font-size:4em">1. A warning before you board your next flight. Sanitize everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Nothing is more trashy than using a dead brothers page for promoting ticket sales.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Well, As if hotels werent filthy enough. Time to cancel all the travel plans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. What happened here that they had to put the sign over it?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Yep, just a regular massager up for sale at a local shop next to kid items.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. It must have happened for real if they had to put a sign there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I was distracted by the bananas until I saw that sign on her back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Geez Louise. This is absolutely bonkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This has to be a mildly inappropriate pose.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Thats one way to hold on. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. So is she admitting to shoplifting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I wonder when they figured this out?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200439.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">35 Darn Fine Random Pics and Interesting Photos to Enjoy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121415/87202116/87199719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121353/87202114/87199707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121341/87202111/87199693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121342/87202112/87199698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121352/87202113/87199702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121404/87202115/87199709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121430/87202117/87199728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121433/87202118/87199725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121435/87202119/87199731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121444/87202120/87199737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121446/87202121/87199748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121449/87202122/87199749.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">17 Things that are Irrationally Irritating</a><br>
-
-<span style="font-size:4em">1. “Faceplanted onto asphalt yesterday. Literally my nightmare.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Having to clean this up after a movie”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I was mowing the lawn and found some money.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “The toilet paper at a $30,000,000,000 company”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My first day as a delivery guy at Domino’s”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Before you ask, it’s a jackfruit.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Just wanted a croissant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Finally got a prize from the claw game... at least I thought I did.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I appreciate your late night attempt to clean, random party guest, but wooden cutting boards DO NOT go in the dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “I just spilled a full cup of orange juice all over myself on the last day of vacation. And I didn’t bring an extra pair of pants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Accidentally ran my favorite necklace through the washing machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Was waiting for a new tree, but got more sidewalk instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My sister is borrowing my car and pissed someone off because she kept parking in the handicapped parking space.”
-
-“So they keyed my car in retaliation.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “This $10 salad I paid for at a restaurant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Found some graffiti on my fence this morning. Just finished putting it up a couple weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Get away from me you creep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “How they cut the cake at my aunt’s birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201313.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">Jerk Police Officer Trolled by Maliciously Compliant Deaf Driver </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023738/87203479/malicious-compliance-deaf-guy1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023742/87203480/malicious-compliance-deaf-guy2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023730/87203478/malicious-compliance-deaf-guy3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023838/87203483/malicious-compliance-deaf-guy-comments3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023833/87203482/malicious-compliance-deaf-guy-comments1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023826/87203481/malicious-compliance-deaf-guy-comments2.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
+## <a href="#linky9" id="linky8">50 Random Pictures Images and Memes to Get You Through the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87201569.jpg" style="width:100%"><br>
 
@@ -707,83 +557,263 @@ After seeing the image, I yelled at the guy This is the baby. He is not playing,
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
+## <a href="#linky10" id="linky9">35 Darn Fine Random Pics and Interesting Photos to Enjoy</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121415/87202116/87199719.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201949.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201911.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121353/87202114/87199707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201943.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201918.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201920.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201938.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201925.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201928.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201929.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201913.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201930.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201933.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201934.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201936.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201937.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201941.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201944.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201946.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201939.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121341/87202111/87199693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121342/87202112/87199698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121352/87202113/87199702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121404/87202115/87199709.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201917.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121430/87202117/87199728.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121433/87202118/87199725.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121435/87202119/87199731.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121444/87202120/87199737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121446/87202121/87199748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121449/87202122/87199749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">16 Trashy Posts To Take Out to the Dumpster</a><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. A warning before you board your next flight. Sanitize everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Nothing is more trashy than using a dead brothers page for promoting ticket sales.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Well, As if hotels werent filthy enough. Time to cancel all the travel plans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. What happened here that they had to put the sign over it?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Yep, just a regular massager up for sale at a local shop next to kid items.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. It must have happened for real if they had to put a sign there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was distracted by the bananas until I saw that sign on her back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Geez Louise. This is absolutely bonkers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This has to be a mildly inappropriate pose.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Thats one way to hold on. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. So is she admitting to shoplifting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I wonder when they figured this out?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200439.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">17 Things that are Irrationally Irritating</a><br>
+
+<span style="font-size:4em">1. “Faceplanted onto asphalt yesterday. Literally my nightmare.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Having to clean this up after a movie”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I was mowing the lawn and found some money.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “The toilet paper at a $30,000,000,000 company”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “My first day as a delivery guy at Domino’s”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Before you ask, it’s a jackfruit.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Just wanted a croissant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Finally got a prize from the claw game... at least I thought I did.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I appreciate your late night attempt to clean, random party guest, but wooden cutting boards DO NOT go in the dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I just spilled a full cup of orange juice all over myself on the last day of vacation. And I didn’t bring an extra pair of pants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Accidentally ran my favorite necklace through the washing machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Was waiting for a new tree, but got more sidewalk instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My sister is borrowing my car and pissed someone off because she kept parking in the handicapped parking space.”
+
+“So they keyed my car in retaliation.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “This $10 salad I paid for at a restaurant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Found some graffiti on my fence this morning. Just finished putting it up a couple weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Get away from me you creep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “How they cut the cake at my aunt’s birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201313.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">30 Wild and Crazy Things People Put in Their Wills</a><br>
+
+<span style="font-size:4em">1. My vindictive grandmother left my aunt $20 as a reminder of the $20 my aunt stole from her once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Not a Lawyer, but an aging woman my family knew left her house(large, and in a very affluent neighborhood) and estate to family friends for so long as her cats were alive and taken care of in said house. After they died, the house was to be sold and the remaining estate donated.The weird thing is, its been like 20 years and the cats are still alive.Also, theyve changed color.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Not a lawyer but my mom put in her will that if she dies under suspicious circumstances that my sister and I won’t be left anything. She watches a lot of true crime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Saw this answer from a similar question some time ago. When a dad died he set up financial installments so long as his daughter remains under a certain weight. Dude was controlling her diet from the grave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I (early 20s) was forced to write a will due to the health insurance i get at work, and, amongst sensible stuff, the in-house lawyer said it was totally okay for this clause to be added:My funeral wishes are that i be buried in a coffin which has been springloaded, such that opening the coffin would cause alarm to future archeologistsThen a bunch of stuff about if this is to costly id be cremated and have my ashes scattered in a specific place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Not a lawyer, but I work at a law firm. One client left $100,000.00 to his two cats so they could maintain their current lifestyle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When my grandfather passed his will asked that I clean out his shed, and I alone.I found marijuana seeds, old reel style film pornography, which was hilarious and a bunch of other unsavory paraphernalia. 50s flick knives too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Just last week I handled a matter where the parents left millions in artwork to various people, wads of cash to various charities, and only left their kids the family cats. Turns out they did it because the kids got them the cats to comfort the parents in their old age and the parents f*****g hated the cats but the kids wouldn’t let them get rid of the cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I work in probate. The oddest thing I’ve seen in a will is to euthanize their beloved horse, have it cremated and it’s ashes scattered with the decedent. Lucky for her horse, she named a horse that was already dead so the one she got afterwards lived to see another farm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A furby collection from models collected in the late 90’s. They were convinced they would retain future value.This was 2011.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Lots of people sending their friends and family on weird errands to spread their ashes (leaving money for people to take trips and spread their ashes around the world). Pet trusts are a fun one: leaving a whole whack of money in a trust to be used for the care of the pet during their life. However, my favorite ever (that I obviously didn’t draft) was a lawyer who left the bulk of his estate (millions in today’s dollars) to whatever Toronto-area woman had the most children at a specific date some years in the future. I recall the winner had 10.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My own grandmother specified which of the children and grandchildren should get which of the family recipes, and somehow felt the need to include commentary about why certain decisions were made. One recipe was this Prohibition-era recipe for beer which I knew my uncle, also a home brewer, wanted, but she left it to me, with the comment that I know you wanted it, Teddy, but she has the second-best penmanship of the girls and will make you a copy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+And then like eight pages later, in among the specific descriptions of her vast collection of romance novels (really,) was a line: And [specific Jude Devereaux title] to Spidey, who will please subtract about half the hops before she copies the beer recipe for her Uncle Teddy so that any of us can drink it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">Our Jon had his IPA last summer and just about died.Uncle Jon just about burst into tears laughing and Uncle Teddy had long since left the room because he has no f***s whatsoever to give about romance novels. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Uncle Jon, of course, was still in the room because there was also still Yuengling. And no, I have no idea how she got this will done. My guess is she wrote it herself and the law students who come to her independent-living building signed off on it. It was...elaborate, thats for sure. The total value of the estate was well under eight thousand dollars, so it was mostly a funny last letter from Grandma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. No, maam, in order to bequeath something, you actually have to own it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I am a qualified solicitor, my favourite two are:1. A lady wanted to create a trust fund of £100,000, for her pet fish. When I asked if it was a special kind of fish, she confirmed it was just a normal goldfish but she wanted it to be fed fresh avocado every day and be looked after by a local dog walker after she died. She was absolutely serious.2. Another lady confessed she had a secret daughter, and she wanted to leave the daughter some money and photographs without the rest of her family finding out. Even her husband does not know. That will be a fun conversation when she passes away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I had the first son so my dad decided to leave me more. Except he did the math wrong and it came out to 105%. He had dementia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My sister’s mother in-law is leaving her house to her three sons. If one wants to sell out his third of the house, he has to sell it to the other two brothers for $1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Might be late to the party and not a lawyer, but my great-grandad had a clause in his will that stated something along the lines of, “if any of the beneficiaries decide to dispute the contents of the decedent’s estate, their share becomes $1 and nothing else.”Seemed like a pretty good way to maintain harmony among his survivors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Had a very attractive woman with terminal cancer try to get herself stuffed by a taxidermist and given to some rich guy that had been basically a sugar daddy to her for a few months. She said He would give me a million dollar a week allowance as long as it was in an official will that he could see. I sent her to a lawyer who I knew that would do about anything for a buck because I didnt want to end up in the news when she died. That was 2 years ago, no clue what happened to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Lady wanted her small dog to be buried with her. If the dog happened to be alive when the lady passed, she wanted the dog put down and then join her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In my Mums will, which I have seen, she has left me the kitchen table and chairs. She lives on a South Manchester council estate. My brother gets the sideboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Client wanted her ashes spread at the restaurant (on the beach) where she met her husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. i got some rock my grandpa really liked</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My grandfather left me $1.00, he had dementia and confused my dad ripping him off with me. He left the rest of the family between $100,000 And a few million each.They all said they felt horrible because they knew the details, but not horrible enough to give up any of their share.The way I see it is it was never my money to begin with, so its not a loss. Im just glad my sister got a hundred thousand,she needed it more than any of the others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. When my great grandad died in his will he stated that his coin collection be split equally across his family. There was like 8-9 of us and 3 potato sacks full of coins. So we all gathered round a table and each took one coin each until nothing was left. Among the coins was an Iron Cross, which was quiet odd as the only person on that side of the family that went to war was his dad, and he served with the ANZAC’s in WW1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Here’s one from one of my dad’s law partners. He had a lady come in with an itemized list of books and wanted her will to contain all of the books and who will get what based on her choosing. So basically she decides who gets what specific book instead of letting her beneficiaries decide. The truly astonishing thing is how many books and how specific they get. According to dad’s law partner her list is at about 2,000 books to be divided among about 30 people. She is apparently very specific and comes back at least once a year to add all the new books she’s gotten.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Not a lawyer but my grandpa put in his will a chocolate bar for everyone one of his grand kids. Well I have like 12 cousins and very difficult to track down where a couple of them went. All this estates and money he had in will was at a stand still for months because they couldn’t find my couple cousins. Had to show court we put in effort to hire someone to track them down etc. The lawyer that was helping execute the Will was blown away that this lawyer allowed this and why he wouldn’t highly suggest not to do it. But I’m not complaining cause I got a Toblerone out of the deal!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I’m the executor of my grandmother’s will. I also get the house and everything in it and a share of life insurance that’s split three ways between myself, sister, and mom. My mom has always said that all my dad , my grandmothers son-in-law, would like to have is some table. Well in the will there’s like a whole paragraph that states how my dad gets nothing, he doesn’t lay a finger on any thing in the house or any money. How my dad is basically worthless and deserves nothing and how he was a c**p dad and that she begrudgingly has my mom in the will. Thanks grandma I’ll appreciate the awkwardness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87202034.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Proof That Old People Don’t Understand The Internet</a><br>
+
+<span style="font-size:4em">1. I guess grandma was a bit too happy about the murder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. While the greeting is cute and amusing, the uploader says he never received the gift she promised him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Grandma wants to date again, and DMs are a bit too old-school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In defense of the elderly, she isnt the only person who hates Squirrels. Donald Duck hates them as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Thats her profile pic, and what does that comment even mean?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Yep, the group would love a random message about nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Geez, I dont know. When did we purchase Facebook?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The occasion certainly calls for a celebration.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Found in the comments of a facebook ad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My granny’s first story on her new Facebook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My Aunt is Feeling Blessed?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. From the Nextdoor app.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A not so perfect day at the beach.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Watch out ladies! How could anyone resist?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Well, I guess well just have to take his word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. You can tell how much she loves them by her smile!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Better safe than sorry after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Im not sure thats how that works. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Well, all of the letters are right, just need to work on the order. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200561.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -837,49 +867,102 @@ After seeing the image, I yelled at the guy This is the baby. He is not playing,
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Hemingway Facts Just as Wild as the Man Himself</a><br>
+## <a href="#linky16" id="linky15">Amazing Records That Will Never Be Broken</a><br>
 
-<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. FDR being elected US president 4 times.
+
+-u/holyhellnothingworks
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Joe DiMaggios consecutive hit streak. Ichiros 262 hits in a season.
+
+-u/nyxstal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Lion King as the highest VHS sales of all time.
+
+-u/Fawqueue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Jacque Villeneuve, Michael Schumacher and Heinz Harald Frentzen set the exact same time in qualifying in the 1997 European Grand Prix. To the THOUSANDTH of a second.
+
+-u/DaBi5cu1t</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. When I was a kid, we had a Guinness book of records lying around that we liked to browse in while bored. There was this one guy in it who held a record for most bikes eaten. No, you did read that right. He ground up a bike and slowly consumed it over I dont know how long a time.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+The record was accompanied by a note that no further records of bike eating would be accepted, as it was deemed too dangerous.
+
+-u/Picajosan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The longest professional tennis match of all time: John Isner vs Nicolas Mahut at Wimbledon 2010. It lasted 11 hours 5 minutes, spanning 3 days of play, with a final score of 6-4, 3-6, 6-7, 7-6, 70-68
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+It was already nearly twice as long as the previous record holder. The reason it will likely never be broken is that every professional tournament except for one (Roland-Garros) now has tiebreaker rules that limit the number of games that can be played in final sets. Although it’s hypothetically possible at RG, clay court tennis is not at all conducive to the serve-and-volley style of play that led to the insanely long 5th set of Isner-Mahut.
+
+-u/MSims2992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The current record for the Cannonball Run, a drive from NY to LA, is about 25.5 hours. It was set in May of 2020, and the drivers were able to make use of the lack of traffic due to the pandemic to break the record. Barring another similar world-changing event, traffic conditions will probably never be what they were when that record was set.
+
+-u/SexyNeanderthal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203366.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Aleksandr Karelin, Greco-Roman wrestler. 887 wins to 2 losses. Entered 9 world championships and never lost a bout in them.
+
+-u/minorboozer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Glenn Hall played 502 consecutive games as an NHL goalie. Zero chance that will ever be broken, goalies these days rarely play more than 3/4 of an 82-game season, let alone numerous seasons without a night off.
+
+-u/ButtholeQuiver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The current unlimited record is 511.11 km/h (317.59 mph), achieved by Australian Ken Warby in the Spirit of Australia in 1978.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203369.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203370.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+It hasn’t been broken to this day due to how dangerous it is to go at those sort of speeds on the surface and plenty of people have passed away trying.
+
+-u/Sliiated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Cy Young pitched 749 complete games in his career.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203372.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+The current active pitcher with the most complete games in his career is Adam Wainwright, who has pitched for 17 years and has 27 complete games total. Pitchers just don’t pitch the whole game anymore, and Young’s record will never come close to being touched.
+
+-u/VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Luigi Fagioli won the 1951 French Grand Prix at the age of 53 years, 22 days - making him the oldest F1 winner in history. Given that F1 drivers rarely continue driving past 40 anymore, this record looks pretty safe.
+
+-u/GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203375.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. John Isner hit 113 aces in his 70-68 match at Wimbledon played over 3 days. That record will never be broken because Wimbledon changed their rules so they can’t play that many games ever again! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Wayne Gretzky’s career points.
+
+-u/CauliflowerNinja</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Tigers Woods’ 142 consecutive cuts made. Didn’t miss a cut between 1998 and 2005.
+
+-u/JATPOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ronnie OSullivans quickest maximum 147 break.
+
+-u/dezzalzik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Wade Boggs drank 107 beers on a domestic flight. RIP Wade Boggs. (Hes alive)
+
+-u/sherifchrismannix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203380.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
