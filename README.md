@@ -1,102 +1,73 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/30/2022-13:47:18
+Last updated: 06/30/2022-14:47:18
 <br>
-## <a href="#linky2" id="linky1">Overworked Employee Gets 10K Raise After Independent Job Audit </a><br>
+## <a href="#linky2" id="linky1">24 Comforting Facts For Your Day</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112752/87204164/sort-thrived-this-as-very-useful-person-example-one-guy-would-spend-half-his-day-copying-items-and.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112815/87204167/just-showed-up-one-day-and-took-notes-during-our-morning-meeting-at-one-point-someone-brought-up-n.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112804/87204165/ended-up-deep-on-our-file-structure-and-search-returned-personal-folder-structure-within-one-dri.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112823/87204168/not-be-present-2-weeks-so-whatever-work-they-currently-need-do-they-will-need-do-themselves-be-s.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112813/87204166/theres-no-way-some-guys-were-keeping-up-with-their-normal-duties-guaranteed-at-least-2-peo.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112742/87204163/have-even-started-one-hope-not-if-could-please-reach-back-would-like-offer-raise-has-become-very.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113706/87204222/60-time-works-100-time-387-reply-share-donsnorrlione-2-days-ago-my-go-line-is-need-have-ticket.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113647/87204215/see-us-meeting-once-month-if-this-member-my-team-wouldve-been-cheering-them-as-shit-fell-apa.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113636/87204212/work-if-company-makes-things-difficult-at-end-day-first-priority-has-be-and-career-363-reply-share.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113659/87204219/level-manager-saying-things-will-fall-apart-and-everything-is-on-fire-right-now-24k-reply-share.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113706/87204220/15-hours-day-with-them-maybe-not-s-two-whole-positions-restart-maybe-half-them-162-reply-share.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">30 Chilling Facts You May Regret Learning</a><br>
-
-<span style="font-size:4em">1. Speaking from personal experience here, but your body can randomly decide to become allergic to damn near everything edible at any time. Not very fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The oldest person alive was born with an entirely different set of humans on the planet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. ‘Money can’t buy happiness.’A phrase taught that you don’t need money to be happy, conveniently though those on $50k + salaries tend to live longer than those on the bread line.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Antarctica smells like penguin poop.Antarctica is a desert, it is too cold for bacteria to live. Nothing there to clean up penguin droppings. If you are close enough to see penguins, you will also smell them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Your brain blocks you from feeling your organs moving around inside you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Thanks to pregnant women, the average skeleton count per person is higher than one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In the books, Stuart Little was never explicitly called a mouse. Hes pretty much described as a deformed mouse-esque person born form human parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The united states has misplaced or lost 6 nuclear weapons over the years.There have been 32 Broken Arrow incidents, which are unexpected incidents involving a nuclear weapon. Of those 32, 6 were lost and never found.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Crows are currently in their own Stone Age. They’ve been seen making very articulate tools.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Guests love to dump the ashes of their loved ones on the Haunted Mansion ride at Disneyland. In theory, this seems fine and like an okay place to do that, but when the ashes get dumped custodial cast members come in and vacuum up the ashes.If you are ever tasked with spreading ashes somewhere, do it anywhere but Disneyland. Because their ashes will not be in the park for long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. 50% of Americans diagnosed with cancer will lose their life savings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Theres a bird that feeds its younger offspring to the eldest.[FYI, roadrunner].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Butterflies, if necessary, will happily drink blood and tears.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. That Washington Sqaure Park in New York is essentially a graveyard, with an estimated 20,000 bodies buried below the surface; many were yellow fever victims, wrapped in yellow sheets and buried by the poorest residents. When the foundation for the famous arch was dug, a number of these were exposed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Only one in a thousand sea turtles born actually make it to adulthood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Malaria is the #1 cause for human [mortality] of all time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Deaf schizophrenics dont hear voices, they see hands or lips as mental images that tell them what to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. If you are an identical twin it is possible that you and your siblings identity’s were swapped and your parents never caught it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A Teratoma is a kind of tumor that can grow hair, teeth, or even eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Otters look cute but are pretty vicious animals that often threaten their own family if food is scarce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Sloths sometimes mistake their arms for tree branches and fall to their [doom].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Alzheimers disease can cause you to pass away since your brain will no longer be able to chew, swallow, breathe, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. When youre four months pregnant, the baby starts to pee inside you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In some regions of Australia, 90 percent of koalas have chlamydia, which poses a threat to the species extinction unless a vaccine is created or widespread koala culling takes place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Fun fact: the giant tortoise was so delicious, it caused not only itself to be hunted to extinction, but also the dodo.Giant tortoise meat was supposedly better tasting than chicken. Its fat tasted better spread on bread than butter. Also, it was the perfect food for sailors at the time, as their bladders stored 1 litre of purified water, and they could survive without food in hibernation for almost a whole year in the hull of a ship. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203164.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Switzerland has implemented a scheme ‘Time Bank’; which is an old-age assistance program, under which, people can volunteer to look after the elderly who require assistance, and then, the number of hours they spend with or caring for seniors gets deposited in their individual social security account. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203517.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">
 
-Not to mention, because they evolved without humans, they were easy to hunt. You could tie one to your back, and roll another to the ship and they would just let you. It was so delicious, they went unrecorded for a long time because expeditions to bring living samples of wildlife to Europe kept eating them on the way.Conversely, the dodo, while as easily captured by sailors, tasted awful. It was completely unpalatable. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203165.jpg" style="width:100%"><br>
+Eventually, when the volunteer reaches that old age when he or she requires support, this ‘Time Bank’ can help them by providing time-based services which include consultations, babysitting, hairdressing, gardening, tutoring, or any other time-consuming job in addition to being looked after by a volunteer as well. About 34 countries are trying to apply this scheme.
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There is a group of bikers called bikers against child abuse who support child abuse victims in court by looking tough and giving the kids confidence to testify against their abusers it’s actually an international group</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. There is a type of mold growing on/around the Elephants Foot in Chernobyl. This mold eats radiation, and the radioactivity of the Elephants Foot has decreased drastically since the mold started growing there. idk, its just comforting to me that the planet can heal no matter how bad the scar we left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. All of the cardigans Mister Rogers wore on camera were knit by his mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Sometimes dogs in movies have to have CGI tails because they keep wagging their tails. They are just so happy to be there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sea otters hold hands when they sleep to keep from drifting apart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The dog estimates the time of your return home by how much of your smell is left in the house from your morning routine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bees inform their friends about good flowers nearby by dancing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Its illegal in Switzerland to own just one guinea pig. You have to have at least two if you want to have any. Guinea pigs get lonely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A cat meows just for humans to hear them. And a dog dreams of its owner when it sleeps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. There’s a place in Japan called “Capybara land” where you can hang out with capybaras and see them chilling in hotsprings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. If 99 percent of the world population finds you unattractive, there are still 78 million people in the world that find you attractive.
+
+Thats a lot of people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Nurse here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203522.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203166.jpg" style="width:100%"><br>
+
+If youre having a general anaesthetic for a routine operation, and worried about dying while under, please be aware there are about 7 different levels of stuff we can do to bring you back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203532.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">
-HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicious tortoise fat, it tasted just like chicken. So now, sailors were hunting a few tortoises at a time for their fat and water, storing them, and then hunting dodos on the daily.Overhunting, plus the introduction of rats to the environment (because sailors) which would eat eggs, led go the population to decline at a rate they could not breed to keep up, leading to both animals going extinct.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203167.jpg" style="width:100%"><br>
+
+So if the thing we normally do doesnt work, weve got plan B, then weve got plans C, D, E, F, G& H. ( and we rarely need to even go to Plan C, let alone the rest!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. The TSA missed 96% of contraband during an inspection in 2015.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203168.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Its ridiculously rare for you to never wake up from a routine op, of course, it happens occasionally, but for every case youve heard about it happening, there are THOUSANDS of identical operations where it didnt. Ive been qualified 15 years and its literally never happened anywhere Ive worked.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Clowns make $30/h on average. Who is the real clown?In spite of the comments disbelieving that clowns can get work on weekdays I may just get one for my Monday D&D group now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203169.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Indias tiger population grew from 1,411 in 2006 to 2,967 tigers as per the 2018 census. Based on the best available information, tiger populations are stable or increasing in India, Nepal, Bhutan, Russia and China. But much more work is needed to protect this species if we are to secure its future in the wild.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Petting animals lowers cortisol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. If you make it to the airport without dying, youve already passed the deadliest part of plane travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Zebras rest with their heads on each other’s backs so they can literally watch their zebra buddy’s back. Plus it looks like a zebra hug.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Monarch butterfly populations are doing better. Not out of the dark, but better. I found a monarch caterpillar on my milkweed the other day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You can talk to your pet rabbit by quickly pushing your lips downwards and upwards as if you were trying to look up your nose in a mirror. Do it quickly and youre chatting. It mimics the nose movements they make and you can see them wiggle their noses faster out of interest. Copy their rhythm to and watch them talk back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Also, stomping your foot like they do as well as turning your back on them when annoyed is understood too. If they have chewed something they shouldnt have you can stomp one foot and turn around with your arms folded. Have a look over your shoulder to make sure they see you. They should come to check on you and if they dont stomp and make sure they see your back is turned. Eventually they get it and come over to make sure your ok. Then let the nose waggling commence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203540.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">25 Movies That Just Couldn’t Get Made Anymore</a><br>
+## <a href="#linky3" id="linky2">25 Movies That Just Couldn’t Get Made Anymore</a><br>
 
 <span style="font-size:4em">1. I watched Never Been Kissed for the first time in a long time and theres like three different adults romantically linked to teenagers. No one actually sleeps with them but still....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203328.jpg" style="width:100%"><br>
 
@@ -150,73 +121,7 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Redneck Moments Proving You’re Country AF</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203288.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">25 Records That Will Absolutely Never Be Broken</a><br>
+## <a href="#linky4" id="linky3">25 Records That Will Absolutely Never Be Broken</a><br>
 
 <span style="font-size:4em">1. FDR being elected US president 4 times.
 
@@ -315,6 +220,97 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky5" id="linky4">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015325/87203472/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015347/87203476/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015340/87203475/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015318/87203471/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015307/87203469/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015336/87203474/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015329/87203473/seven.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015303/87203468/eight.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015315/87203470/last.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">30 Chilling Facts You May Regret Learning</a><br>
+
+<span style="font-size:4em">1. Speaking from personal experience here, but your body can randomly decide to become allergic to damn near everything edible at any time. Not very fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The oldest person alive was born with an entirely different set of humans on the planet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. ‘Money can’t buy happiness.’A phrase taught that you don’t need money to be happy, conveniently though those on $50k + salaries tend to live longer than those on the bread line.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Antarctica smells like penguin poop.Antarctica is a desert, it is too cold for bacteria to live. Nothing there to clean up penguin droppings. If you are close enough to see penguins, you will also smell them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Your brain blocks you from feeling your organs moving around inside you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Thanks to pregnant women, the average skeleton count per person is higher than one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the books, Stuart Little was never explicitly called a mouse. Hes pretty much described as a deformed mouse-esque person born form human parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The united states has misplaced or lost 6 nuclear weapons over the years.There have been 32 Broken Arrow incidents, which are unexpected incidents involving a nuclear weapon. Of those 32, 6 were lost and never found.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Crows are currently in their own Stone Age. They’ve been seen making very articulate tools.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Guests love to dump the ashes of their loved ones on the Haunted Mansion ride at Disneyland. In theory, this seems fine and like an okay place to do that, but when the ashes get dumped custodial cast members come in and vacuum up the ashes.If you are ever tasked with spreading ashes somewhere, do it anywhere but Disneyland. Because their ashes will not be in the park for long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. 50% of Americans diagnosed with cancer will lose their life savings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Theres a bird that feeds its younger offspring to the eldest.[FYI, roadrunner].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Butterflies, if necessary, will happily drink blood and tears.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. That Washington Sqaure Park in New York is essentially a graveyard, with an estimated 20,000 bodies buried below the surface; many were yellow fever victims, wrapped in yellow sheets and buried by the poorest residents. When the foundation for the famous arch was dug, a number of these were exposed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Only one in a thousand sea turtles born actually make it to adulthood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Malaria is the #1 cause for human [mortality] of all time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Deaf schizophrenics dont hear voices, they see hands or lips as mental images that tell them what to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. If you are an identical twin it is possible that you and your siblings identity’s were swapped and your parents never caught it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A Teratoma is a kind of tumor that can grow hair, teeth, or even eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Otters look cute but are pretty vicious animals that often threaten their own family if food is scarce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Sloths sometimes mistake their arms for tree branches and fall to their [doom].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Alzheimers disease can cause you to pass away since your brain will no longer be able to chew, swallow, breathe, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. When youre four months pregnant, the baby starts to pee inside you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In some regions of Australia, 90 percent of koalas have chlamydia, which poses a threat to the species extinction unless a vaccine is created or widespread koala culling takes place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Fun fact: the giant tortoise was so delicious, it caused not only itself to be hunted to extinction, but also the dodo.Giant tortoise meat was supposedly better tasting than chicken. Its fat tasted better spread on bread than butter. Also, it was the perfect food for sailors at the time, as their bladders stored 1 litre of purified water, and they could survive without food in hibernation for almost a whole year in the hull of a ship. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Not to mention, because they evolved without humans, they were easy to hunt. You could tie one to your back, and roll another to the ship and they would just let you. It was so delicious, they went unrecorded for a long time because expeditions to bring living samples of wildlife to Europe kept eating them on the way.Conversely, the dodo, while as easily captured by sailors, tasted awful. It was completely unpalatable. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicious tortoise fat, it tasted just like chicken. So now, sailors were hunting a few tortoises at a time for their fat and water, storing them, and then hunting dodos on the daily.Overhunting, plus the introduction of rats to the environment (because sailors) which would eat eggs, led go the population to decline at a rate they could not breed to keep up, leading to both animals going extinct.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. The TSA missed 96% of contraband during an inspection in 2015.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Clowns make $30/h on average. Who is the real clown?In spite of the comments disbelieving that clowns can get work on weekdays I may just get one for my Monday D&D group now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203169.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky7" id="linky6">Employee Fired Over Technicality Takes Back Property and Leaves Company Nonfunctional</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87199300.png" style="width:100%"><br>
@@ -339,189 +335,7 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Rude Police Officer Left Befuddled by Maliciously Compliant Deaf Driver </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023738/87203479/malicious-compliance-deaf-guy1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023742/87203480/malicious-compliance-deaf-guy2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023730/87203478/malicious-compliance-deaf-guy3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023838/87203483/malicious-compliance-deaf-guy-comments3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023833/87203482/malicious-compliance-deaf-guy-comments1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023826/87203481/malicious-compliance-deaf-guy-comments2.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015325/87203472/one.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015347/87203476/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015340/87203475/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015318/87203471/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015307/87203469/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015336/87203474/six.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015329/87203473/seven.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015303/87203468/eight.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015315/87203470/last.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">16 Creepy Pics From People Who Thought They Were Alone</a><br>
-
-<span style="font-size:4em">1. So this person found an entire clothing store in the middle of nowhere? Strange. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Umm, yeah its time to get the hell up out of here guys, NOPE. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. If you dont make a sound he will go away. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. This is why you dont go wandering around abandoned buildings guys, its that simple. No spirits or freaks can find you if you just always stay home. Let this be a lesson to some. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Something happened here and were too afraid to ask what. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Bro is just trying to party, quit shopping and mind ya damn business lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bro, if my house was haunted by a ghost with Teeth I would knock every last one of them out his disgusting a** mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hopefully, his heart can take it, if not youll be looking for a new employee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ahh yes, the diarrhea ghost, Ive dealt with him before, Just eat fiber and hell leave you alone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Yeah, okay. No one is believing this one, Karen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nope, close the door and back away slowly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195751.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203806.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203807.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203808.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203809.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203811.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203812.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203813.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203814.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203816.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203817.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203818.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203819.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203821.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203822.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203823.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203824.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203825.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203826.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203827.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203828.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203829.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203830.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203831.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203832.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203833.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203834.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203835.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203836.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">19 People/Animals That Won A Genetic Lottery</a><br>
-
-<span style="font-size:4em">1. I have 2 uvulas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. His thumb has 3 phalanges.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My fingers can bend way back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The way my son’s pupil formed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I can fold my tongue inward to create this cool star/diamond shape.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I have a deviated septum that I’ve had since birth. It’s made portrait studies and mask-wearing very fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. First post of my baby boy born with white bangs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My dog has a natural zig-zag on his tail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Most of my eyelashes on my left eye turned white over the course of the past month or so, and I think it’s pretty cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I have finger toes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was born with blue eyes, but they changed into 3 colors as I aged.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My left foot is way bigger than my right foot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. This cat has extra toes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A girl I knew online years ago was born with her tongue slightly connected to her mouth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This beauty with a down arrow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. This horse has a mustache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My left and right ears are different shapes; I can only fit earbuds in my left ear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My dog was born with a natural nose piercing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. It’s my first time growing a beard and apparently I have a whirlpool cowlick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204147.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
+## <a href="#linky8" id="linky7">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040554/87202385/siblingordating3.png" style="width:100%"><br>
 
@@ -597,45 +411,221 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">17 Things that are Irrationally Irritating</a><br>
+## <a href="#linky9" id="linky8">16 Creepy Pics From People Who Thought They Were Alone</a><br>
 
-<span style="font-size:4em">1. “Faceplanted onto asphalt yesterday. Literally my nightmare.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201315.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. So this person found an entire clothing store in the middle of nowhere? Strange. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Having to clean this up after a movie”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201312.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Umm, yeah its time to get the hell up out of here guys, NOPE. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I was mowing the lawn and found some money.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201314.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If you dont make a sound he will go away. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “The toilet paper at a $30,000,000,000 company”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201299.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. This is why you dont go wandering around abandoned buildings guys, its that simple. No spirits or freaks can find you if you just always stay home. Let this be a lesson to some. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “My first day as a delivery guy at Domino’s”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201300.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Something happened here and were too afraid to ask what. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Before you ask, it’s a jackfruit.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201301.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Bro is just trying to party, quit shopping and mind ya damn business lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Just wanted a croissant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201302.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Bro, if my house was haunted by a ghost with Teeth I would knock every last one of them out his disgusting a** mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Finally got a prize from the claw game... at least I thought I did.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201303.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Hopefully, his heart can take it, if not youll be looking for a new employee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “I appreciate your late night attempt to clean, random party guest, but wooden cutting boards DO NOT go in the dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201304.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I just spilled a full cup of orange juice all over myself on the last day of vacation. And I didn’t bring an extra pair of pants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201305.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Ahh yes, the diarrhea ghost, Ive dealt with him before, Just eat fiber and hell leave you alone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Accidentally ran my favorite necklace through the washing machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201306.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Was waiting for a new tree, but got more sidewalk instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201307.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Yeah, okay. No one is believing this one, Karen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My sister is borrowing my car and pissed someone off because she kept parking in the handicapped parking space.”“So they keyed my car in retaliation.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201308.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Nope, close the door and back away slowly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “This $10 salad I paid for at a restaurant.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201309.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Found some graffiti on my fence this morning. Just finished putting it up a couple weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201310.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Get away from me you creep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “How they cut the cake at my aunt’s birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201313.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195751.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">22 Dank Memes That Are a Little Fed Up</a><br>
+## <a href="#linky10" id="linky9">Idiot Karen Plays Herself and Demands to Talk to Manager, Already Is</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024444/87204374/intro.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024512/87204379/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024506/87204378/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024438/87204373/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024455/87204376/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024501/87204377/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024450/87204375/seven.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/024432/87204372/final.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Redneck Moments Proving You’re Country AF</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203288.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Overworked Employee Gets 10K Raise After Independent Job Audit </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112752/87204164/sort-thrived-this-as-very-useful-person-example-one-guy-would-spend-half-his-day-copying-items-and.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112815/87204167/just-showed-up-one-day-and-took-notes-during-our-morning-meeting-at-one-point-someone-brought-up-n.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112804/87204165/ended-up-deep-on-our-file-structure-and-search-returned-personal-folder-structure-within-one-dri.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112823/87204168/not-be-present-2-weeks-so-whatever-work-they-currently-need-do-they-will-need-do-themselves-be-s.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112813/87204166/theres-no-way-some-guys-were-keeping-up-with-their-normal-duties-guaranteed-at-least-2-peo.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/112742/87204163/have-even-started-one-hope-not-if-could-please-reach-back-would-like-offer-raise-has-become-very.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113706/87204222/60-time-works-100-time-387-reply-share-donsnorrlione-2-days-ago-my-go-line-is-need-have-ticket.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113647/87204215/see-us-meeting-once-month-if-this-member-my-team-wouldve-been-cheering-them-as-shit-fell-apa.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113636/87204212/work-if-company-makes-things-difficult-at-end-day-first-priority-has-be-and-career-363-reply-share.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113659/87204219/level-manager-saying-things-will-fall-apart-and-everything-is-on-fire-right-now-24k-reply-share.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/113706/87204220/15-hours-day-with-them-maybe-not-s-two-whole-positions-restart-maybe-half-them-162-reply-share.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203806.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203807.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203808.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203809.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203811.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203812.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203813.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203814.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203816.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203817.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203818.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203819.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203821.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203822.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203823.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203824.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203825.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203826.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203827.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203828.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203829.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203830.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203831.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203832.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203833.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203834.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203835.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203836.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">22 Dank Memes That Are a Little Fed Up</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202887.jpg" style="width:100%"><br>
 
@@ -674,6 +664,22 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 <span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202907.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202908.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">Rude Police Officer Left Befuddled by Maliciously Compliant Deaf Driver </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023738/87203479/malicious-compliance-deaf-guy1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023742/87203480/malicious-compliance-deaf-guy2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023730/87203478/malicious-compliance-deaf-guy3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023838/87203483/malicious-compliance-deaf-guy-comments3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023833/87203482/malicious-compliance-deaf-guy-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023826/87203481/malicious-compliance-deaf-guy-comments2.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
