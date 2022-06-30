@@ -1,69 +1,27 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/30/2022-15:47:18
+Last updated: 06/30/2022-16:47:18
 <br>
-## <a href="#linky2" id="linky1">24 Comforting Facts For Your Day</a><br>
+## <a href="#linky2" id="linky1">Employee Trains Boss to Be on Time</a><br>
 
-<span style="font-size:4em">1. Switzerland has implemented a scheme ‘Time Bank’; which is an old-age assistance program, under which, people can volunteer to look after the elderly who require assistance, and then, the number of hours they spend with or caring for seniors gets deposited in their individual social security account. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203517.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050336/87204525/story1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Eventually, when the volunteer reaches that old age when he or she requires support, this ‘Time Bank’ can help them by providing time-based services which include consultations, babysitting, hairdressing, gardening, tutoring, or any other time-consuming job in addition to being looked after by a volunteer as well. About 34 countries are trying to apply this scheme.
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203518.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050329/87204524/story2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. There is a group of bikers called bikers against child abuse who support child abuse victims in court by looking tough and giving the kids confidence to testify against their abusers it’s actually an international group</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203519.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050325/87204523/story3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. There is a type of mold growing on/around the Elephants Foot in Chernobyl. This mold eats radiation, and the radioactivity of the Elephants Foot has decreased drastically since the mold started growing there. idk, its just comforting to me that the planet can heal no matter how bad the scar we left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203520.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050340/87204526/story4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. All of the cardigans Mister Rogers wore on camera were knit by his mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203521.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050347/87204527/story5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sometimes dogs in movies have to have CGI tails because they keep wagging their tails. They are just so happy to be there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203523.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050351/87204528/story6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Sea otters hold hands when they sleep to keep from drifting apart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203524.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050359/87204529/story7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The dog estimates the time of your return home by how much of your smell is left in the house from your morning routine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203525.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050403/87204530/story8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Bees inform their friends about good flowers nearby by dancing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203526.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050409/87204531/story9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Its illegal in Switzerland to own just one guinea pig. You have to have at least two if you want to have any. Guinea pigs get lonely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A cat meows just for humans to hear them. And a dog dreams of its owner when it sleeps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. There’s a place in Japan called “Capybara land” where you can hang out with capybaras and see them chilling in hotsprings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. If 99 percent of the world population finds you unattractive, there are still 78 million people in the world that find you attractive.
-
-Thats a lot of people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nurse here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-If youre having a general anaesthetic for a routine operation, and worried about dying while under, please be aware there are about 7 different levels of stuff we can do to bring you back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-So if the thing we normally do doesnt work, weve got plan B, then weve got plans C, D, E, F, G& H. ( and we rarely need to even go to Plan C, let alone the rest!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Its ridiculously rare for you to never wake up from a routine op, of course, it happens occasionally, but for every case youve heard about it happening, there are THOUSANDS of identical operations where it didnt. Ive been qualified 15 years and its literally never happened anywhere Ive worked.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Indias tiger population grew from 1,411 in 2006 to 2,967 tigers as per the 2018 census. Based on the best available information, tiger populations are stable or increasing in India, Nepal, Bhutan, Russia and China. But much more work is needed to protect this species if we are to secure its future in the wild.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Petting animals lowers cortisol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. If you make it to the airport without dying, youve already passed the deadliest part of plane travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Zebras rest with their heads on each other’s backs so they can literally watch their zebra buddy’s back. Plus it looks like a zebra hug.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Monarch butterfly populations are doing better. Not out of the dark, but better. I found a monarch caterpillar on my milkweed the other day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. You can talk to your pet rabbit by quickly pushing your lips downwards and upwards as if you were trying to look up your nose in a mirror. Do it quickly and youre chatting. It mimics the nose movements they make and you can see them wiggle their noses faster out of interest. Copy their rhythm to and watch them talk back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Also, stomping your foot like they do as well as turning your back on them when annoyed is understood too. If they have chewed something they shouldnt have you can stomp one foot and turn around with your arms folded. Have a look over your shoulder to make sure they see you. They should come to check on you and if they dont stomp and make sure they see your back is turned. Eventually they get it and come over to make sure your ok. Then let the nose waggling commence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203540.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/30/050415/87204532/story10.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -109,7 +67,29 @@ Also, stomping your foot like they do as well as turning your back on them when 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">25 Records That Will Absolutely Never Be Broken</a><br>
+## <a href="#linky4" id="linky3">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015325/87203472/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015347/87203476/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015340/87203475/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015318/87203471/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015307/87203469/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015336/87203474/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015329/87203473/seven.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015303/87203468/eight.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015315/87203470/last.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">25 Records That Will Absolutely Never Be Broken</a><br>
 
 <span style="font-size:4em">1. FDR being elected US president 4 times.
 
@@ -208,79 +188,79 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
+## <a href="#linky6" id="linky5">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015325/87203472/one.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040554/87202385/siblingordating3.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015347/87203476/two.png" style="width:100%"><br>
+<span style="font-size:4em">2. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042759/87202409/dating3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015340/87203475/three.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040601/87202387/siblingordating5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015318/87203471/four.png" style="width:100%"><br>
+<span style="font-size:4em">4. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/044006/87202428/dating3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015307/87203469/five.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040618/87202390/siblingordating7.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015336/87203474/six.png" style="width:100%"><br>
+<span style="font-size:4em">6. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042922/87202419/siblings2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015329/87203473/seven.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040606/87202388/siblingordating4.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015303/87203468/eight.png" style="width:100%"><br>
+<span style="font-size:4em">8. Dating. Married, In fact. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042750/87202408/dating1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015315/87203470/last.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040613/87202389/siblingordating6.png" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">10. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042811/87202412/dating5.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">25 Movies That Just Couldn’t Get Made Anymore</a><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040550/87202384/siblingordating1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. I watched Never Been Kissed for the first time in a long time and theres like three different adults romantically linked to teenagers. No one actually sleeps with them but still....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203328.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Siblings. Harry, and Gemma Styles. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042922/87202418/siblings4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Pretty Baby. Poor Brooke Shields. She really got taken advantage of in her early days. I want to go back in time and get her a proper mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203329.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040629/87202392/siblingordating10.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Revenge Of The Nerds. They break into the sorority house and steal underwear and install cameras. Lewis impersonates the boyfriend and has sex with Betty. They sell naked photos of her in pies to raise money. Not to mention all the stereotypical jokes about Lamar being gay and black. No way in hell that would go over today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203330.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042801/87202410/dating4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Roger Moore quit James Bond bc he felt it was too weird and inappropriate for a guy his age to be hooking up with “kids.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203331.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040636/87202393/siblingordating11.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sixteen Candles. That scene where Jake says he could violate Carolyn ten different ways if he wanted to, plus theres that whole stereotypical Asian character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203332.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042747/87202407/dating2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. That one John Wayne film were he plays Genghis Khan. Google that sh*t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203333.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040640/87202394/siblingordating12.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Blank Check. That lady straight up makes out with a child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203334.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/044006/87202427/dating1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Song of the South.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203335.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040625/87202391/siblingordating8.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Grease. Tell me more, tell me more, did she put up a fight? That sh*t wouldnt fly today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203336.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Siblings. Gigi Hadid and her brother Anwar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042933/87202420/siblings5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Soul Man. C. Thomas Howell in blackface playing a character taking advantage of black scholarship. He does learn his lesson in the movie, but it looks horrible on the surface.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203337.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040648/87202395/siblingordating13.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. White Chicks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203338.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042843/87202415/dating7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Mrs. Doubtfire. No parents are putting ads in the paper and hiring someone with no background check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203339.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040652/87202396/siblingordating14.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Jaws. Hollywood doesnt believe in slow-burn blockbusters anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203340.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042911/87202417/siblings3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Shallow Hal. No question.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203341.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040701/87202397/siblingordating17.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Manhattan. Middle-aged Woody Allen is dating (and sleeping with) 17-year-old Mariel Hemingway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203342.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/043957/87202426/dating5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. American Beauty. Especially not with Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203343.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040703/87202398/siblingordating18.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. In Crazy, Stupid, Love, a 17-year-old girl gives her nude photos to a 13-year-old boy and its supposed to be a cute moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203344.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042945/87202421/siblings7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Boat Trip, I Now Pronounce You Chuck and Larry, or any of the other gay panic movies of the early 2000s, lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203345.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042553/87202403/redo3.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. Leon the Professional. They def over-sexualized Matilda and had some very weird moments in it. Even if Leon rejected the advances, it still would be unacceptable for many people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203346.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Dating. Bryan Dechart and his wife! Who is thankfully not his sibling.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042833/87202414/dating9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Everyone is saying 30+ year old movies but a lot of movies that came out even 10 years ago wouldn’t be okay today. For example, I just watched Pitch Perfect the other day for some reason. There’s a lesbian in the group and that’s literally the joke, that she’s gay. Then there’s a girl who likes to have sex and that’s the joke. And Fat Amy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203347.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042604/87202404/redo2.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. I feel like Pretty Woman would not be made today. I remember so many people just talking about how much they loved that movie. When I finally watched it, I was like “this is romanticizing prostitution.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203348.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042822/87202413/dating8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Probably Juwanna Mann. A misogynistic asshole deciding to crossdress to play in the womens league just to keep copping a paycheck…probably wouldnt fly well in todays society.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203349.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042627/87202406/redo5.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. Blazing Saddles. Looking back today, it’s got so many “fade out, fade back in” scene transitions! Sticks out like a sore thumb, even if you’re not normally the sort of person who pays attention to cinematography. You maybe see that sort of thing every once in a while today, but usually as a deliberate choice, not the default. Modern films usually use cuts, sometimes with diegetic sound from the upcoming scene playing early to let you know it’s coming, or find a way to incorporate it into the movement on-screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203350.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042956/87202422/siblings6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. MASH. Love the show, hate the movie. Used to get into public arguments about it with my ex. Him: “She hates MASH!! How can you hate MASH??? ”Me: “yeah, you know, the movie. Where they support a gay guys desire to kill himself and then drug and rape him as conversion therapy AND IT WORKS.” Good stuff.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203351.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042615/87202405/redo4.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. Idiocracy. At this point, we can just watch the news.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203352.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042810/87202411/dating6.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -377,39 +357,19 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">16 Creepy Pics From People Who Thought They Were Alone</a><br>
+## <a href="#linky9" id="linky8">Rude Police Officer Left Befuddled by Maliciously Compliant Deaf Driver </a><br>
 
-<span style="font-size:4em">1. So this person found an entire clothing store in the middle of nowhere? Strange. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195744.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023738/87203479/malicious-compliance-deaf-guy1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Umm, yeah its time to get the hell up out of here guys, NOPE. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195736.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023742/87203480/malicious-compliance-deaf-guy2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. If you dont make a sound he will go away. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195737.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023730/87203478/malicious-compliance-deaf-guy3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This is why you dont go wandering around abandoned buildings guys, its that simple. No spirits or freaks can find you if you just always stay home. Let this be a lesson to some. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195739.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023838/87203483/malicious-compliance-deaf-guy-comments3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Something happened here and were too afraid to ask what. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195740.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023833/87203482/malicious-compliance-deaf-guy-comments1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Bro is just trying to party, quit shopping and mind ya damn business lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bro, if my house was haunted by a ghost with Teeth I would knock every last one of them out his disgusting a** mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hopefully, his heart can take it, if not youll be looking for a new employee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ahh yes, the diarrhea ghost, Ive dealt with him before, Just eat fiber and hell leave you alone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Yeah, okay. No one is believing this one, Karen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nope, close the door and back away slowly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195751.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023826/87203481/malicious-compliance-deaf-guy-comments2.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -505,7 +465,127 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Redneck Moments Proving You’re Country AF</a><br>
+## <a href="#linky12" id="linky11">24 Comforting Facts For Your Day</a><br>
+
+<span style="font-size:4em">1. Switzerland has implemented a scheme ‘Time Bank’; which is an old-age assistance program, under which, people can volunteer to look after the elderly who require assistance, and then, the number of hours they spend with or caring for seniors gets deposited in their individual social security account. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Eventually, when the volunteer reaches that old age when he or she requires support, this ‘Time Bank’ can help them by providing time-based services which include consultations, babysitting, hairdressing, gardening, tutoring, or any other time-consuming job in addition to being looked after by a volunteer as well. About 34 countries are trying to apply this scheme.
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There is a group of bikers called bikers against child abuse who support child abuse victims in court by looking tough and giving the kids confidence to testify against their abusers it’s actually an international group</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. There is a type of mold growing on/around the Elephants Foot in Chernobyl. This mold eats radiation, and the radioactivity of the Elephants Foot has decreased drastically since the mold started growing there. idk, its just comforting to me that the planet can heal no matter how bad the scar we left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. All of the cardigans Mister Rogers wore on camera were knit by his mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Sometimes dogs in movies have to have CGI tails because they keep wagging their tails. They are just so happy to be there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sea otters hold hands when they sleep to keep from drifting apart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The dog estimates the time of your return home by how much of your smell is left in the house from your morning routine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bees inform their friends about good flowers nearby by dancing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Its illegal in Switzerland to own just one guinea pig. You have to have at least two if you want to have any. Guinea pigs get lonely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A cat meows just for humans to hear them. And a dog dreams of its owner when it sleeps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. There’s a place in Japan called “Capybara land” where you can hang out with capybaras and see them chilling in hotsprings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. If 99 percent of the world population finds you unattractive, there are still 78 million people in the world that find you attractive.
+
+Thats a lot of people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Nurse here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+If youre having a general anaesthetic for a routine operation, and worried about dying while under, please be aware there are about 7 different levels of stuff we can do to bring you back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+So if the thing we normally do doesnt work, weve got plan B, then weve got plans C, D, E, F, G& H. ( and we rarely need to even go to Plan C, let alone the rest!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Its ridiculously rare for you to never wake up from a routine op, of course, it happens occasionally, but for every case youve heard about it happening, there are THOUSANDS of identical operations where it didnt. Ive been qualified 15 years and its literally never happened anywhere Ive worked.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Indias tiger population grew from 1,411 in 2006 to 2,967 tigers as per the 2018 census. Based on the best available information, tiger populations are stable or increasing in India, Nepal, Bhutan, Russia and China. But much more work is needed to protect this species if we are to secure its future in the wild.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Petting animals lowers cortisol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. If you make it to the airport without dying, youve already passed the deadliest part of plane travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Zebras rest with their heads on each other’s backs so they can literally watch their zebra buddy’s back. Plus it looks like a zebra hug.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Monarch butterfly populations are doing better. Not out of the dark, but better. I found a monarch caterpillar on my milkweed the other day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You can talk to your pet rabbit by quickly pushing your lips downwards and upwards as if you were trying to look up your nose in a mirror. Do it quickly and youre chatting. It mimics the nose movements they make and you can see them wiggle their noses faster out of interest. Copy their rhythm to and watch them talk back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Also, stomping your foot like they do as well as turning your back on them when annoyed is understood too. If they have chewed something they shouldnt have you can stomp one foot and turn around with your arms folded. Have a look over your shoulder to make sure they see you. They should come to check on you and if they dont stomp and make sure they see your back is turned. Eventually they get it and come over to make sure your ok. Then let the nose waggling commence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203540.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">25 Movies That Just Couldn’t Get Made Anymore</a><br>
+
+<span style="font-size:4em">1. I watched Never Been Kissed for the first time in a long time and theres like three different adults romantically linked to teenagers. No one actually sleeps with them but still....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Pretty Baby. Poor Brooke Shields. She really got taken advantage of in her early days. I want to go back in time and get her a proper mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Revenge Of The Nerds. They break into the sorority house and steal underwear and install cameras. Lewis impersonates the boyfriend and has sex with Betty. They sell naked photos of her in pies to raise money. Not to mention all the stereotypical jokes about Lamar being gay and black. No way in hell that would go over today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Roger Moore quit James Bond bc he felt it was too weird and inappropriate for a guy his age to be hooking up with “kids.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Sixteen Candles. That scene where Jake says he could violate Carolyn ten different ways if he wanted to, plus theres that whole stereotypical Asian character.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. That one John Wayne film were he plays Genghis Khan. Google that sh*t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Blank Check. That lady straight up makes out with a child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203334.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Song of the South.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Grease. Tell me more, tell me more, did she put up a fight? That sh*t wouldnt fly today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Soul Man. C. Thomas Howell in blackface playing a character taking advantage of black scholarship. He does learn his lesson in the movie, but it looks horrible on the surface.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. White Chicks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Mrs. Doubtfire. No parents are putting ads in the paper and hiring someone with no background check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Jaws. Hollywood doesnt believe in slow-burn blockbusters anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Shallow Hal. No question.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Manhattan. Middle-aged Woody Allen is dating (and sleeping with) 17-year-old Mariel Hemingway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. American Beauty. Especially not with Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In Crazy, Stupid, Love, a 17-year-old girl gives her nude photos to a 13-year-old boy and its supposed to be a cute moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Boat Trip, I Now Pronounce You Chuck and Larry, or any of the other gay panic movies of the early 2000s, lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Leon the Professional. They def over-sexualized Matilda and had some very weird moments in it. Even if Leon rejected the advances, it still would be unacceptable for many people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Everyone is saying 30+ year old movies but a lot of movies that came out even 10 years ago wouldn’t be okay today. For example, I just watched Pitch Perfect the other day for some reason. There’s a lesbian in the group and that’s literally the joke, that she’s gay. Then there’s a girl who likes to have sex and that’s the joke. And Fat Amy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I feel like Pretty Woman would not be made today. I remember so many people just talking about how much they loved that movie. When I finally watched it, I was like “this is romanticizing prostitution.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Probably Juwanna Mann. A misogynistic asshole deciding to crossdress to play in the womens league just to keep copping a paycheck…probably wouldnt fly well in todays society.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Blazing Saddles. Looking back today, it’s got so many “fade out, fade back in” scene transitions! Sticks out like a sore thumb, even if you’re not normally the sort of person who pays attention to cinematography. You maybe see that sort of thing every once in a while today, but usually as a deliberate choice, not the default. Modern films usually use cuts, sometimes with diegetic sound from the upcoming scene playing early to let you know it’s coming, or find a way to incorporate it into the movement on-screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. MASH. Love the show, hate the movie. Used to get into public arguments about it with my ex. Him: “She hates MASH!! How can you hate MASH??? ”Me: “yeah, you know, the movie. Where they support a gay guys desire to kill himself and then drug and rape him as conversion therapy AND IT WORKS.” Good stuff.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Idiocracy. At this point, we can just watch the news.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203352.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Redneck Moments Proving You’re Country AF</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203256.jpg" style="width:100%"><br>
 
@@ -571,95 +651,39 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
+## <a href="#linky15" id="linky14">16 Creepy Pics From People Who Thought They Were Alone</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040554/87202385/siblingordating3.png" style="width:100%"><br>
+<span style="font-size:4em">1. So this person found an entire clothing store in the middle of nowhere? Strange. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042759/87202409/dating3.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Umm, yeah its time to get the hell up out of here guys, NOPE. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040601/87202387/siblingordating5.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If you dont make a sound he will go away. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/044006/87202428/dating3.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. This is why you dont go wandering around abandoned buildings guys, its that simple. No spirits or freaks can find you if you just always stay home. Let this be a lesson to some. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040618/87202390/siblingordating7.png" style="width:100%"><br>
+<span style="font-size:4em">5. Something happened here and were too afraid to ask what. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042922/87202419/siblings2.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Bro is just trying to party, quit shopping and mind ya damn business lady. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040606/87202388/siblingordating4.png" style="width:100%"><br>
+<span style="font-size:4em">7. Bro, if my house was haunted by a ghost with Teeth I would knock every last one of them out his disgusting a** mouth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Dating. Married, In fact. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042750/87202408/dating1.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Hopefully, his heart can take it, if not youll be looking for a new employee. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040613/87202389/siblingordating6.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042811/87202412/dating5.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Ahh yes, the diarrhea ghost, Ive dealt with him before, Just eat fiber and hell leave you alone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040550/87202384/siblingordating1.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Siblings. Harry, and Gemma Styles. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042922/87202418/siblings4.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Yeah, okay. No one is believing this one, Karen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040629/87202392/siblingordating10.png" style="width:100%"><br>
+<span style="font-size:4em">13. Nope, close the door and back away slowly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042801/87202410/dating4.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040636/87202393/siblingordating11.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042747/87202407/dating2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040640/87202394/siblingordating12.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/044006/87202427/dating1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040625/87202391/siblingordating8.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Siblings. Gigi Hadid and her brother Anwar.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042933/87202420/siblings5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040648/87202395/siblingordating13.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042843/87202415/dating7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040652/87202396/siblingordating14.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042911/87202417/siblings3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040701/87202397/siblingordating17.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/043957/87202426/dating5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040703/87202398/siblingordating18.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042945/87202421/siblings7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042553/87202403/redo3.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. Dating. Bryan Dechart and his wife! Who is thankfully not his sibling.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042833/87202414/dating9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042604/87202404/redo2.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042822/87202413/dating8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042627/87202406/redo5.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. Siblings.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042956/87202422/siblings6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042615/87202405/redo4.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. Dating.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/042810/87202411/dating6.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Rude Police Officer Left Befuddled by Maliciously Compliant Deaf Driver </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023738/87203479/malicious-compliance-deaf-guy1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023742/87203480/malicious-compliance-deaf-guy2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023730/87203478/malicious-compliance-deaf-guy3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023838/87203483/malicious-compliance-deaf-guy-comments3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023833/87203482/malicious-compliance-deaf-guy-comments1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023826/87203481/malicious-compliance-deaf-guy-comments2.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195751.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
