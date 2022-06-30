@@ -1,97 +1,43 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/30/2022-08:47:18
+Last updated: 06/30/2022-09:47:18
 <br>
-## <a href="#linky2" id="linky1">35 Darn Fine Random Pics and Interesting Photos to Enjoy</a><br>
+## <a href="#linky2" id="linky1">16 Creepy Pics From People Who Thought They Were Alone</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121415/87202116/87199719.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201949.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201911.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121353/87202114/87199707.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201943.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201918.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201920.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201938.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201925.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201928.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201929.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201913.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201930.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201933.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201934.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121341/87202111/87199693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121342/87202112/87199698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121352/87202113/87199702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121404/87202115/87199709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121430/87202117/87199728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121433/87202118/87199725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121435/87202119/87199731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121444/87202120/87199737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121446/87202121/87199748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121449/87202122/87199749.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87195751.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Rude Police Officer Left Befuddled by Maliciously Compliant Deaf Driver </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023738/87203479/malicious-compliance-deaf-guy1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023742/87203480/malicious-compliance-deaf-guy2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023730/87203478/malicious-compliance-deaf-guy3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023838/87203483/malicious-compliance-deaf-guy-comments3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023833/87203482/malicious-compliance-deaf-guy-comments1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023826/87203481/malicious-compliance-deaf-guy-comments2.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
+## <a href="#linky3" id="linky2">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040554/87202385/siblingordating3.png" style="width:100%"><br>
 
@@ -167,6 +113,48 @@ Last updated: 06/30/2022-08:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky4" id="linky3">22 Dank Memes That Are a Little Fed Up</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202889.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202908.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky5" id="linky4">30 Chilling Facts You May Regret Learning</a><br>
 
 <span style="font-size:4em">1. Speaking from personal experience here, but your body can randomly decide to become allergic to damn near everything edible at any time. Not very fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203141.jpg" style="width:100%"><br>
@@ -236,107 +224,7 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">27 Bada-- Helmets Taken Straight Out of the History Books</a><br>
-
-<span style="font-size:4em">1. Helmet worn by the Athenian General Miltiades 2500 years ago in the battle of Marathon, given as an offering to the temple of Zeus at Olympia. Circa 490 BC. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030244/87202342/athens.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Ancient Greek Helmets from Classical Period, Olympia Museum. u/Ergorath</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030256/87202343/ancient.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This helmet belonged to Tadakatsu, known as “the Samurai of Samurais” and “the Warrior Who Surpassed Death”, because he fought over 55 battles without ever sustaining a serious injury. Dating from the latter half of the 16th century. u/ParaMike46</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030306/87202344/black.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Greek/Cretan Bronze Helmet, 800s BC. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030318/87202345/bronze.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A Gallic bronze helmet found by archeologists in Tintignac, France, in 2004. 3rd-4th century BCE. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030329/87202346/circle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A samurai helmet with a Chinese character 大 (dai) on the top, meaning big or great, and a silver skull on the front. 17th century CE, Edo period, now on display at the Tachibana Museum in Japan. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030340/87202347/dai.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Italian siege helmet, 1610-20. u/Jokerang</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030433/87202354/eyes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Coppergate Helmet, one of the best preserved Anglo-Saxon helmets, dated AD 770-775. It was found in Coppergate, York in 1982. u/Kunstkurator</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030350/87202348/copper.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Corinthian helmet from the Battle of Marathon (490 BC) found with the warriors skull inside. u/innuendoPL</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030351/87202350/corinthian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Helmet shaped like an eggplant. Japan, 1671-1699. u/fpriyakorn</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030402/87202351/egg.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The exceptional find of a Greek-Illyrian helmet, as well as numerous other valuable grave goods have been found during the archaeological excavations of graves from the fourth century BC in Zakotarac on the Pelješac peninsula, in southern Dalmatia, Croatia. u/bigmeat</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030425/87202353/illyrian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. An eboshi-shaped kabuto (helmet) with maedate (crest) in form of a mantis, Edo period, 17th century, Iron, lacquer, cord, silk, wood, gold, and papier-maché. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030437/87202355/mantis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A Tlingit sea lion warrior helmet. 19th century, part of the Kunstkamera collection in St. Petersburg. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030444/87202356/lion.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Bronze Phrygian Helmet, Greek, Late Classical to Early Hellenistic, c. 350-300. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030448/87202357/mustache.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Samnite bronze helmet and neckguard from 450 BC. The Samnites were a sworn enemy of Rome in Italy. They were literally annihilated by Sulla in I Century BC. u/imperiumromanum_edu</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030457/87202358/neck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ancient Roman helmet worn by the elite Roman cavalry (equites Romani). 2000 years old. u/innuendoPL</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030413/87202352/face.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Samurai helmet with octopus, 18th century, Japan. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030459/87202359/oct.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. This perfectly preserved helmet from Pompeii may be evidence of a Jewish gladiator in the city. u/PorcupineMerchant</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030508/87202360/pompeii.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A Roman helmet found in the Rhine River, With the name of the soldier who wore it, L. Lucretius Celeris, inscribed inside. u/CoolAndGoodAndYes</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030511/87202361/rome.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Samurai helmet (kabuko) shaped like an octopus. 1700s, Japan. u/PolarMolecule</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030520/87202362/sam.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This 7th century helmet was discovered inside a ship burial at Vendel - Uppland, Sweden. ~ Swedish History Museum. u/bigmeat</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030521/87202363/ship.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. A brilliantly preserved bronze Phrygian winged helmet, dated to the 4th Century BC. It recently sold at auction for £160,000. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030557/87202367/winged.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Viking helmet from a mid 7th century boat grave. u/PvDec</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030545/87202365/viking.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. WW1 U.S. Army Helmet with skull trench art on the front. u/18761</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030604/87202368/skull.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Ichinotani Style Helmet, Iris leaf design, Azuchi-Momoyama-Edo period, 16th-17th century, Tokyo National Museum. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030604/87202369/sword.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Savoyard Helmet, 17th century. u/Trail_of_Tears-T_T</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030533/87202364/skeleton.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Etruscan wolfs head helmet, 6th-5th century BC, currently at Harvard. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/031259/87202373/wolf.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">22 Dank Memes That Are a Little Fed Up</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202889.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202896.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202908.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">Redneck Moments Proving You’re Country AF</a><br>
+## <a href="#linky6" id="linky5">Redneck Moments Proving You’re Country AF</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203256.jpg" style="width:100%"><br>
 
@@ -402,29 +290,65 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
+## <a href="#linky7" id="linky6">27 Bada-- Helmets Taken Straight Out of the History Books</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015325/87203472/one.png" style="width:100%"><br>
+<span style="font-size:4em">1. Helmet worn by the Athenian General Miltiades 2500 years ago in the battle of Marathon, given as an offering to the temple of Zeus at Olympia. Circa 490 BC. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030244/87202342/athens.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015347/87203476/two.png" style="width:100%"><br>
+<span style="font-size:4em">2. Ancient Greek Helmets from Classical Period, Olympia Museum. u/Ergorath</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030256/87202343/ancient.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015340/87203475/three.png" style="width:100%"><br>
+<span style="font-size:4em">3. This helmet belonged to Tadakatsu, known as “the Samurai of Samurais” and “the Warrior Who Surpassed Death”, because he fought over 55 battles without ever sustaining a serious injury. Dating from the latter half of the 16th century. u/ParaMike46</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030306/87202344/black.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015318/87203471/four.png" style="width:100%"><br>
+<span style="font-size:4em">4. Greek/Cretan Bronze Helmet, 800s BC. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030318/87202345/bronze.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015307/87203469/five.png" style="width:100%"><br>
+<span style="font-size:4em">5. A Gallic bronze helmet found by archeologists in Tintignac, France, in 2004. 3rd-4th century BCE. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030329/87202346/circle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015336/87203474/six.png" style="width:100%"><br>
+<span style="font-size:4em">6. A samurai helmet with a Chinese character 大 (dai) on the top, meaning big or great, and a silver skull on the front. 17th century CE, Edo period, now on display at the Tachibana Museum in Japan. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030340/87202347/dai.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015329/87203473/seven.png" style="width:100%"><br>
+<span style="font-size:4em">7. Italian siege helmet, 1610-20. u/Jokerang</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030433/87202354/eyes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015303/87203468/eight.png" style="width:100%"><br>
+<span style="font-size:4em">8. Coppergate Helmet, one of the best preserved Anglo-Saxon helmets, dated AD 770-775. It was found in Coppergate, York in 1982. u/Kunstkurator</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030350/87202348/copper.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015315/87203470/last.png" style="width:100%"><br>
+<span style="font-size:4em">9. Corinthian helmet from the Battle of Marathon (490 BC) found with the warriors skull inside. u/innuendoPL</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030351/87202350/corinthian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Helmet shaped like an eggplant. Japan, 1671-1699. u/fpriyakorn</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030402/87202351/egg.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The exceptional find of a Greek-Illyrian helmet, as well as numerous other valuable grave goods have been found during the archaeological excavations of graves from the fourth century BC in Zakotarac on the Pelješac peninsula, in southern Dalmatia, Croatia. u/bigmeat</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030425/87202353/illyrian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. An eboshi-shaped kabuto (helmet) with maedate (crest) in form of a mantis, Edo period, 17th century, Iron, lacquer, cord, silk, wood, gold, and papier-maché. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030437/87202355/mantis.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A Tlingit sea lion warrior helmet. 19th century, part of the Kunstkamera collection in St. Petersburg. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030444/87202356/lion.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Bronze Phrygian Helmet, Greek, Late Classical to Early Hellenistic, c. 350-300. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030448/87202357/mustache.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Samnite bronze helmet and neckguard from 450 BC. The Samnites were a sworn enemy of Rome in Italy. They were literally annihilated by Sulla in I Century BC. u/imperiumromanum_edu</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030457/87202358/neck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ancient Roman helmet worn by the elite Roman cavalry (equites Romani). 2000 years old. u/innuendoPL</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030413/87202352/face.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Samurai helmet with octopus, 18th century, Japan. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030459/87202359/oct.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. This perfectly preserved helmet from Pompeii may be evidence of a Jewish gladiator in the city. u/PorcupineMerchant</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030508/87202360/pompeii.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A Roman helmet found in the Rhine River, With the name of the soldier who wore it, L. Lucretius Celeris, inscribed inside. u/CoolAndGoodAndYes</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030511/87202361/rome.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Samurai helmet (kabuko) shaped like an octopus. 1700s, Japan. u/PolarMolecule</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030520/87202362/sam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This 7th century helmet was discovered inside a ship burial at Vendel - Uppland, Sweden. ~ Swedish History Museum. u/bigmeat</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030521/87202363/ship.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A brilliantly preserved bronze Phrygian winged helmet, dated to the 4th Century BC. It recently sold at auction for £160,000. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030557/87202367/winged.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Viking helmet from a mid 7th century boat grave. u/PvDec</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030545/87202365/viking.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. WW1 U.S. Army Helmet with skull trench art on the front. u/18761</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030604/87202368/skull.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Ichinotani Style Helmet, Iris leaf design, Azuchi-Momoyama-Edo period, 16th-17th century, Tokyo National Museum. u/Fuckoff555</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030604/87202369/sword.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Savoyard Helmet, 17th century. u/Trail_of_Tears-T_T</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030533/87202364/skeleton.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Etruscan wolfs head helmet, 6th-5th century BC, currently at Harvard. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/031259/87202373/wolf.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Movies That Just Couldn’t Get Made Anymore</a><br>
+## <a href="#linky8" id="linky7">25 Movies That Just Couldn’t Get Made Anymore</a><br>
 
 <span style="font-size:4em">1. I watched Never Been Kissed for the first time in a long time and theres like three different adults romantically linked to teenagers. No one actually sleeps with them but still....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203328.jpg" style="width:100%"><br>
 
@@ -478,7 +402,29 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">25 Records That Will Absolutely Never Be Broken</a><br>
+## <a href="#linky9" id="linky8">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015325/87203472/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015347/87203476/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015340/87203475/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015318/87203471/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015307/87203469/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015336/87203474/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015329/87203473/seven.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015303/87203468/eight.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015315/87203470/last.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">25 Records That Will Absolutely Never Be Broken</a><br>
 
 <span style="font-size:4em">1. FDR being elected US president 4 times.
 
@@ -577,7 +523,7 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Employee Fired Over Technicality Takes Back Property and Leaves Company Nonfunctional</a><br>
+## <a href="#linky11" id="linky10">Employee Fired Over Technicality Takes Back Property and Leaves Company Nonfunctional</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87199300.png" style="width:100%"><br>
 
@@ -601,7 +547,147 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">16 Trashy Posts To Take Out to the Dumpster</a><br>
+## <a href="#linky12" id="linky11">35 Darn Fine Random Pics and Interesting Photos to Enjoy</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121415/87202116/87199719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121353/87202114/87199707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121341/87202111/87199693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121342/87202112/87199698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121352/87202113/87199702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121404/87202115/87199709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87201917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121430/87202117/87199728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121433/87202118/87199725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121435/87202119/87199731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121444/87202120/87199737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121446/87202121/87199748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121449/87202122/87199749.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203806.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203807.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203808.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203809.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203811.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203812.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203813.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203814.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203816.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203817.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203818.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203819.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203821.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203822.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203823.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203824.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203825.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203826.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203827.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203828.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203829.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203830.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203831.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203832.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203833.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203834.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203835.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87203836.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">16 Trashy Posts To Take Out to the Dumpster</a><br>
 
 <span style="font-size:4em">1. A warning before you board your next flight. Sanitize everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200422.jpg" style="width:100%"><br>
 
@@ -637,7 +723,23 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">17 Things that are Irrationally Irritating</a><br>
+## <a href="#linky15" id="linky14">Rude Police Officer Left Befuddled by Maliciously Compliant Deaf Driver </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023738/87203479/malicious-compliance-deaf-guy1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023742/87203480/malicious-compliance-deaf-guy2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023730/87203478/malicious-compliance-deaf-guy3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023838/87203483/malicious-compliance-deaf-guy-comments3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023833/87203482/malicious-compliance-deaf-guy-comments1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/023826/87203481/malicious-compliance-deaf-guy-comments2.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">17 Things that are Irrationally Irritating</a><br>
 
 <span style="font-size:4em">1. “Faceplanted onto asphalt yesterday. Literally my nightmare.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201315.jpg" style="width:100%"><br>
 
@@ -672,30 +774,6 @@ It hasn’t been broken to this day due to how dangerous it is to go at those so
 <span style="font-size:4em">16. “Get away from me you creep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201311.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">17. “How they cut the cake at my aunt’s birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201313.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202181.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202182.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202183.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202184.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202185.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202186.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/110727/87203316/8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202188.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202189.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202190.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
