@@ -1,106 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 06/30/2022-03:47:18
+Last updated: 06/30/2022-04:47:18
 <br>
-## <a href="#linky2" id="linky1">25 Records That Will Absolutely Never Be Broken</a><br>
-
-<span style="font-size:4em">1. FDR being elected US president 4 times.
-
--u/holyhellnothingworks
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Joe DiMaggios consecutive hit streak. Ichiros 262 hits in a season.
-
--u/nyxstal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Lion King as the highest VHS sales of all time.
-
--u/Fawqueue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Jacque Villeneuve, Michael Schumacher and Heinz Harald Frentzen set the exact same time in qualifying in the 1997 European Grand Prix. To the THOUSANDTH of a second.
-
--u/DaBi5cu1t</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The longest professional tennis match of all time: John Isner vs Nicolas Mahut at Wimbledon 2010. It lasted 11 hours 5 minutes, spanning 3 days of play, with a final score of 6-4, 3-6, 6-7, 7-6, 70-68
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-It was already nearly twice as long as the previous record holder. The reason it will likely never be broken is that every professional tournament except for one (Roland-Garros) now has tiebreaker rules that limit the number of games that can be played in final sets. Although it’s hypothetically possible at RG, clay court tennis is not at all conducive to the serve-and-volley style of play that led to the insanely long 5th set of Isner-Mahut.
-
--u/MSims2992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The current record for the Cannonball Run, a drive from NY to LA, is about 25.5 hours. It was set in May of 2020, and the drivers were able to make use of the lack of traffic due to the pandemic to break the record. Barring another similar world-changing event, traffic conditions will probably never be what they were when that record was set.
-
--u/SexyNeanderthal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. When I was a kid, we had a Guinness book of records lying around that we liked to browse in while bored. There was this one guy in it who held a record for most bikes eaten. No, you did read that right. He ground up a bike and slowly consumed it over I dont know how long a time.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The record was accompanied by a note that no further records of bike eating would be accepted, as it was deemed too dangerous.
-
--u/Picajosan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ronnie OSullivans quickest maximum 147 break.
-
--u/dezzalzik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Cy Young pitched 749 complete games in his career.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The current active pitcher with the most complete games in his career is Adam Wainwright, who has pitched for 17 years and has 27 complete games total. Pitchers just don’t pitch the whole game anymore, and Young’s record will never come close to being touched.
-
--u/VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Luigi Fagioli won the 1951 French Grand Prix at the age of 53 years, 22 days - making him the oldest F1 winner in history. Given that F1 drivers rarely continue driving past 40 anymore, this record looks pretty safe.
-
--u/GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. John Isner hit 113 aces in his 70-68 match at Wimbledon played over 3 days. That record will never be broken because Wimbledon changed their rules so they can’t play that many games ever again! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Wayne Gretzky’s career points.
-
--u/CauliflowerNinja</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Aleksandr Karelin, Greco-Roman wrestler. 887 wins to 2 losses. Entered 9 world championships and never lost a bout in them.
-
--u/minorboozer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Tigers Woods’ 142 consecutive cuts made. Didn’t miss a cut between 1998 and 2005.
-
--u/JATPOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Don Bradmans career average of 99.94.
-
--u/CrabDipYayYay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Wade Boggs drank 107 beers on a domestic flight. RIP Wade Boggs. (Hes alive)
-
--u/sherifchrismannix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The current unlimited record is 511.11 km/h (317.59 mph), achieved by Australian Ken Warby in the Spirit of Australia in 1978.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-It hasn’t been broken to this day due to how dangerous it is to go at those sort of speeds on the surface and plenty of people have passed away trying.
-
--u/Sliiated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203380.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">30 Rare Photos from History to Change Your Perspective</a><br>
+## <a href="#linky2" id="linky1">30 Rare Photos from History to Change Your Perspective</a><br>
 
 <span style="font-size:4em">1. A Meccan merchant with his Circassian slave. (1886-1887)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201392.jpg" style="width:100%"><br>
 
@@ -162,6 +63,86 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 <span style="font-size:4em">29. Japanese American boy scouts in the Granada internment camp raise the flag to half-staff at a memorial ceremony for six “Nisei” relatives of the camp members killed in action in Italy. Colorado, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201417.png" style="width:100%"><br>
 
 <span style="font-size:4em">30. A Dust Bowl farm. Coldwater District, north of Dalhart, Texas. This house is occupied; most of the houses in this district have been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201418.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -275,7 +256,106 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">17 Things that are Irrationally Irritating</a><br>
+## <a href="#linky6" id="linky5">25 Records That Will Absolutely Never Be Broken</a><br>
+
+<span style="font-size:4em">1. FDR being elected US president 4 times.
+
+-u/holyhellnothingworks
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Joe DiMaggios consecutive hit streak. Ichiros 262 hits in a season.
+
+-u/nyxstal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Lion King as the highest VHS sales of all time.
+
+-u/Fawqueue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Jacque Villeneuve, Michael Schumacher and Heinz Harald Frentzen set the exact same time in qualifying in the 1997 European Grand Prix. To the THOUSANDTH of a second.
+
+-u/DaBi5cu1t</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The longest professional tennis match of all time: John Isner vs Nicolas Mahut at Wimbledon 2010. It lasted 11 hours 5 minutes, spanning 3 days of play, with a final score of 6-4, 3-6, 6-7, 7-6, 70-68
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+It was already nearly twice as long as the previous record holder. The reason it will likely never be broken is that every professional tournament except for one (Roland-Garros) now has tiebreaker rules that limit the number of games that can be played in final sets. Although it’s hypothetically possible at RG, clay court tennis is not at all conducive to the serve-and-volley style of play that led to the insanely long 5th set of Isner-Mahut.
+
+-u/MSims2992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The current record for the Cannonball Run, a drive from NY to LA, is about 25.5 hours. It was set in May of 2020, and the drivers were able to make use of the lack of traffic due to the pandemic to break the record. Barring another similar world-changing event, traffic conditions will probably never be what they were when that record was set.
+
+-u/SexyNeanderthal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When I was a kid, we had a Guinness book of records lying around that we liked to browse in while bored. There was this one guy in it who held a record for most bikes eaten. No, you did read that right. He ground up a bike and slowly consumed it over I dont know how long a time.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+The record was accompanied by a note that no further records of bike eating would be accepted, as it was deemed too dangerous.
+
+-u/Picajosan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Ronnie OSullivans quickest maximum 147 break.
+
+-u/dezzalzik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Cy Young pitched 749 complete games in his career.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+The current active pitcher with the most complete games in his career is Adam Wainwright, who has pitched for 17 years and has 27 complete games total. Pitchers just don’t pitch the whole game anymore, and Young’s record will never come close to being touched.
+
+-u/VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Luigi Fagioli won the 1951 French Grand Prix at the age of 53 years, 22 days - making him the oldest F1 winner in history. Given that F1 drivers rarely continue driving past 40 anymore, this record looks pretty safe.
+
+-u/GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. John Isner hit 113 aces in his 70-68 match at Wimbledon played over 3 days. That record will never be broken because Wimbledon changed their rules so they can’t play that many games ever again! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Wayne Gretzky’s career points.
+
+-u/CauliflowerNinja</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Aleksandr Karelin, Greco-Roman wrestler. 887 wins to 2 losses. Entered 9 world championships and never lost a bout in them.
+
+-u/minorboozer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Tigers Woods’ 142 consecutive cuts made. Didn’t miss a cut between 1998 and 2005.
+
+-u/JATPOR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Don Bradmans career average of 99.94.
+
+-u/CrabDipYayYay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Wade Boggs drank 107 beers on a domestic flight. RIP Wade Boggs. (Hes alive)
+
+-u/sherifchrismannix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The current unlimited record is 511.11 km/h (317.59 mph), achieved by Australian Ken Warby in the Spirit of Australia in 1978.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+It hasn’t been broken to this day due to how dangerous it is to go at those sort of speeds on the surface and plenty of people have passed away trying.
+
+-u/Sliiated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203380.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">17 Things that are Irrationally Irritating</a><br>
 
 <span style="font-size:4em">1. “Faceplanted onto asphalt yesterday. Literally my nightmare.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87201315.jpg" style="width:100%"><br>
 
@@ -313,7 +393,7 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
+## <a href="#linky8" id="linky7">People Can’t Tell if These Pairs Are Siblings or Dating</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/040554/87202385/siblingordating3.png" style="width:100%"><br>
 
@@ -389,7 +469,7 @@ She was a tobacco-spitting, beer-guzzling, foul-mouthed woman who preferred men�
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">30 Chilling Facts You May Regret Learning</a><br>
+## <a href="#linky9" id="linky8">30 Chilling Facts You May Regret Learning</a><br>
 
 <span style="font-size:4em">1. Speaking from personal experience here, but your body can randomly decide to become allergic to damn near everything edible at any time. Not very fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87203141.jpg" style="width:100%"><br>
 
@@ -458,7 +538,7 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">22 Dank Memes That Are a Little Fed Up</a><br>
+## <a href="#linky10" id="linky9">22 Dank Memes That Are a Little Fed Up</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87202887.jpg" style="width:100%"><br>
 
@@ -500,7 +580,7 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Redneck Moments Proving You’re Country AF</a><br>
+## <a href="#linky11" id="linky10">Redneck Moments Proving You’re Country AF</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87203256.jpg" style="width:100%"><br>
 
@@ -566,7 +646,7 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">25 Movies That Just Couldn’t Get Made Anymore</a><br>
+## <a href="#linky12" id="linky11">25 Movies That Just Couldn’t Get Made Anymore</a><br>
 
 <span style="font-size:4em">1. I watched Never Been Kissed for the first time in a long time and theres like three different adults romantically linked to teenagers. No one actually sleeps with them but still....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87203328.jpg" style="width:100%"><br>
 
@@ -620,7 +700,31 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
+## <a href="#linky13" id="linky12">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202181.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202182.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202183.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202184.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202185.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202186.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/110727/87203316/8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202188.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202189.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202190.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Employee Works Overtime on Day Off, Gets Chewed Out by Entitled Boss</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/015325/87203472/one.png" style="width:100%"><br>
 
@@ -642,53 +746,7 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Hemingway Facts Just as Wild as the Man Himself</a><br>
-
-<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">27 Bada-- Helmets Taken Straight Out of the History Books</a><br>
+## <a href="#linky15" id="linky14">27 Bada-- Helmets Taken Straight Out of the History Books</a><br>
 
 <span style="font-size:4em">1. Helmet worn by the Athenian General Miltiades 2500 years ago in the battle of Marathon, given as an offering to the temple of Zeus at Olympia. Circa 490 BC. u/GaGator43</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/030244/87202342/athens.jpg" style="width:100%"><br>
 
@@ -746,107 +804,49 @@ HOWEVER, one day, someone discovered if you cooked dodo meat in the more delicio
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">HOA Karen Illegally Fines Homeowner, Gets Schooled in Court</a><br>
+## <a href="#linky16" id="linky15">Hemingway Facts Just as Wild as the Man Himself</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202181.png" style="width:100%"><br>
+<span style="font-size:4em">1. Zelda Fitzgerald (F. Scotts wife) thought that Hemingway was having an affair with her husband. In a bold move, F. Scott bought some condoms and had sex with a prostitute to prove he wasnt gay.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122513/87202179/zelda.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202182.png" style="width:100%"><br>
+<span style="font-size:4em">2. Shortly after his death by plane crash, Hemingway was spotted walking out of the woods, smile on his face, carrying bananas and gin.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122351/87202164/gin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202183.png" style="width:100%"><br>
+<span style="font-size:4em">3. Actress Ava Gardner once swam naked in Hemingways pool. He ordered that the water never be changed.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122308/87202159/ava.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202184.png" style="width:100%"><br>
+<span style="font-size:4em">4. His mom desperately wanted twin girls, so she would dress both Ernest and his sister in matching flowered dresses.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122332/87202161/dresses.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202185.png" style="width:100%"><br>
+<span style="font-size:4em">5. Hemingway was allegedly a fantastic cook. He had a great burger recipe as well as his famous bacon-wrapped trout.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122320/87202160/burger.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202186.png" style="width:100%"><br>
+<span style="font-size:4em">6. In the 1920s, he and James Joyce would get hammered together. Joyce would then pick fights and then hide behind Hemingway for protection.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122359/87202165/jj.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/29/110727/87203316/8.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. F. Scott Fitzgerald once asked Hemingway to check his penis. Fitzgerald thought it wasnt a normal size, but Hemingway confirmed that it was just fine.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/010037/87202246/fitz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202188.png" style="width:100%"><br>
+<span style="font-size:4em">8. Hes credited with inventing the Death in the Afternoon cocktail. The drink is made of champagne and absinthe.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122339/87202162/cocktail.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202189.png" style="width:100%"><br>
+<span style="font-size:4em">9. He was super paranoid that the FBI was actually bugging his phones and trying to track his movements. It turns out he was right, even though his family and friends thought he was crazy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122346/87202163/fbi.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87202190.png" style="width:100%"><br>
+<span style="font-size:4em">10. Back in the day, Abercrombie & Fitch was a very successful sporting goods store. Hemingway actually shot and killed himself with his favorite gun, which just happened to be an Abercrombie & Fitch shotgun.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122404/87202166/gun.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">11. His mom hated The Sun Also Rises. She said he was wasting his talent and that she didnt approve of words like bitch and damn.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122410/87202167/mom.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">38 Uplifting Pics and Memes to Take the Edge Off</a><br>
+<span style="font-size:4em">12. His third wife, Martha Gellhorn was the only woman at the beaches of Normandy on D-Day. She actually snuck into the bathroom of a hospital ship to get there.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122416/87202169/martha.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202107.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Armed with nothing but hand grenades and Tommy Guns, Hemingway took his fishing boat (Pilar) to fight German U-boats in WWII.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122421/87202170/pilar.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202108.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. He survived two plane crashes in two days, and was ultimately (and incorrectly) pronounced dead in 1954.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122428/87202171/plane.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202109.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. His infamous forehead scar was caused by pulling a skylight down on his head in a Paris bathroom. He thought it was toilet flushing chain.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122433/87202172/scar.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87202110.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. He began going to electroshock therapy for his depression, but would eventually beg his wife not to go back. He committed suicide the day after his 36th shock treatment.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122439/87202173/shock.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121746/87202124/0qsn9erzhd891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. Hemingways siblings also committed suicide.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122446/87202174/siblings.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121757/87202125/04icgyqu19891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. It has been confirmed that he was a failed KGB spy.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122450/87202175/spy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121808/87202126/1g174a88n9891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. The dude lived through just about everything. Aside from the two plane crashes he had a fractured skull, skin cancer, malaria, crushed vertebrae, dysentery, and a plethora of other ailments.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122458/87202176/strong.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121817/87202127/0act2d4f1d891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. The running joke was that Hemingway pissed so much of his money away into a bar urinal, that he technically owned it. He literally took the urinal from the bar, and moved it to his home in Key West.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122502/87202177/urinal.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121819/87202128/4daubaqot1891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202129/4rqyxomtay791.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121829/87202130/5kowqfwu29891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121839/87202131/8il6hv7l0a891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121840/87202132/42dlmkspo7891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121850/87202133/88crdaszhz791.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121852/87202134/72ws8va17e891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121901/87202135/d4ffn7ki59891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121903/87202136/dc0zd2i6wa891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121912/87202137/caM93TIdW340BMUCJhPhHiMk8uo_yewRmHpukXLABVg.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121914/87202138/EbrN-wNigrmAnJ8ELUD2IWCrcdJg1gooDCLsCG2YH18.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121923/87202139/fwv6tsk2i8891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121926/87202140/g5yxnpj1z8891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121934/87202141/efpvwm2k9c891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121937/87202142/g8UneR2czTtqODDPcR3rZM8xN4fdnOcobpNVEL0r0Yw.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121946/87202143/hu84lz2s16891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121947/87202144/i06h4ytj78891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121958/87202145/jq0bh8rcm9891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/121959/87202146/lfkntdmkp8891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122009/87202147/lrr11dezz7891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122010/87202148/mpiecd660l481.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122017/87202149/i5giphwmra891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122021/87202150/soz2x8w6g1891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122029/87202151/qxv3tvcu0f891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122032/87202152/TAnGUlTyfk2tUcHfGsKRFNJLp9-L0wtU1v4SGyNextY.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122041/87202153/tbs0tjt06b891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122131/87202154/u6osjct546891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122142/87202155/trsastngc6891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122153/87202156/VBG61R5tlDGOfTA5BTWv02MKA-2n8NWLR2pdAEBxiHo.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122202/87202157/umo2tzgug6891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. Both Hemingway and Walt Disney drove ambulances in World War 1.</span><br><img src="https://cdn.ebaumsworld.com/2022/06/28/122509/87202178/walt.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
