@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/06/2022-01:47:18
+Last updated: 07/06/2022-02:47:18
 <br>
 ## <a href="#linky2" id="linky1">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
 
@@ -43,183 +43,7 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">28 Pics Filled With NOPE</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206517.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">Unhinged Client Thinks He Can Keep Video After Refund, Thinks Again</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207779.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207780.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207781.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207782.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207783.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207784.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207785.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207786.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207787.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207788.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">17 Life Hack Guides to Get You through the Day</a><br>
-
-<span style="font-size:4em">1. How to jump from a speeding car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Pay scale of trades that don’t require a college degree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Free alternatives to paid software.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Shipping company guide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Tattoo pain chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Boundary-setting sentences.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Names on the family tree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Opossums are our friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A guide on how to sniff out pseudoscience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. How to adjust the taste of dishes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Military hand signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Shroom dosage chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Suspicious skin moles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. How long you can eat food for past the written expiration date.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Different sleeping positions and their pros vs. cons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. How to use google search effectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. How to tie the strongest knot in four steps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998780.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">25 FBI Fun Facts to Aid Your Investigation</a><br>
-
-<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/111750/87207790/0x0.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Operation ABSCAM was an FBI sting operation carried out in 1980 to trap corrupt politicians, which included a senator and six congressmen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Today I learned about Bradford Bishop, who allegedly killed his wife, mother and three sons in 1976. Bishop was only removed from the FBIs Top Ten Most Wanted List in 2018, due to his advanced age, and is still being pursued by the FBI, as there have been sightings of Bishop across Europe for 40 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Joseph Pistone was an FBI agent who infiltrated one of the five big families of the Italian Mafia in New York. The operation lasted from 1976 to 1981 and led to over 200 indictments and over 100 convictions of Mafia members.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Today I learned of the August 26, 1980 Harvey’s Lake Tahoe casino bombing. Three men in maintenance uniforms rolled in a device covered in cloth labeled IBM to a 2nd story empty office with a note demanding $3 million. The FBI was forced to detonate it after failing to defuse it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. An FBI whistleblower reported multiple problems in forensic cases. After years of the FBI seeking to ruin him, his claims were investigated and a report showed that forensic hair analysis was flawed or inaccurate over 90% of the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ernest Hemingways paranoia has been ascribed to everything from alcoholism to bi-polar disorder to CTE, but he was indeed being followed by the FBI due to his extensive ties in Cuba.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Mark Felt, who notoriously provided reporters Bob Woodward and Carl Bernstein with critical information about the Watergate scandal under the pseudonym Deep Throat, was nearly nominated to serve as Acting Director of the FBI after the resignation of L. Patrick Gray in 1973.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Operation Rocky Top was an FBI investigation in 1986 to uncover illegal activities in charity bingo including the sale of illegal bingo licenses. In the end, over 50 were convicted. Seven politicians were incarcerated which included the leader of the House of Representatives in Tennessee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. An underachieving Princeton student wrote a term paper describing how to make a nuclear bomb. He got an A but his paper was taken away by the FBI.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In the 1940s, filmmaker Orson Welles was under investigation by the FBI as they believed he had ties to communist activities because of his film “Citizen Kane.” He was considered such a threat that the FBI had him on a list of people who should be apprehended in case of a national emergency.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Chase National Bank helped raise over $20 million for the Nazis between 1936-1941, by selling Reichmarks to German-American citizens at a discounted rate, and escaped federal prosecution through threatening to leak FBI secrets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In May 25, 2003, two men boarded an empty Boeing 727 at an airport in Angola and flew off into the sunset. The FBI and CIA conducted a massive search, but neither the men nor the plane was ever seen or heard from again. it is one of the largest aircraft ever to disappear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Jack Barsky was a former KGB agent who lived in the US. The FBI bought the property next door and monitored him for 3 years. He was caught and confessed. Barsky later became close friends with the FBI agent tasked with monitoring him and he is now a godfather to Barskys child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In 1933, FBI Director John Edgar Hoover learned of a namesake who had failed to pay a debt of $900 to a store in Washington. As Hoover was particular about paying his bills on time and so did not want to be associated with this disreputable behavior, he changed his name to J. Edgar Hoover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. FBI agent Robert Hanssen was tasked to find a mole within the FBI after the FBIs moles in the KGB were caught. Robert Hanssen was the mole and had been working with the KGB since 1979.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In 1995 a policy known as “The Wall was created. It discouraged info sharing between the CIA and FBI, playing a critical role in the inability to stop 9/11. It got so bad agents played a CD with Pink Floyds Another Brick in the Wall into the phone as they were told their access was denied.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In 2006, a woman farted on a plane and tried to cover up the smell by lighting matches, causing an emergency landing and an FBI investigation. Although she was not charged in the incident, she was also not allowed back on the plane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Washtub was a joint Air Force and FBI stay behind operation that trained Alaskan citizens in espionage, sabotage, and rescue in case of a Soviet invasion. Alaskan natives were disregarded for their supposed questionable allegiance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Alaska Packard Davidson, sister of the founders of the Packard automobile company, became the first female FBI special agent in 1922. Following the resignations of Davidson and two other women in the 1920s, the FBI had no female agents until 1972.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Today I learned about the infamous 1986 FBI Miami shootout. A small group of field agents for the FBI attempted to apprehend William Russell Matix and Michael Lee Platt, which resulted in 4 deaths and 5 injuries. The whole event reads like an action movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. In 1977, the FBI started to build a tunnel under the Soviet Embassy in Washington D.C to eavesdrop on the Soviets; the construction took years, was riddled with complications, and worse yet - the Soviets knew about the tunnel because of a tip-off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. In 1980 the FBI formed a fake company and attempted to bribe members of congress. Nearly 25% of those tested accepted the bribe, and were convicted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The FBI has struggled to hire hackers because of the FBI hiring rule that the applicant must not have used marijuana during the last 3 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A US law firm set up honeypots on torrent-sharing site The Pirate Bay and then sued people who downloaded their torrents. The matter reached the FBI and the pirate site accepted to collaborate with the feds resulting in the crooked lawyers getting jail time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205998.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">56 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky3" id="linky2">56 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206167.jpg" style="width:100%"><br>
 
@@ -333,35 +157,61 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Guy Teaches Ungrateful Weekend Warrior a Lesson in Gratitude</a><br>
+## <a href="#linky4" id="linky3">25 FBI Fun Facts to Aid Your Investigation</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206475.png" style="width:100%"><br>
+<span style="font-size:4em">1. An FBI informant secretly wore a wire to breakfast with a city official suspected of bribery, and met the suspect at the WTC Marriott. In the middle of getting a confession, the informant ends up making what is believed to be the only uninterrupted audio recording of the Sept. 11 attack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/111750/87207790/0x0.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206476.png" style="width:100%"><br>
+<span style="font-size:4em">2. Operation ABSCAM was an FBI sting operation carried out in 1980 to trap corrupt politicians, which included a senator and six congressmen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206477.png" style="width:100%"><br>
+<span style="font-size:4em">3. Today I learned about Bradford Bishop, who allegedly killed his wife, mother and three sons in 1976. Bishop was only removed from the FBIs Top Ten Most Wanted List in 2018, due to his advanced age, and is still being pursued by the FBI, as there have been sightings of Bishop across Europe for 40 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206478.png" style="width:100%"><br>
+<span style="font-size:4em">4. Joseph Pistone was an FBI agent who infiltrated one of the five big families of the Italian Mafia in New York. The operation lasted from 1976 to 1981 and led to over 200 indictments and over 100 convictions of Mafia members.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206479.png" style="width:100%"><br>
+<span style="font-size:4em">5. Today I learned of the August 26, 1980 Harvey’s Lake Tahoe casino bombing. Three men in maintenance uniforms rolled in a device covered in cloth labeled IBM to a 2nd story empty office with a note demanding $3 million. The FBI was forced to detonate it after failing to defuse it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206480.png" style="width:100%"><br>
+<span style="font-size:4em">6. An FBI whistleblower reported multiple problems in forensic cases. After years of the FBI seeking to ruin him, his claims were investigated and a report showed that forensic hair analysis was flawed or inaccurate over 90% of the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206481.png" style="width:100%"><br>
+<span style="font-size:4em">7. Ernest Hemingways paranoia has been ascribed to everything from alcoholism to bi-polar disorder to CTE, but he was indeed being followed by the FBI due to his extensive ties in Cuba.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206482.png" style="width:100%"><br>
+<span style="font-size:4em">8. Mark Felt, who notoriously provided reporters Bob Woodward and Carl Bernstein with critical information about the Watergate scandal under the pseudonym Deep Throat, was nearly nominated to serve as Acting Director of the FBI after the resignation of L. Patrick Gray in 1973.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206483.png" style="width:100%"><br>
+<span style="font-size:4em">9. Operation Rocky Top was an FBI investigation in 1986 to uncover illegal activities in charity bingo including the sale of illegal bingo licenses. In the end, over 50 were convicted. Seven politicians were incarcerated which included the leader of the House of Representatives in Tennessee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206484.png" style="width:100%"><br>
+<span style="font-size:4em">10. An underachieving Princeton student wrote a term paper describing how to make a nuclear bomb. He got an A but his paper was taken away by the FBI.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206485.png" style="width:100%"><br>
+<span style="font-size:4em">11. In the 1940s, filmmaker Orson Welles was under investigation by the FBI as they believed he had ties to communist activities because of his film “Citizen Kane.” He was considered such a threat that the FBI had him on a list of people who should be apprehended in case of a national emergency.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206486.png" style="width:100%"><br>
+<span style="font-size:4em">12. Chase National Bank helped raise over $20 million for the Nazis between 1936-1941, by selling Reichmarks to German-American citizens at a discounted rate, and escaped federal prosecution through threatening to leak FBI secrets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In May 25, 2003, two men boarded an empty Boeing 727 at an airport in Angola and flew off into the sunset. The FBI and CIA conducted a massive search, but neither the men nor the plane was ever seen or heard from again. it is one of the largest aircraft ever to disappear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Jack Barsky was a former KGB agent who lived in the US. The FBI bought the property next door and monitored him for 3 years. He was caught and confessed. Barsky later became close friends with the FBI agent tasked with monitoring him and he is now a godfather to Barskys child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In 1933, FBI Director John Edgar Hoover learned of a namesake who had failed to pay a debt of $900 to a store in Washington. As Hoover was particular about paying his bills on time and so did not want to be associated with this disreputable behavior, he changed his name to J. Edgar Hoover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. FBI agent Robert Hanssen was tasked to find a mole within the FBI after the FBIs moles in the KGB were caught. Robert Hanssen was the mole and had been working with the KGB since 1979.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In 1995 a policy known as “The Wall was created. It discouraged info sharing between the CIA and FBI, playing a critical role in the inability to stop 9/11. It got so bad agents played a CD with Pink Floyds Another Brick in the Wall into the phone as they were told their access was denied.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In 2006, a woman farted on a plane and tried to cover up the smell by lighting matches, causing an emergency landing and an FBI investigation. Although she was not charged in the incident, she was also not allowed back on the plane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Washtub was a joint Air Force and FBI stay behind operation that trained Alaskan citizens in espionage, sabotage, and rescue in case of a Soviet invasion. Alaskan natives were disregarded for their supposed questionable allegiance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Alaska Packard Davidson, sister of the founders of the Packard automobile company, became the first female FBI special agent in 1922. Following the resignations of Davidson and two other women in the 1920s, the FBI had no female agents until 1972.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Today I learned about the infamous 1986 FBI Miami shootout. A small group of field agents for the FBI attempted to apprehend William Russell Matix and Michael Lee Platt, which resulted in 4 deaths and 5 injuries. The whole event reads like an action movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. In 1977, the FBI started to build a tunnel under the Soviet Embassy in Washington D.C to eavesdrop on the Soviets; the construction took years, was riddled with complications, and worse yet - the Soviets knew about the tunnel because of a tip-off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. In 1980 the FBI formed a fake company and attempted to bribe members of congress. Nearly 25% of those tested accepted the bribe, and were convicted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The FBI has struggled to hire hackers because of the FBI hiring rule that the applicant must not have used marijuana during the last 3 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A US law firm set up honeypots on torrent-sharing site The Pirate Bay and then sued people who downloaded their torrents. The matter reached the FBI and the pirate site accepted to collaborate with the feds resulting in the crooked lawyers getting jail time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87205998.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">30 Worst Things People Ever Found In Hotel Rooms</a><br>
+## <a href="#linky5" id="linky4">30 Worst Things People Ever Found In Hotel Rooms</a><br>
 
 <span style="font-size:4em">1. A syringe under a mattress, AFTER I felt a prick on the end of my finger. I was tucking in a sheet under the bed, and there were actually two uncovered insulin needles under there. I got rushed to hospital; hepatitis shots and a tetanus shot, two different hiv prevention medication for a month, monthly blood tests for about a year. Im fine, and it barely stuck me in truth, but I was already afraid of needles and disease I still feel traumatized. I was not going to post at all, but Ive always wondered if there was anything else I should have done. The doctors assured me that they were more precautious than necessary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204899.jpg" style="width:100%"><br>
 
@@ -425,7 +275,67 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">New Neighbor Stingy about Sharing Driveway, Receives Instant Karma</a><br>
+## <a href="#linky6" id="linky5">28 Pics Filled With NOPE</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206517.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">New Neighbor Stingy about Sharing Driveway, Receives Instant Karma</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112916/87207793/one.jpg" style="width:100%"><br>
 
@@ -441,7 +351,7 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">40 Savage Tweets From This Week on Twitter</a><br>
+## <a href="#linky8" id="linky7">40 Savage Tweets From This Week on Twitter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205811.jpg" style="width:100%"><br>
 
@@ -525,7 +435,31 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">20 Facts With Absolutely No Fun in Them</a><br>
+## <a href="#linky9" id="linky8">Unhinged Client Thinks He Can Keep Video After Refund, Thinks Again</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207779.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207780.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207781.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207782.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207783.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207784.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207785.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207786.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207787.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207788.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">20 Facts With Absolutely No Fun in Them</a><br>
 
 <span style="font-size:4em">1. Your brain blocks you from feeling your organs moving around inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012511/87205355/notfunfacts2.jpg" style="width:100%"><br>
 
@@ -566,6 +500,72 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 <span style="font-size:4em">19. When youre four months pregnant, the baby starts to pee inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012704/87205387/notfunfacts20.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. Antarctica smells like penguin poop. Antarctica is a desert, it is too cold for bacteria to live. Nothing there to clean up penguin droppings. If you are close enough to see penguins, you will also smell them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/020506/87205446/notfunfacts3.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">17 Life Hack Guides to Get You through the Day</a><br>
+
+<span style="font-size:4em">1. How to jump from a speeding car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Pay scale of trades that don’t require a college degree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Free alternatives to paid software.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Shipping company guide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Tattoo pain chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Boundary-setting sentences.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Names on the family tree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Opossums are our friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A guide on how to sniff out pseudoscience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. How to adjust the taste of dishes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Military hand signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Shroom dosage chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Suspicious skin moles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. How long you can eat food for past the written expiration date.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Different sleeping positions and their pros vs. cons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. How to use google search effectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. How to tie the strongest knot in four steps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998780.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Guy Teaches Ungrateful Weekend Warrior a Lesson in Gratitude</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206475.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206476.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206477.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206478.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206479.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206480.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206481.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206482.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206483.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206484.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206485.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206486.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
