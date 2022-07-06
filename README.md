@@ -1,201 +1,79 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/06/2022-06:47:18
+Last updated: 07/06/2022-07:47:18
 <br>
-## <a href="#linky2" id="linky1">56 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky2" id="linky1">17 Life Hack Guides to Get You through the Day</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206167.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. How to jump from a speeding car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998781.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206168.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Pay scale of trades that don’t require a college degree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206169.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Free alternatives to paid software.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206170.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Shipping company guide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206171.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Tattoo pain chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206172.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Boundary-setting sentences.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206173.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Names on the family tree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206174.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Opossums are our friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206175.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. A guide on how to sniff out pseudoscience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206176.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. How to adjust the taste of dishes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206177.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Military hand signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206178.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Shroom dosage chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206179.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Suspicious skin moles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206180.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. How long you can eat food for past the written expiration date.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998777.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206181.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Different sleeping positions and their pros vs. cons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998778.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206182.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. How to use google search effectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998779.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206222.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. How to tie the strongest knot in four steps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998780.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 Worst Things People Ever Found In Hotel Rooms</a><br>
+## <a href="#linky3" id="linky2">Boss Demands Employees Stay Late, Horrified by Overtime Requests</a><br>
 
-<span style="font-size:4em">1. A syringe under a mattress, AFTER I felt a prick on the end of my finger. I was tucking in a sheet under the bed, and there were actually two uncovered insulin needles under there. I got rushed to hospital; hepatitis shots and a tetanus shot, two different hiv prevention medication for a month, monthly blood tests for about a year. Im fine, and it barely stuck me in truth, but I was already afraid of needles and disease I still feel traumatized. I was not going to post at all, but Ive always wondered if there was anything else I should have done. The doctors assured me that they were more precautious than necessary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204899.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Someone pooped in the nightstand. It had been there long enough to dry out, so it took nearly an hour to scrub it clean. Another room had bloody menstrual pads stuck all over the walls at random.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204901.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207761.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Worked at an upscale ski resort. One family let their toilet-training kid pee behind the toilet and under the sink throughout their whole visit, then put our white towels on top of it to help clean up the mess. Whole place smelled like a freakin rhino enclosure. Ruined the towels.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204902.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207762.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Two worst experiences I had to witness were:A couple came to the desk early in the AM, they clearly had been in an all out fist fight. They were a cash paying customer and all they said was, “sorry, we got in a fight, there is blood in the room, we are HIV positive.” Then they took off. Room was an absolute horror show, had to hire special cleaners to come gut the room and ended up replacing basically everything in the room. Room was OOC for almost a year. Same hotel, we had some wards of the state types staying. Worst were a couple with a newborn. They couldn’t afford basically anything, so made the decision to use our towels as diapers. The state wouldn’t let us kick them out and they were just taking the towels off the carts. Ended up having to evict them from the hotel as they had been there long enough to establish residency...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204903.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207763.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. One of my favorite hotel stories (not a room, but the pool):It’s late evening, and a woman comes angrily in to our lobby from the pool with three children and says, “You guys need to do something about what’s going on out there,” and gestures to the pool area. I look at her inquisitively and she just says, “Go look, you’ll see.”I walk outside and it’s pretty immediately clear the couple in the hot tub are “discreetly” having sex. I approach just enough to get their attention and say, “Hi guys, I know everyone’s here to have a good time tonight, but we got a complaint about some hot and heavy activity in the hot tub.” They’re clearly intoxicated, but apologize and say it will stop. A few minutes later, the phone rings. It’s the woman who complained before calling from her room which faces the pool. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204904.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207764.png" style="width:100%"><br>
 
-<span style="font-size:4em"> “They’re still at it. You need to do something. Children are staying in this hotel.”I go back outside and sure enough, now that the spectators are gone, they’re f*****g it out in the hot tub. I go back out, tell them to get out. They start giving me the story: it’s their anniversary, they’re very sorry, we won’t have any more problems with them, etc etc. I foolishly let them stay in the hot tub.10 minutes later: phone rings. “Seriously!!?” Same lady. I look out the window, they’re both totally naked. “I’m sorry, ma’am, I’ve warned them, I’m calling the police. Police arrive and head out to the pool. The officer handles it like a pro. He’s very nice, let’s them know that it’s inappropriate, but he doesn’t want to ruin what’s clearly a fun weekend for them both, but they need to go to their room and not come out for the rest of the night. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204900.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207765.png" style="width:100%"><br>
 
-<span style="font-size:4em">They are to stay in their room until tomorrow morning. No excuses. The couple thanks him for his understanding and promises they’ll behave and stay in their room. The officer and I wind up chatting and laughing about it all and he asks if he can grab a cup of coffee in our lobby while he fills out his report. Of course he can. He’s sitting in the Lobby, I’m back to work, and I hear him say, “Oh, you’ve got to be f*****g kidding me!!” I’m shocked at the broken quietness as I see him jump up and exit the Lobby. Right to the hot tub, where the same couple is back in the hot tub making out. (I can only assume they took the stairs at the end of the hall out to the parking lot and around to the pool.)Arrested them both. They came back Monday afternoon (they were arrested on Friday night) to collect their property.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204905.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207766.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. A bachelorette party came through and after they left the next night we had a new rule that charges a $400 glitter fee. But I mean you couldnt see the floor so much glitter. Its been a few years and you can probably still find glitter in the carpet throughout the hotel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204906.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207767.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Worst to clean up, not because it was gross, but because it was annoying and time consuming, was popcorn. A baseball team stayed in a couple rooms and I guess they had those like caramel popcorn balls? That they had just thrown all over the room. At the walls, furniture. It stuck to the carpet and was almost impossible to vacuum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204907.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207768.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Not a hotel worker but I found a webcam in the air vent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204908.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207769.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. I was roadtripping alone, and decided to support the local economy of this small town I was stopping in and stay in a small family-owned motel instead of a chain. It was obviously infested with bedbugs. Obvious... the next morning, that is. (I arrived late at night and went straight to bed.)The worst thing was that I was moving myself out to college and had all my worldly possessions in the car with me. ALL of my clothing, ALL of my bedding, the few pieces of furniture I was bringing... Fortunately, isolating everything that had been in that room in trashbags, and buying bedbug spray immediately prevented it from infesting everything I owned. But all the time I spent anticipating the worst got me hugely stressed out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204909.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207770.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Old couple checked out and left a huge box of sex toys. Not that bad right?We keep items for 90 days, hotel gets first dibs after that (say its an iPad that would be good for something) then whoever found it gets second dibs, then GM, then its whoever wants it. Head house keeper kept them locked in her desk bc she wanted first dibs and was scared someone else would take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204910.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207771.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Woman with mysophobia (fear of germs) stayed with us. She never let the cleaning ladies into the room as she preferred to clean it herself. One day she leaves to go out and removes the do disturb sign. Maid calls down and says the room has a strong chemical odor and found bags of pee and poop in the drawers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204911.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207772.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. It was a hallway. I worked the front desk. A little league baseball team was staying the night and a guest complained to my manager about bats flying around. My manager assumed the baseball team was just being roudy and headed up to tell them to calm down. Turns out it wasnt baseball bats... Just a normal ol flying bat hanging out in the hallway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204912.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207773.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. My ex-wife projectile vomited all over a room at the La Quinta in Somerville after way too many SoCo’s at the Rattlesnake. I cannot drive 93 Northbound out of Boston without some degree of shame. Sorry, La Quinta workers. I did the best I could, but there was only so much that could be done. Also, this is one of the many reasons she is now my ex-wife.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A bear. First, you gotta understand that a lot needs to happen for this to occur. Our lowest floor, was still about a meter and a half from the ground, and each outside room had a balcony rail. However, a guest had decided to want to unload his motorcycle from his truck and leave the ramp down, so (I’m assuming) he could ride the bike up when he was done. The guest that was staying in the room had room service, decided to leave the food uncovered and the balcony doors open, and later went to the hotel pool/spa to relax. Upon returning, they had gone to us at reception and said that there was a bear in the room. Puzzled, we quietly approached the room and slowly opened the door. Lo and behold, there was a bear eating room service and making a mess of my afternoon.We called Parks Canada to deal with it. Guest was not charged a cleaning fee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Not a worker but once my family checked into our hotel and go to our room and open it up only to find a very mortified naked man sitting on the couch watching tv. Made eye contact and just backed out of there. He has the same exact name as me so that’s where the mess up came about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Not me but my dad. He was the director of housekeeping for a worldwide hotel chain. His housekeepers didn’t know what to do with a girthy 12-inch dildo suction cupped on the writing table. It was “still *very* moist” he said. Then he looked up who stayed in the room to see if maybe they wanted it back but it was 2 tiny, frail little old ladies (canes & all) and he said it was too embarrassing to contact them so he waited a bit to see if they’d call asking for it but they never did. He ended up throwing it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I worked at a hotel a few years ago, front desk. I checked out a nice couple in the morning, they were very friendly, said they enjoyed their stay. Then housekeeping got to their room, the poor woman looked shell-shocked. I got to go through the room with a camera and my supervisor to document the state of the room. 2 large, black, double headed dildoes, lots of ziploc baggies with powdery residue, syringes (some used, some still with caps on them, including 2 in the toilet), and more travel sized bottles of baby oil than I could count. We also found what appeared to be feces and blood smeared all over the bedding and walls and a small digital camera. Police were called, descriptions of them taken, and all their information they had used to check in. I quit soon after, so I dont know if they ever found them or pressed charges.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Pizza. And not just like leftovers. An entire pizza. And not a single slice of it in the box. The first red flag we found was the slice of pizza smeared all over on the TV. Then we saw two slices side by side like they had worn them for slippers and dragged their feet across the floor. One slice in the dresser, one in the nightstand, one in the sheets, and one in the bathroom sink.We cleaned the room as normal and put all the pizza in the box. The whole time Im wondering why someone would do this, was the pizza not good? Was one slice enough and you had to buy the whole thing? Im doing the final checks in the room and it still smells like pizza. I flick the lamp on and look for the final slice. I finally find it, shadowed in the lamp shade. This individual had smeared the last slice on the inside of the lamp shade. That was the final piece of the puzzle (or pizzazule). This person bought an entire pizza just to hide it in his hotel room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A dead body... someone [taken their own life] in the hotel room by hanging themselves in the closet. Was in there a few days before we found him....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. A friend used to clean hotel rooms as a side job, once he found a s**t on the night stand with a slice of cheese on top. Another time, he went into a room to clean and this woman was lying on the bed naked, he apologized and started to leave. She offered him 50 euros to spit on her while she masturbated. He spat on her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. 25 years ago I worked at a snooty part of a snooty ski resort in Park City, Utah. Most of the regular guests were just typical old rich white dudes, but during Sundance season though, the celebrities come out. There is a certain musician, entertaining us for decades now, who has a disgusting hobby. Or did in the early 90s at least. Next time youre cuttin Footloose, or gettin close to the Danger Zone, just know that Kenny Loggins gives his entire family coffee-ground enemas, which leaves a giant mess, and leaves it for the hotel staff to clean up. Twice in one stay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I was in housekeeping for a while in the winter and a co-worker of mine found a poop in a condom tied to the microwave door. Definitely the most baffling thing Id heard of anyone finding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. It was a family retreat/kids birthday party. The adults were getting sh**faced while the kids were in the presidential suite raising hell. They had decided to have a fully stocked ice cream bar and allowed the kids to do what they wanted with it. M&Ms crushed into the carpet, chocolate footprints on the walls, whipped cream f*****g everywhere. Fruit punch spilled on the bed. In total we had to charge them about $7k in damages, which they took to court, because they thought The Cleanup would be included, thats why we did it at a hotel!They also smashed glass all over our dog hiking trail, which I had to clean up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I do hotel renovations, so we find anything the housekeepers have forgotten over the years. Most often we find dirty magazines, clothing, children’s toys. Sometimes drugs in super random places lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Someone wrote Red Rum all over the place</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A usb drive with two different versions of their obituary that they typed up for themselves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. People that have died, feces on the walls and furniture along with vomit, drug paraphernalia, drugs, and once a gun. Feces and vomit is the worst though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Found bloody parrot feathers all over a room. They claimed it was service animal (it wasnt) and had gotten too stressed and pulled all of its plumage out. The guest tried to blame the hotel for noise. We charged them for the cleanup.Was balancing month end one day when the front was swarmed with police cars. They raided a room with no notice to us at the front desk. Turned out a pimp was cooking meth in one of rooms with two [call grils] and a dog. There was a short standoff before everyone was arrested. Their car was seemingly forgotten about in the parking lot, but it disappeared a week later. We were unable to charge for damages since all of their cards were stolen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204928.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207774.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">New Neighbor Stingy about Sharing Driveway, Receives Instant Karma</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112916/87207793/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112944/87207798/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112939/87207797/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112922/87207794/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112933/87207796/five.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112927/87207795/six.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">40 Savage Tweets From This Week on Twitter</a><br>
+## <a href="#linky4" id="linky3">40 Savage Tweets From This Week on Twitter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205811.jpg" style="width:100%"><br>
 
@@ -279,7 +157,7 @@ Last updated: 07/06/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
+## <a href="#linky5" id="linky4">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
 
 <span style="font-size:4em">1. The dreams of 13 Going on 30’s main character came true, and several elements prove it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205902.jpg" style="width:100%"><br>
 
@@ -321,51 +199,7 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Facts With Absolutely No Fun in Them</a><br>
-
-<span style="font-size:4em">1. Your brain blocks you from feeling your organs moving around inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012511/87205355/notfunfacts2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When youre burning, the first thing that starts to melt is your eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012522/87205356/notfunfacts5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In some regions of Australia, 90 percent of koalas have chlamydia, which poses a threat to the species extinction unless a vaccine is created or widespread koala culling takes place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012533/87205357/notfunfacts1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Washington Square Park in New York is essentially a graveyard, with an estimated 20,000 bodies buried below the surface; many were yellow fever victims, wrapped in yellow sheets and buried by the poorest residents. When the foundation for the famous arch was dug, a number of these were exposed.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012541/87205359/notfunfacts4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If you are an identical twin it is possible that you and your siblings identities were swapped and your parents never caught it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012544/87205360/notfunfacts6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In the books, Stuart Little was never explicitly called a mouse. Hes pretty much described as a deformed mouse-esque person born from human parents.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012552/87205362/notfunfacts7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The oldest person alive was born with an entirely different set of humans on the planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012555/87205363/notfunfacts8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The TSA missed 96% of contraband during an inspection in 2015.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012603/87205365/notfunfacts9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Wasps survive without a head for 12 hours. I found that out when a wasp ended up beheaded in my living room and still came at me for the kill. It was terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012606/87205366/notfunfacts10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Crows are currently in their own Stone Age. They’ve been seen making very articulate tools.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012614/87205369/notfunfacts11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Only one in a thousand sea turtles born actually make it to adulthood.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012618/87205370/notfunfacts12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Alzheimers disease can cause you to pass away since your brain will no longer be able to chew, swallow, breathe, etc.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012626/87205373/notfunfacts13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. 50% of Americans diagnosed with cancer will lose their life savings.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012629/87205374/notfunfacts14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Theres a bird that feeds its younger offspring to the eldest.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012638/87205377/notfunfacts15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Deaf schizophrenics dont hear voices, they see hands or lips as mental images that tell them what to do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012640/87205378/notfunfacts16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Vending machines kill more people than sharks do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012642/87205380/notfunfacts17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Malaria is the #1 cause of human death of all time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205382/notfunfacts18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Your body can randomly decide to become allergic to just about everything edible at any time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205384/notfunfacts19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. When youre four months pregnant, the baby starts to pee inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012704/87205387/notfunfacts20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Antarctica smells like penguin poop. Antarctica is a desert, it is too cold for bacteria to live. Nothing there to clean up penguin droppings. If you are close enough to see penguins, you will also smell them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/020506/87205446/notfunfacts3.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">Unhinged Client Thinks He Can Keep Video After Refund, Thinks Again</a><br>
+## <a href="#linky6" id="linky5">Unhinged Client Thinks He Can Keep Video After Refund, Thinks Again</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207779.png" style="width:100%"><br>
 
@@ -389,7 +223,7 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Dudes Trying to Flirt through Roleplay Is New Level Cringe</a><br>
+## <a href="#linky7" id="linky6">Dudes Trying to Flirt through Roleplay Is New Level Cringe</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015052/87207962/bear.jpg" style="width:100%"><br>
 
@@ -433,41 +267,127 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">17 Life Hack Guides to Get You through the Day</a><br>
+## <a href="#linky8" id="linky7">New Neighbor Stingy about Sharing Driveway, Receives Instant Karma</a><br>
 
-<span style="font-size:4em">1. How to jump from a speeding car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998781.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112916/87207793/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Pay scale of trades that don’t require a college degree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998768.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112944/87207798/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Free alternatives to paid software.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998767.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112939/87207797/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Shipping company guide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998769.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112922/87207794/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Tattoo pain chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998765.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112933/87207796/five.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Boundary-setting sentences.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998770.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112927/87207795/six.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Names on the family tree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998771.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">8. Opossums are our friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998766.jpg" style="width:100%"><br>
+## <a href="#linky9" id="linky8">20 Facts With Absolutely No Fun in Them</a><br>
 
-<span style="font-size:4em">9. A guide on how to sniff out pseudoscience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998772.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Your brain blocks you from feeling your organs moving around inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012511/87205355/notfunfacts2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. How to adjust the taste of dishes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998773.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. When youre burning, the first thing that starts to melt is your eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012522/87205356/notfunfacts5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Military hand signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998774.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In some regions of Australia, 90 percent of koalas have chlamydia, which poses a threat to the species extinction unless a vaccine is created or widespread koala culling takes place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012533/87205357/notfunfacts1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Shroom dosage chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998775.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Washington Square Park in New York is essentially a graveyard, with an estimated 20,000 bodies buried below the surface; many were yellow fever victims, wrapped in yellow sheets and buried by the poorest residents. When the foundation for the famous arch was dug, a number of these were exposed.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012541/87205359/notfunfacts4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Suspicious skin moles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998776.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. If you are an identical twin it is possible that you and your siblings identities were swapped and your parents never caught it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012544/87205360/notfunfacts6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. How long you can eat food for past the written expiration date.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998777.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. In the books, Stuart Little was never explicitly called a mouse. Hes pretty much described as a deformed mouse-esque person born from human parents.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012552/87205362/notfunfacts7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Different sleeping positions and their pros vs. cons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998778.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The oldest person alive was born with an entirely different set of humans on the planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012555/87205363/notfunfacts8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. How to use google search effectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998779.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The TSA missed 96% of contraband during an inspection in 2015.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012603/87205365/notfunfacts9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. How to tie the strongest knot in four steps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998780.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Wasps survive without a head for 12 hours. I found that out when a wasp ended up beheaded in my living room and still came at me for the kill. It was terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012606/87205366/notfunfacts10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Crows are currently in their own Stone Age. They’ve been seen making very articulate tools.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012614/87205369/notfunfacts11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Only one in a thousand sea turtles born actually make it to adulthood.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012618/87205370/notfunfacts12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Alzheimers disease can cause you to pass away since your brain will no longer be able to chew, swallow, breathe, etc.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012626/87205373/notfunfacts13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. 50% of Americans diagnosed with cancer will lose their life savings.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012629/87205374/notfunfacts14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Theres a bird that feeds its younger offspring to the eldest.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012638/87205377/notfunfacts15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Deaf schizophrenics dont hear voices, they see hands or lips as mental images that tell them what to do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012640/87205378/notfunfacts16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Vending machines kill more people than sharks do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012642/87205380/notfunfacts17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Malaria is the #1 cause of human death of all time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205382/notfunfacts18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Your body can randomly decide to become allergic to just about everything edible at any time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205384/notfunfacts19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. When youre four months pregnant, the baby starts to pee inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012704/87205387/notfunfacts20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Antarctica smells like penguin poop. Antarctica is a desert, it is too cold for bacteria to live. Nothing there to clean up penguin droppings. If you are close enough to see penguins, you will also smell them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/020506/87205446/notfunfacts3.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">30 Worst Things People Ever Found In Hotel Rooms</a><br>
+
+<span style="font-size:4em">1. A syringe under a mattress, AFTER I felt a prick on the end of my finger. I was tucking in a sheet under the bed, and there were actually two uncovered insulin needles under there. I got rushed to hospital; hepatitis shots and a tetanus shot, two different hiv prevention medication for a month, monthly blood tests for about a year. Im fine, and it barely stuck me in truth, but I was already afraid of needles and disease I still feel traumatized. I was not going to post at all, but Ive always wondered if there was anything else I should have done. The doctors assured me that they were more precautious than necessary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Someone pooped in the nightstand. It had been there long enough to dry out, so it took nearly an hour to scrub it clean. Another room had bloody menstrual pads stuck all over the walls at random.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Worked at an upscale ski resort. One family let their toilet-training kid pee behind the toilet and under the sink throughout their whole visit, then put our white towels on top of it to help clean up the mess. Whole place smelled like a freakin rhino enclosure. Ruined the towels.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Two worst experiences I had to witness were:A couple came to the desk early in the AM, they clearly had been in an all out fist fight. They were a cash paying customer and all they said was, “sorry, we got in a fight, there is blood in the room, we are HIV positive.” Then they took off. Room was an absolute horror show, had to hire special cleaners to come gut the room and ended up replacing basically everything in the room. Room was OOC for almost a year. Same hotel, we had some wards of the state types staying. Worst were a couple with a newborn. They couldn’t afford basically anything, so made the decision to use our towels as diapers. The state wouldn’t let us kick them out and they were just taking the towels off the carts. Ended up having to evict them from the hotel as they had been there long enough to establish residency...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. One of my favorite hotel stories (not a room, but the pool):It’s late evening, and a woman comes angrily in to our lobby from the pool with three children and says, “You guys need to do something about what’s going on out there,” and gestures to the pool area. I look at her inquisitively and she just says, “Go look, you’ll see.”I walk outside and it’s pretty immediately clear the couple in the hot tub are “discreetly” having sex. I approach just enough to get their attention and say, “Hi guys, I know everyone’s here to have a good time tonight, but we got a complaint about some hot and heavy activity in the hot tub.” They’re clearly intoxicated, but apologize and say it will stop. A few minutes later, the phone rings. It’s the woman who complained before calling from her room which faces the pool. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> “They’re still at it. You need to do something. Children are staying in this hotel.”I go back outside and sure enough, now that the spectators are gone, they’re f*****g it out in the hot tub. I go back out, tell them to get out. They start giving me the story: it’s their anniversary, they’re very sorry, we won’t have any more problems with them, etc etc. I foolishly let them stay in the hot tub.10 minutes later: phone rings. “Seriously!!?” Same lady. I look out the window, they’re both totally naked. “I’m sorry, ma’am, I’ve warned them, I’m calling the police. Police arrive and head out to the pool. The officer handles it like a pro. He’s very nice, let’s them know that it’s inappropriate, but he doesn’t want to ruin what’s clearly a fun weekend for them both, but they need to go to their room and not come out for the rest of the night. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">They are to stay in their room until tomorrow morning. No excuses. The couple thanks him for his understanding and promises they’ll behave and stay in their room. The officer and I wind up chatting and laughing about it all and he asks if he can grab a cup of coffee in our lobby while he fills out his report. Of course he can. He’s sitting in the Lobby, I’m back to work, and I hear him say, “Oh, you’ve got to be f*****g kidding me!!” I’m shocked at the broken quietness as I see him jump up and exit the Lobby. Right to the hot tub, where the same couple is back in the hot tub making out. (I can only assume they took the stairs at the end of the hall out to the parking lot and around to the pool.)Arrested them both. They came back Monday afternoon (they were arrested on Friday night) to collect their property.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A bachelorette party came through and after they left the next night we had a new rule that charges a $400 glitter fee. But I mean you couldnt see the floor so much glitter. Its been a few years and you can probably still find glitter in the carpet throughout the hotel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Worst to clean up, not because it was gross, but because it was annoying and time consuming, was popcorn. A baseball team stayed in a couple rooms and I guess they had those like caramel popcorn balls? That they had just thrown all over the room. At the walls, furniture. It stuck to the carpet and was almost impossible to vacuum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Not a hotel worker but I found a webcam in the air vent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I was roadtripping alone, and decided to support the local economy of this small town I was stopping in and stay in a small family-owned motel instead of a chain. It was obviously infested with bedbugs. Obvious... the next morning, that is. (I arrived late at night and went straight to bed.)The worst thing was that I was moving myself out to college and had all my worldly possessions in the car with me. ALL of my clothing, ALL of my bedding, the few pieces of furniture I was bringing... Fortunately, isolating everything that had been in that room in trashbags, and buying bedbug spray immediately prevented it from infesting everything I owned. But all the time I spent anticipating the worst got me hugely stressed out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Old couple checked out and left a huge box of sex toys. Not that bad right?We keep items for 90 days, hotel gets first dibs after that (say its an iPad that would be good for something) then whoever found it gets second dibs, then GM, then its whoever wants it. Head house keeper kept them locked in her desk bc she wanted first dibs and was scared someone else would take them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Woman with mysophobia (fear of germs) stayed with us. She never let the cleaning ladies into the room as she preferred to clean it herself. One day she leaves to go out and removes the do disturb sign. Maid calls down and says the room has a strong chemical odor and found bags of pee and poop in the drawers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. It was a hallway. I worked the front desk. A little league baseball team was staying the night and a guest complained to my manager about bats flying around. My manager assumed the baseball team was just being roudy and headed up to tell them to calm down. Turns out it wasnt baseball bats... Just a normal ol flying bat hanging out in the hallway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My ex-wife projectile vomited all over a room at the La Quinta in Somerville after way too many SoCo’s at the Rattlesnake. I cannot drive 93 Northbound out of Boston without some degree of shame. Sorry, La Quinta workers. I did the best I could, but there was only so much that could be done. Also, this is one of the many reasons she is now my ex-wife.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A bear. First, you gotta understand that a lot needs to happen for this to occur. Our lowest floor, was still about a meter and a half from the ground, and each outside room had a balcony rail. However, a guest had decided to want to unload his motorcycle from his truck and leave the ramp down, so (I’m assuming) he could ride the bike up when he was done. The guest that was staying in the room had room service, decided to leave the food uncovered and the balcony doors open, and later went to the hotel pool/spa to relax. Upon returning, they had gone to us at reception and said that there was a bear in the room. Puzzled, we quietly approached the room and slowly opened the door. Lo and behold, there was a bear eating room service and making a mess of my afternoon.We called Parks Canada to deal with it. Guest was not charged a cleaning fee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Not a worker but once my family checked into our hotel and go to our room and open it up only to find a very mortified naked man sitting on the couch watching tv. Made eye contact and just backed out of there. He has the same exact name as me so that’s where the mess up came about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Not me but my dad. He was the director of housekeeping for a worldwide hotel chain. His housekeepers didn’t know what to do with a girthy 12-inch dildo suction cupped on the writing table. It was “still *very* moist” he said. Then he looked up who stayed in the room to see if maybe they wanted it back but it was 2 tiny, frail little old ladies (canes & all) and he said it was too embarrassing to contact them so he waited a bit to see if they’d call asking for it but they never did. He ended up throwing it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I worked at a hotel a few years ago, front desk. I checked out a nice couple in the morning, they were very friendly, said they enjoyed their stay. Then housekeeping got to their room, the poor woman looked shell-shocked. I got to go through the room with a camera and my supervisor to document the state of the room. 2 large, black, double headed dildoes, lots of ziploc baggies with powdery residue, syringes (some used, some still with caps on them, including 2 in the toilet), and more travel sized bottles of baby oil than I could count. We also found what appeared to be feces and blood smeared all over the bedding and walls and a small digital camera. Police were called, descriptions of them taken, and all their information they had used to check in. I quit soon after, so I dont know if they ever found them or pressed charges.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Pizza. And not just like leftovers. An entire pizza. And not a single slice of it in the box. The first red flag we found was the slice of pizza smeared all over on the TV. Then we saw two slices side by side like they had worn them for slippers and dragged their feet across the floor. One slice in the dresser, one in the nightstand, one in the sheets, and one in the bathroom sink.We cleaned the room as normal and put all the pizza in the box. The whole time Im wondering why someone would do this, was the pizza not good? Was one slice enough and you had to buy the whole thing? Im doing the final checks in the room and it still smells like pizza. I flick the lamp on and look for the final slice. I finally find it, shadowed in the lamp shade. This individual had smeared the last slice on the inside of the lamp shade. That was the final piece of the puzzle (or pizzazule). This person bought an entire pizza just to hide it in his hotel room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A dead body... someone [taken their own life] in the hotel room by hanging themselves in the closet. Was in there a few days before we found him....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A friend used to clean hotel rooms as a side job, once he found a s**t on the night stand with a slice of cheese on top. Another time, he went into a room to clean and this woman was lying on the bed naked, he apologized and started to leave. She offered him 50 euros to spit on her while she masturbated. He spat on her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. 25 years ago I worked at a snooty part of a snooty ski resort in Park City, Utah. Most of the regular guests were just typical old rich white dudes, but during Sundance season though, the celebrities come out. There is a certain musician, entertaining us for decades now, who has a disgusting hobby. Or did in the early 90s at least. Next time youre cuttin Footloose, or gettin close to the Danger Zone, just know that Kenny Loggins gives his entire family coffee-ground enemas, which leaves a giant mess, and leaves it for the hotel staff to clean up. Twice in one stay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I was in housekeeping for a while in the winter and a co-worker of mine found a poop in a condom tied to the microwave door. Definitely the most baffling thing Id heard of anyone finding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. It was a family retreat/kids birthday party. The adults were getting sh**faced while the kids were in the presidential suite raising hell. They had decided to have a fully stocked ice cream bar and allowed the kids to do what they wanted with it. M&Ms crushed into the carpet, chocolate footprints on the walls, whipped cream f*****g everywhere. Fruit punch spilled on the bed. In total we had to charge them about $7k in damages, which they took to court, because they thought The Cleanup would be included, thats why we did it at a hotel!They also smashed glass all over our dog hiking trail, which I had to clean up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I do hotel renovations, so we find anything the housekeepers have forgotten over the years. Most often we find dirty magazines, clothing, children’s toys. Sometimes drugs in super random places lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Someone wrote Red Rum all over the place</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A usb drive with two different versions of their obituary that they typed up for themselves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. People that have died, feces on the walls and furniture along with vomit, drug paraphernalia, drugs, and once a gun. Feces and vomit is the worst though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Found bloody parrot feathers all over a room. They claimed it was service animal (it wasnt) and had gotten too stressed and pulled all of its plumage out. The guest tried to blame the hotel for noise. We charged them for the cleanup.Was balancing month end one day when the front was swarmed with police cars. They raided a room with no notice to us at the front desk. Turned out a pimp was cooking meth in one of rooms with two [call grils] and a dog. There was a short standoff before everyone was arrested. Their car was seemingly forgotten about in the parking lot, but it disappeared a week later. We were unable to charge for damages since all of their cards were stolen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87204928.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
