@@ -1,107 +1,83 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/06/2022-03:47:18
+Last updated: 07/06/2022-04:47:18
 <br>
-## <a href="#linky2" id="linky1">20 Facts With Absolutely No Fun in Them</a><br>
+## <a href="#linky2" id="linky1">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
 
-<span style="font-size:4em">1. Your brain blocks you from feeling your organs moving around inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012511/87205355/notfunfacts2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The dreams of 13 Going on 30’s main character came true, and several elements prove it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When youre burning, the first thing that starts to melt is your eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012522/87205356/notfunfacts5.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+In one of the movie’s first scenes, the 13-year-old protagonist looks at a magazine with the keywords of what she wants to be in her adulthood: “30, flirtatious and prosperous”. Later, not only does the magazine’s message come true, but the same magazine inspires the decor of Jenna’s apartment when she’s 30.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In some regions of Australia, 90 percent of koalas have chlamydia, which poses a threat to the species extinction unless a vaccine is created or widespread koala culling takes place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012533/87205357/notfunfacts1.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. There’s a reference to Pretty Woman in The Princess’s Diaries. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205904.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Washington Square Park in New York is essentially a graveyard, with an estimated 20,000 bodies buried below the surface; many were yellow fever victims, wrapped in yellow sheets and buried by the poorest residents. When the foundation for the famous arch was dug, a number of these were exposed.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012541/87205359/notfunfacts4.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+In Pretty Woman, there’s a scene where Vivian (Julia Roberts) goes to dinner at an elegant restaurant. When she accidentally knocks over a snail, a waiter covers her sheer clumsiness by saying, “It happens all the time.” Mia (Anne Hathaway) in The Princess Diaries hears the exact phrase from the same waiter (Allan Kent) when she breaks a glass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. If you are an identical twin it is possible that you and your siblings identities were swapped and your parents never caught it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012544/87205360/notfunfacts6.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. La La Land has a reference to a classic film. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. In the books, Stuart Little was never explicitly called a mouse. Hes pretty much described as a deformed mouse-esque person born from human parents.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012552/87205362/notfunfacts7.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+The scene in which the leads sing City of Stars in the apartment under a dim green light was created after director Damien Chazelle watched Alfred Hitchcock’s Vertigo the night before. Even at the last minute, he decided that Emma should wear a purple dress like Novak’s in that cinema classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The oldest person alive was born with an entirely different set of humans on the planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012555/87205363/notfunfacts8.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The book “M.J.” reads may have a special connection to Peter Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The TSA missed 96% of contraband during an inspection in 2015.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012603/87205365/notfunfacts9.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+The book MJ reads in Spider-Man: Homecoming, Of Human Bondage (1915) by W. Somerset Maugham tells the story of an orphaned boy who is sent to live with his aunt and uncle, just as Peter Parker is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Wasps survive without a head for 12 hours. I found that out when a wasp ended up beheaded in my living room and still came at me for the kill. It was terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012606/87205366/notfunfacts10.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. One of the extras in Titanic is a historical consultant who helped the director. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Crows are currently in their own Stone Age. They’ve been seen making very articulate tools.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012614/87205369/notfunfacts11.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Historian Edward Kamuda, as a member of the Titanic Historical Society, served as a consultant on the historical facts in the film and appeared briefly as an extra in the scene where Jack and Margaret are walking on deck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Only one in a thousand sea turtles born actually make it to adulthood.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012618/87205370/notfunfacts12.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The shadow on her face reveals her true identity. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Alzheimers disease can cause you to pass away since your brain will no longer be able to chew, swallow, breathe, etc.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012626/87205373/notfunfacts13.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Some costumes in The Conjuring match. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205911.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. 50% of Americans diagnosed with cancer will lose their life savings.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012629/87205374/notfunfacts14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Theres a bird that feeds its younger offspring to the eldest.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012638/87205377/notfunfacts15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Deaf schizophrenics dont hear voices, they see hands or lips as mental images that tell them what to do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012640/87205378/notfunfacts16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Vending machines kill more people than sharks do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012642/87205380/notfunfacts17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Malaria is the #1 cause of human death of all time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205382/notfunfacts18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Your body can randomly decide to become allergic to just about everything edible at any time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205384/notfunfacts19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. When youre four months pregnant, the baby starts to pee inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012704/87205387/notfunfacts20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Antarctica smells like penguin poop. Antarctica is a desert, it is too cold for bacteria to live. Nothing there to clean up penguin droppings. If you are close enough to see penguins, you will also smell them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/020506/87205446/notfunfacts3.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the same tone and pattern. For example, Ed’s tie and Lorraine’s skirt. Maybe they’re meant to reflect the connection that the couple had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205913.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">28 Pics Filled With NOPE</a><br>
+## <a href="#linky3" id="linky2">17 Life Hack Guides to Get You through the Day</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206497.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. How to jump from a speeding car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998781.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206510.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Pay scale of trades that don’t require a college degree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206501.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Free alternatives to paid software.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206498.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Shipping company guide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206489.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Tattoo pain chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206490.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Boundary-setting sentences.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206491.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Names on the family tree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206492.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Opossums are our friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206493.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. A guide on how to sniff out pseudoscience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206494.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. How to adjust the taste of dishes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206495.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Military hand signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206496.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Shroom dosage chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206499.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Suspicious skin moles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206500.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. How long you can eat food for past the written expiration date.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998777.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206488.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Different sleeping positions and their pros vs. cons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998778.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206502.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. How to use google search effectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998779.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206517.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. How to tie the strongest knot in four steps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998780.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -247,7 +223,23 @@ Last updated: 07/06/2022-03:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">40 Savage Tweets From This Week on Twitter</a><br>
+## <a href="#linky7" id="linky6">New Neighbor Stingy about Sharing Driveway, Receives Instant Karma</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112916/87207793/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112944/87207798/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112939/87207797/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112922/87207794/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112933/87207796/five.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112927/87207795/six.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">40 Savage Tweets From This Week on Twitter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205811.jpg" style="width:100%"><br>
 
@@ -331,131 +323,67 @@ Last updated: 07/06/2022-03:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">New Neighbor Stingy about Sharing Driveway, Receives Instant Karma</a><br>
+## <a href="#linky9" id="linky8">28 Pics Filled With NOPE</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112916/87207793/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112944/87207798/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112939/87207797/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206501.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112922/87207794/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112933/87207796/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112927/87207795/six.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206490.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206491.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Guy Teaches Ungrateful Weekend Warrior a Lesson in Gratitude</a><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206475.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206476.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206477.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206478.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206479.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206480.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206481.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206482.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206502.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206483.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206484.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206504.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206485.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206486.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206506.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206507.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">17 Life Hack Guides to Get You through the Day</a><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. How to jump from a speeding car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998781.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206511.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Pay scale of trades that don’t require a college degree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998768.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Free alternatives to paid software.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998767.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Shipping company guide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998769.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Tattoo pain chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998765.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Boundary-setting sentences.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Names on the family tree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Opossums are our friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A guide on how to sniff out pseudoscience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. How to adjust the taste of dishes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Military hand signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Shroom dosage chart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Suspicious skin moles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. How long you can eat food for past the written expiration date.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Different sleeping positions and their pros vs. cons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. How to use google search effectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. How to tie the strongest knot in four steps.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86998780.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87206517.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
-
-<span style="font-size:4em">1. The dreams of 13 Going on 30’s main character came true, and several elements prove it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-In one of the movie’s first scenes, the 13-year-old protagonist looks at a magazine with the keywords of what she wants to be in her adulthood: “30, flirtatious and prosperous”. Later, not only does the magazine’s message come true, but the same magazine inspires the decor of Jenna’s apartment when she’s 30.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There’s a reference to Pretty Woman in The Princess’s Diaries. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-In Pretty Woman, there’s a scene where Vivian (Julia Roberts) goes to dinner at an elegant restaurant. When she accidentally knocks over a snail, a waiter covers her sheer clumsiness by saying, “It happens all the time.” Mia (Anne Hathaway) in The Princess Diaries hears the exact phrase from the same waiter (Allan Kent) when she breaks a glass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. La La Land has a reference to a classic film. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-The scene in which the leads sing City of Stars in the apartment under a dim green light was created after director Damien Chazelle watched Alfred Hitchcock’s Vertigo the night before. Even at the last minute, he decided that Emma should wear a purple dress like Novak’s in that cinema classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The book “M.J.” reads may have a special connection to Peter Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-The book MJ reads in Spider-Man: Homecoming, Of Human Bondage (1915) by W. Somerset Maugham tells the story of an orphaned boy who is sent to live with his aunt and uncle, just as Peter Parker is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. One of the extras in Titanic is a historical consultant who helped the director. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Historian Edward Kamuda, as a member of the Titanic Historical Society, served as a consultant on the historical facts in the film and appeared briefly as an extra in the scene where Jack and Margaret are walking on deck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The shadow on her face reveals her true identity. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Some costumes in The Conjuring match. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the same tone and pattern. For example, Ed’s tie and Lorraine’s skirt. Maybe they’re meant to reflect the connection that the couple had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205913.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">56 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky10" id="linky9">56 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206167.jpg" style="width:100%"><br>
 
@@ -566,6 +494,78 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 <span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206221.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87206222.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Facts With Absolutely No Fun in Them</a><br>
+
+<span style="font-size:4em">1. Your brain blocks you from feeling your organs moving around inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012511/87205355/notfunfacts2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When youre burning, the first thing that starts to melt is your eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012522/87205356/notfunfacts5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In some regions of Australia, 90 percent of koalas have chlamydia, which poses a threat to the species extinction unless a vaccine is created or widespread koala culling takes place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012533/87205357/notfunfacts1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Washington Square Park in New York is essentially a graveyard, with an estimated 20,000 bodies buried below the surface; many were yellow fever victims, wrapped in yellow sheets and buried by the poorest residents. When the foundation for the famous arch was dug, a number of these were exposed.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012541/87205359/notfunfacts4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you are an identical twin it is possible that you and your siblings identities were swapped and your parents never caught it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012544/87205360/notfunfacts6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In the books, Stuart Little was never explicitly called a mouse. Hes pretty much described as a deformed mouse-esque person born from human parents.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012552/87205362/notfunfacts7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The oldest person alive was born with an entirely different set of humans on the planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012555/87205363/notfunfacts8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The TSA missed 96% of contraband during an inspection in 2015.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012603/87205365/notfunfacts9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Wasps survive without a head for 12 hours. I found that out when a wasp ended up beheaded in my living room and still came at me for the kill. It was terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012606/87205366/notfunfacts10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Crows are currently in their own Stone Age. They’ve been seen making very articulate tools.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012614/87205369/notfunfacts11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Only one in a thousand sea turtles born actually make it to adulthood.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012618/87205370/notfunfacts12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Alzheimers disease can cause you to pass away since your brain will no longer be able to chew, swallow, breathe, etc.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012626/87205373/notfunfacts13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. 50% of Americans diagnosed with cancer will lose their life savings.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012629/87205374/notfunfacts14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Theres a bird that feeds its younger offspring to the eldest.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012638/87205377/notfunfacts15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Deaf schizophrenics dont hear voices, they see hands or lips as mental images that tell them what to do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012640/87205378/notfunfacts16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Vending machines kill more people than sharks do.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012642/87205380/notfunfacts17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Malaria is the #1 cause of human death of all time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205382/notfunfacts18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Your body can randomly decide to become allergic to just about everything edible at any time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012653/87205384/notfunfacts19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. When youre four months pregnant, the baby starts to pee inside you.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/012704/87205387/notfunfacts20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Antarctica smells like penguin poop. Antarctica is a desert, it is too cold for bacteria to live. Nothing there to clean up penguin droppings. If you are close enough to see penguins, you will also smell them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/01/020506/87205446/notfunfacts3.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Guy Teaches Ungrateful Weekend Warrior a Lesson in Gratitude</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206475.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206476.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206477.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206478.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206479.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206480.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206481.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206482.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206483.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206484.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206485.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87206486.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
