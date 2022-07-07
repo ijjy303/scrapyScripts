@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/07/2022-03:47:18
+Last updated: 07/07/2022-04:47:18
 <br>
 ## <a href="#linky2" id="linky1">25 Staggering Facts About the Cold War</a><br>
 
@@ -55,97 +55,41 @@ Last updated: 07/07/2022-03:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Dudes Trying to Flirt through Roleplay Is New Level Cringe</a><br>
+## <a href="#linky3" id="linky2">Boss Demands Employees Stay Late, Horrified by Overtime Requests</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015052/87207962/bear.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015058/87207963/brandon.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207761.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015103/87207964/cops.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207762.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015109/87207965/block.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207763.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015114/87207966/fic.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207764.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015122/87207967/flame.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207765.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015150/87207971/prank.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207766.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015126/87207968/gross.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207767.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015134/87207969/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207768.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015137/87207970/hump.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207769.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015202/87207972/sandwich.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207770.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015213/87207974/taco.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207771.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015219/87207975/mang.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207772.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015224/87207976/throat.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207773.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015230/87207977/toes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015235/87207978/tom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015207/87207973/kiss.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015241/87207979/wolf.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015246/87207980/yikes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015252/87207981/tv.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207774.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Fresh and Funny Memes to Kickstart Your Day</a><br>
-
-<span style="font-size:4em">1. Well Ill be damned, looks like my internet does work after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Lmao. Because hes a foot guy, you get it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A hotdog is a sandwich. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. These things will unlock so many forgotten memories. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Whats the worst that could happen? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Scented farts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The kids are going to be just fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Take that England. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I see what you did there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207426.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207428.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207432.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">25 Crazy Laws That Really Do Exist</a><br>
+## <a href="#linky4" id="linky3">25 Crazy Laws That Really Do Exist</a><br>
 
 <span style="font-size:4em">1. Women have been legally allowed to go topless in public in New York City since 1992.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/123342/87207802/nycwomen.jpg" style="width:100%"><br>
 
@@ -199,7 +143,117 @@ Last updated: 07/07/2022-03:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Movie Reviews That Hit the Nail Right on the Head</a><br>
+## <a href="#linky5" id="linky4">Fresh and Funny Memes to Kickstart Your Day</a><br>
+
+<span style="font-size:4em">1. Well Ill be damned, looks like my internet does work after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Lmao. Because hes a foot guy, you get it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A hotdog is a sandwich. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. These things will unlock so many forgotten memories. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Whats the worst that could happen? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Scented farts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The kids are going to be just fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Take that England. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I see what you did there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207426.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207428.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207432.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">30 Hot and Humid Memes Perfect For Summer </a><br>
+
+<span style="font-size:4em">1. Nope, turn that things right back around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Its getting off out there. Make sure you bring your lamp posts in yall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Checks out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This is me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207095.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Now isnt this a sight for sore eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. You might be hot, but are you this hot? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The countdown has begun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. No beach for you! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. This guy has the right idea. But its going to be awkward when I need to get a rib roast from underneath his butt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. If youre hot, theyre hot. Bring them inside. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207113.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. So hot, you can fry an egg. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207123.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">Movie Reviews That Hit the Nail Right on the Head</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/035400/87208163/baby.jpg" style="width:100%"><br>
 
@@ -245,7 +299,7 @@ Last updated: 07/07/2022-03:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">22 Memes That Only Tell the Truth</a><br>
+## <a href="#linky8" id="linky7">22 Memes That Only Tell the Truth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100841/87209031/notmemes10.png" style="width:100%"><br>
 
@@ -288,48 +342,6 @@ Last updated: 07/07/2022-03:47:18
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100945/87209042/notmemes22.png" style="width:100%"><br>
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100950/87209043/notmemes21.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
-
-<span style="font-size:4em">1. The dreams of 13 Going on 30’s main character came true, and several elements prove it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-In one of the movie’s first scenes, the 13-year-old protagonist looks at a magazine with the keywords of what she wants to be in her adulthood: “30, flirtatious and prosperous”. Later, not only does the magazine’s message come true, but the same magazine inspires the decor of Jenna’s apartment when she’s 30.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There’s a reference to Pretty Woman in The Princess’s Diaries. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-In Pretty Woman, there’s a scene where Vivian (Julia Roberts) goes to dinner at an elegant restaurant. When she accidentally knocks over a snail, a waiter covers her sheer clumsiness by saying, “It happens all the time.” Mia (Anne Hathaway) in The Princess Diaries hears the exact phrase from the same waiter (Allan Kent) when she breaks a glass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. La La Land has a reference to a classic film. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-The scene in which the leads sing City of Stars in the apartment under a dim green light was created after director Damien Chazelle watched Alfred Hitchcock’s Vertigo the night before. Even at the last minute, he decided that Emma should wear a purple dress like Novak’s in that cinema classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The book “M.J.” reads may have a special connection to Peter Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-The book MJ reads in Spider-Man: Homecoming, Of Human Bondage (1915) by W. Somerset Maugham tells the story of an orphaned boy who is sent to live with his aunt and uncle, just as Peter Parker is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. One of the extras in Titanic is a historical consultant who helped the director. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Historian Edward Kamuda, as a member of the Titanic Historical Society, served as a consultant on the historical facts in the film and appeared briefly as an extra in the scene where Jack and Margaret are walking on deck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The shadow on her face reveals her true identity. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Some costumes in The Conjuring match. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the same tone and pattern. For example, Ed’s tie and Lorraine’s skirt. Maybe they’re meant to reflect the connection that the couple had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205913.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -419,67 +431,47 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">30 Hot and Humid Memes Perfect For Summer </a><br>
+## <a href="#linky11" id="linky10">Dudes Trying to Flirt through Roleplay Is New Level Cringe</a><br>
 
-<span style="font-size:4em">1. Nope, turn that things right back around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207093.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015052/87207962/bear.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207087.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015058/87207963/brandon.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207088.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015103/87207964/cops.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Its getting off out there. Make sure you bring your lamp posts in yall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207089.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015109/87207965/block.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207090.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015114/87207966/fic.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207092.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015122/87207967/flame.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Checks out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207094.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015150/87207971/prank.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This is me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207095.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015126/87207968/gross.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Now isnt this a sight for sore eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207091.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015134/87207969/hair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207096.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015137/87207970/hump.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207097.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015202/87207972/sandwich.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207098.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015213/87207974/taco.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. You might be hot, but are you this hot? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207099.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015219/87207975/mang.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The countdown has begun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207100.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015224/87207976/throat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207101.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015230/87207977/toes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207102.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015235/87207978/tom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. No beach for you! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207103.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015207/87207973/kiss.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207104.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015241/87207979/wolf.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. This guy has the right idea. But its going to be awkward when I need to get a rib roast from underneath his butt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207105.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015246/87207980/yikes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. If youre hot, theyre hot. Bring them inside. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207113.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. So hot, you can fry an egg. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207123.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015252/87207981/tv.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -499,41 +491,79 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Boss Demands Employees Stay Late, Horrified by Overtime Requests</a><br>
+## <a href="#linky13" id="linky12">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207760.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The dreams of 13 Going on 30’s main character came true, and several elements prove it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207761.png" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+In one of the movie’s first scenes, the 13-year-old protagonist looks at a magazine with the keywords of what she wants to be in her adulthood: “30, flirtatious and prosperous”. Later, not only does the magazine’s message come true, but the same magazine inspires the decor of Jenna’s apartment when she’s 30.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207762.png" style="width:100%"><br>
+<span style="font-size:4em">2. There’s a reference to Pretty Woman in The Princess’s Diaries. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205904.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207763.png" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+In Pretty Woman, there’s a scene where Vivian (Julia Roberts) goes to dinner at an elegant restaurant. When she accidentally knocks over a snail, a waiter covers her sheer clumsiness by saying, “It happens all the time.” Mia (Anne Hathaway) in The Princess Diaries hears the exact phrase from the same waiter (Allan Kent) when she breaks a glass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207764.png" style="width:100%"><br>
+<span style="font-size:4em">3. La La Land has a reference to a classic film. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207765.png" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+The scene in which the leads sing City of Stars in the apartment under a dim green light was created after director Damien Chazelle watched Alfred Hitchcock’s Vertigo the night before. Even at the last minute, he decided that Emma should wear a purple dress like Novak’s in that cinema classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207766.png" style="width:100%"><br>
+<span style="font-size:4em">4. The book “M.J.” reads may have a special connection to Peter Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207767.png" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+The book MJ reads in Spider-Man: Homecoming, Of Human Bondage (1915) by W. Somerset Maugham tells the story of an orphaned boy who is sent to live with his aunt and uncle, just as Peter Parker is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207768.png" style="width:100%"><br>
+<span style="font-size:4em">5. One of the extras in Titanic is a historical consultant who helped the director. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207769.png" style="width:100%"><br>
+<span style="font-size:4em">
+
+Historian Edward Kamuda, as a member of the Titanic Historical Society, served as a consultant on the historical facts in the film and appeared briefly as an extra in the scene where Jack and Margaret are walking on deck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207770.png" style="width:100%"><br>
+<span style="font-size:4em">6. The shadow on her face reveals her true identity. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207771.png" style="width:100%"><br>
+<span style="font-size:4em">7. Some costumes in The Conjuring match. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205911.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207772.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207773.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207774.png" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the same tone and pattern. For example, Ed’s tie and Lorraine’s skirt. Maybe they’re meant to reflect the connection that the couple had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205913.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">40 Savage Tweets From This Week on Twitter</a><br>
+## <a href="#linky14" id="linky13">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">40 Savage Tweets From This Week on Twitter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205811.jpg" style="width:100%"><br>
 
@@ -614,36 +644,6 @@ In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the sa
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205824.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205825.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
