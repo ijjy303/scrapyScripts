@@ -1,187 +1,39 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/07/2022-12:47:18
+Last updated: 07/07/2022-13:47:18
 <br>
-## <a href="#linky2" id="linky1">30 Cool Random Pics Packed to the Gills with Chill</a><br>
+## <a href="#linky2" id="linky1">Customer Mistaken for Interviewee Reveals Managers Breaking the Law</a><br>
 
-<span style="font-size:4em">1. Unamused cat is unamused with your antics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033244/87209256/87208679.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100658/87209730/one.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. We hope you had a great (and safe) 4th of July weekend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207274.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100730/87209731/two.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207262.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100847/87209732/three.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033256/87209258/87205564.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100924/87209733/four.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207264.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101006/87209734/five.png" style="width:100%"><br>
 
-<span style="font-size:4em">6.  Now this looks both amazing and delicious!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033258/87209259/87208698.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101052/87209736/six.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207268.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101150/87209737/seven.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207269.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101231/87209738/eight.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207270.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101351/87209739/nine.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033247/87209257/87205565.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101436/87209742/ten.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033307/87209260/87208702.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101518/87209743/eleven.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033308/87209261/87208703.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101815/87209744/twelve.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is one neighborhood watch group you dont want to test your luck with!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033318/87209262/87208771.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101858/87209745/thirt.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033320/87209263/87208775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033329/87209264/87208783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Onward my trusty steed!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041459/87209278/87205014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033331/87209265/87208801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033340/87209266/87208812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033341/87209267/87208820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Thanks... I hate it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041353/87209269/87204544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Looks like this plane literally  laughed it ass off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041404/87209270/87204537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041416/87209271/87204562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. This is cool and all, but how the heck do you see while driving?!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041427/87209272/87204973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041436/87209273/87204972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041438/87209274/87204975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Tell me you have more money than you know what to do with, without actually telling me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041447/87209275/87204981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041448/87209276/87204994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041458/87209277/87205000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041509/87209279/87205017.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101950/87209746/final.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Boss Demands Employees Stay Late, Horrified by Overtime Requests</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207761.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207762.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207763.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207764.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207765.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207766.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207767.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207768.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207769.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207770.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207771.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207772.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207773.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87207774.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">16 Celebs Who Don’t Deserve a Second Chance</a><br>
-
-<span style="font-size:4em">1. Bill Cosby - Cosby famously drugged and sexually assaulted women in his home, destroying many lives including his own.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112456/87209070/cosby.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Armie Hammer - The actor sent super explicit (and terrifying) text messages to multiple women that included sexual fantasies, including cannibalism, violence, and rape.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112459/87209071/armie.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Dave Chappelle - Chappelle has figuratively sh*t on the trans community time and time again, doubling down, and defending fellow TERF J.K. Rowling. Quotes from Dave include Gender is a fact and stating he didnt want a woman with a dick.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112507/87209072/dave.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. DaBaby - The rapper had this to say to fans at a festival: Fellas, if you aint suck a n**** d*** in the parking lot, put your cellphone lights in the air. f you didnt show up today with HIV, AIDS, any of them deadly sexually transmitted diseases thatll make you die in two or three weeks, put your cellphone light in the air.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112510/87209073/dababy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Ellen Degeneres - Ellen is finally ending her show after multiple allegations of sexual assault, racism, intimidation, and an overall toxic workplace.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112518/87209074/ellen.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. James Franco - Franco slid into a girls DMs on Instagram asking if she was 18. The woman responded that she was 17, and Franco then asked if he should get a hotel room where she was staying. Yeah, not a good dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112521/87209075/franco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. R. Kelly - 8 counts of Sex Trafficking. One count of Racketeering. 30 years in prison. Oh yeah, and we all thought that pee thing was totally normal?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112554/87209080/kelly.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gina Carano - Carano has some very strong opinions. Which doesnt make you a bad person. You know what does? Comparing being a Republican today to what the Jewish people went through in the holocaust. Shes also blocked Black Lives Matter accounts on Twitter. She can go touch grass.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112530/87209076/gina.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Deshaun Watson - The Cleveland Browns quarterback might not even play a snap this season. He met with 66 women for massages over 17 months. He has 24 civil suits against him for sexual assault. The NFL has yet to punish him.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112534/87209077/im-565894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Harvey Weinstein - forcible rape, forcible oral copulation, sexual penetration by use of force and sexual battery by restraint. This guy can rot in hell.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112541/87209078/harvey.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Louis C.K. - Five different women confirmed that the comedian either asked them or forced them to watch him masturbate. Ew. Just ew. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112557/87209081/louis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Marilyn Manson - Both actresses Evan Rachel Wood and Charlyne Yi came forward with assault allegations against Manson. He has a history of assault, and reached a settlement with a security guard after spitting on his head and rubbing his crotch on the man. He groomed and abused Evan Rachel Wood when she was 18.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112605/87209082/manson.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. T.J. Miller - Not only called in a bomb-threat on an Amtrak train, but sexually assaulted a George Washington University student. He choked her, punched her in the mouth, anally penetrated her, and used a beer bottle at one point. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112608/87209083/miller.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Kevin Spacey - When actor Anthony Rapp was 14, Kevin Spacey made sexual advances toward him. Multiple men have come forward stating that they have been sexually harassed and/or assaulted by Spacey.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112617/87209084/spacey.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. J.K. Rowling - The author continues to double-down on her hatred of the trans community. Shes the queen of the TERFs. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112546/87209079/jk.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Matt Lauer - Lauer was fired after it came to light that he raped and assaulted a female colleague in a hotel room at the Sochi Olympics. The assault continued back in the States.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112620/87209085/lauer.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">22 Memes That Only Tell the Truth</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100841/87209031/notmemes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100730/87209023/notmemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100741/87209024/notmemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100752/87209025/notmemes5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100803/87209026/notmemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100812/87209027/notmemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100729/87209022/notmemes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100815/87209028/notmemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100830/87209030/notmemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100846/87209032/notmemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100852/87209033/notmemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100858/87209034/notmemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100903/87209035/notmemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100910/87209036/notmemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100915/87209037/notmemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100922/87209038/notmemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100926/87209039/notmemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100933/87209040/notmemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100937/87209041/notmemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100945/87209042/notmemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100950/87209043/notmemes21.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">25 Crazy Laws That Really Do Exist</a><br>
+## <a href="#linky3" id="linky2">25 Crazy Laws That Really Do Exist</a><br>
 
 <span style="font-size:4em">1. Women have been legally allowed to go topless in public in New York City since 1992.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/123342/87207802/nycwomen.jpg" style="width:100%"><br>
 
@@ -235,347 +87,7 @@ Last updated: 07/07/2022-12:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">25 Staggering Facts About the Cold War</a><br>
-
-<span style="font-size:4em">1. Today I learned about Americas Cold War doomsday weapon, SLAM. It was a nuclear-powered cruise missile that would have dropped nuclear bombs at predetermined locations while releasing radiation from its unshielded reactor and then crashed into an area when it was finished.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The Icelandic government banned the stationing of black American soldiers in Iceland during the Cold War so as to protect Icelandic women and preserve a homogenous national body. After pressure from the US military, the ban was eventually lifted in the late 1960s.-u/OptimalProblemSolver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208585.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. In 1985, in the midst of the cold war, US President Ronald Reagan and USSR President Mikhail Gorbachev made a pact to put both their countries differences aside and have their militaries join as one if an alien invasion ever happened.-u/RingoStarAllies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The American Cold War-era stealth plane, the Lockheed SR-71, was made of 92% titanium. Most of this titanium was bought through shell companies directly from the USSR. Enough was supplied to build 32 planes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Helsinki, Finland was used to film many Cold War-era Hollywood movies when filming in the USSR was not possible. Examples include The Kremlin Letter (1970), Reds (1981), and Gorky Park (1983).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. To train new operatives during the Cold War, the Soviets built fully functional replicas of American towns. Their residents consisted of retired deep cover operatives who taught the trainees everything they needed to know about blending into American life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Philby, a high-ranking MI6 spy and chief liaison for American/British intelligence relations was actually a Soviet agent during WW2 and the Cold War. He betrayed John le le Carré which is why he left spying to become a writer. Tinker Tailor Soldier Spy was partly inspired by him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Today I learned of Vasili Mitrokhin, a KGB archivist who kept a vast collection of handwritten notes on top-secret files. When he defected to British Intelligence in 1992, he brought six trunks of notes with him that exposed most KGB activities in the West during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Lockheed U-2 spy plane, famous for conducting covert reconnaissance during the Cold War, is still in active service after 65 years, being used for military and scientific missions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. During the peak of the Cold War, one of the tasks given to Niel Armstrong was to place two Soviet medals on the moon to honor their fallen Soviet competitors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Over 600 fighter pilots of the Swedish Air Force were killed in training exercises during the duration of the Cold War. Eventually in the 1960s flight safety became a concern because aircraft became more expensive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Switzerland finally dismantled last Cold War-era explosives from a bridge leading to Germany. They built such defenses to protect the country in the time of invasion!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. After the Cold War, the United States paired some of its states with eastern European countries to help bolster their armies and assert their independence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Today I learned about Building 470, a seven-story steel and brick building used during the Cold War for small-scale production of biological warfare agents. It was hermetically sealed and negatively pressurized, with false windows to make it appear to be a barracks or office building.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. During the Space Race in the Cold War, the USSR already had a head start by having the first satellite launched into space, known as Sputnik I, and by the time the USA had launched its first successful satellite into space, known as Explorer I, the USSR had already launched Sputnik II.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The motto, In God We Trust, is not the original motto of the United States. During the Cold War, it was changed from E Pluribus Unum (from many, one) in an effort to differentiate the United States from atheistic communism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Today I learned about Project Dark Gene, a joint CIA and Iranian program during the Cold War to fly Iranian fighter jets piloted by Americans into Soviet airspace to test defenses. This resulted in multiple planes being shot down and deaths.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Ballet dancer Rudolf Nureyev was the first Soviet artist to defect to the West during the Cold War, when he eluded Soviet security men at the airport in Paris and requested asylum, while on a tour with the Soviet Kirov Ballet in France, on June 1961.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A man (Robert Ballard) that went looking for the Titanic was only using that as a cover for a secret Cold War US Navy mission. The mission was completed 12 days earlier than expected, so with the time he had left he looked, and he found it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The real-life inspiration for The Americans was not Cold War spies, but 10 Russian deep-cover agents captured in 2010; but the show creator was unimpressed by the publics lukewarm reaction to the case, and figured the story would make for better TV if set in the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. During the height of the Cold War, the US built an embassy in Moscow that was so riddled with eavesdropping equipment, by 1985 the building was abandoned after spending $136 million. Eventually, the embassy was taken apart brick by brick and rebuilt over 15 years at a cost of $240 million.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The US military secretly built a flying saucer named VZ-9 Avrocar during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Today I learned of Qian Xuesen, a Chinese rocket scientist and mathematician, who worked on the Manhattan Project during WW2 to help America build the worlds first atomic bomb. During the Cold War, he was accused of being a communist and fled America to China, where he helped China build its first atomic bomb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. During the Cold War, the USA tried to intimidate the Soviet Bloc by convincing them that then-president Richard Nixon was an unstable lunatic who was likely to lash out for no rational reason, based on the dubious madman theory of foreign policy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Soviet leader Nikita Khrushchev gifted US President John F Kennedy a dog called Pushinka during the Cold War. She later on had puppies; which Kennedy referred to as the pupniks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208608.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208550.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208555.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208567.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208569.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">20 Obscure Facts You Definitely Haven't Heard Before</a><br>
-
-<span style="font-size:4em">1. The nuke stockpile in Washington State is guarded by trained dolphins that seek out and clamp a balloon on unfamiliar divers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/123439/87209818/obscurefacts9.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Cultured bits of brain matter always try to grow an eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104630/87209752/obscurefacts1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Boanthropy is a psychological disorder in which a person believes they are a cow and tries to live their life as one. Medical explanations suggest late-stage syphilis as one of the causes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104650/87209754/obscurefacts4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. If humming birds don’t eat within an hour they might die from starvation, they feed from nectar every 15-20 minutes. The only exception to the rule is that at night, they get into a state called torpor which is similar to the way bears hibernate. They do this every night, they lower their body temperature, their heart rate goes down from like 1200 beats per minute to less than a 100 and they shut down their kidneys so they don’t die from dehydration.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104619/87209751/obscurefacts3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Crabs commit suicide when gravely injured by pinching their own brains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104642/87209753/obscurefacts5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Rabies kills around 60,000 people globally every year. To date, only 14 people worldwide have been known to recover after developing symptoms.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104654/87209755/obscurefacts6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Your immune system doesn’t know your eyes exist. They have immune privilege to avoid inflammation in case of trauma.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104701/87209756/obscurefacts7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. More pigeons have war medals than horses, dogs or mules.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104723/87209760/obscurefacts12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I dont think most people know the meaning of prodigal. They know the parable of The Prodigal Son and think it refers to someone that leaves and then has to come crawling back, but thats incorrect. Prodigal means to spend money lavishly or wastefully. The prodigal son was prodigal whether or not he ever went back to his father.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104608/87209750/obscurefacts2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The girl who voiced Lilo in Lilo and Stitch also played Samara in The Ring, both released in the same year (2002).</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104712/87209758/obscurefacts10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The same computer software used for the CGI in “Jurassic Park” was used to make the sprites for “Donkey Kong” country.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104716/87209759/obscurefacts11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Before being born, two of the four chambers of a babys heart are not used, theyre actually bypassed! Theres no need to pump deoxygenated blood to the lungs when in the womb, because the lungs arent breathing air yet, and so are not supplying oxygen. All the oxygen comes from the umbilical cord.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104727/87209761/obscurefacts13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Greater one-horned rhino or Great Indian rhinoceros population stands at around 3,700 individuals, a significant increase from around 200 remaining at the turn of the 20th century. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104734/87209762/obscurefacts14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Raindrops don’t fall in the drip shape popularly conveyed. They fall in the shape of tiny parachutes or hamburger buns.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104739/87209763/obscurefacts15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Dutch national color is Orange but the flag is red white and blue stripes only because the dye they used for orange faded fast at sea, while red did not.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104746/87209764/obscurefacts16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Pill bugs are crustaceans, like crabs or lobsters, that’s why they are always in the dampest places.  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104750/87209765/obscurefacts17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The moon has an atmosphere. However, it is so thin that its considered to be an exosphere.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104757/87209766/obscurefacts18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. They increased the rank of pigeons during WW1 so they could punish soldiers for eating a fellow soldier of higher rank. Cant have the soldiers eating the carrier pigeons!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104705/87209757/obscurefacts8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. There was a man, Angus Barbieri who didnt eat for 382 days. He was morbidly obese and lived on tea, water, soda water and coffee while visiting the hospital weekly for vitamin and electrolyte treatments. He lost close to 280 lbs and broke his fast with an egg once he met his goal weight.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104800/87209767/obscurefacts19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. A quarter has 119 ridges. 118 on a dime.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104809/87209768/obscurefacts20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">Fresh and Funny Memes to Kickstart Your Day</a><br>
-
-<span style="font-size:4em">1. Well Ill be damned, looks like my internet does work after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Lmao. Because hes a foot guy, you get it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A hotdog is a sandwich. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. These things will unlock so many forgotten memories. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Whats the worst that could happen? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Scented farts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The kids are going to be just fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Take that England. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I see what you did there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207426.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207428.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207432.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">28 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209444.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209460.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
-
-<span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Fox Network and Comedy Central both passed on early Lonely Island TV series pitches.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031254/87209236/cc.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The hit theme from The LEGO Movie was performed by Tegan and Sara, and written by the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031306/87209237/aweseome.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Beck Bennett AT&T commercials were directed by fellow SNL alum, Jorma Taccone of the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031313/87209238/beckcomm.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dick in a Box featuring Justin Timberlake actually won an Emmy award for Outstanding Original Music and Lyrics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031318/87209239/dick.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Jorma is clearly getting some acting work, as he also portrayed Cha-ka in Land of the Lost.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031324/87209240/chakajorma.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The poster of Poseidon in the Im on a Boat video is actually the same photograph from Age of Mythology.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031433/87209252/tpain.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. They were nominated for a Razzie for Grown Ups 2. The award was for worst on-screen combo and went to the entire cast of the movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031329/87209241/grown2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Jimmy Fallon pitched The Lonely Island to Lorne Michaels after they wrote for the 2005 MTV Movie Awards which Fallon hosted.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031336/87209242/jimmy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Jorma actually played the role of Hitler in the movie Kung Fury.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031340/87209243/jormahitler.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Julian Casablancas, mostly known as the lead singer/guitarist for The Strokes, has also worked with Queens of the Stone Age, and you guessed it...The Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031347/87209244/julian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. While shooting a pilot in 2000, Kiefer Sutherland just happened to be walking by. The scene they were filming was an elderly woman being mugged, and Sutherland didnt realize it was just a Lonely Island sketch. He stepped in and tried to help the woman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031351/87209245/keef.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In the clean version of the song Jizz in my Pants the word Jizz has been replaced by the sound of men orgasming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031358/87209246/jizz.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Jorma Taccone directed the MacGruber movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031402/87209247/macjorma.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Popstar: Never Stop Stopping holds a certified fresh 79% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031409/87209248/popstar79.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Lonely Islands Like a Boss is a direct parody of Slim Thugs song by the exact same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031413/87209249/slimthug.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The trio all went to the same high school together, then parted ways in college but never lost touch.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031422/87209250/schoo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Jorma Taccone and Andy Samberg both worked as production assistants on the show Spin City.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031424/87209251/spin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. They are the official creative directors of ROKK Vodka.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031435/87209253/vodka.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">20 Things Men Will Do Instead of Going to Therapy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125812/87209821/bed.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125828/87209822/burn.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125838/87209823/champ.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125843/87209824/cod.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125849/87209825/creature.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125855/87209826/dbcoop.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125903/87209827/fast.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125906/87209828/elon.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125915/87209829/gram.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125917/87209830/jason.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125926/87209831/lake.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125927/87209832/meat.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125939/87209833/rob.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125950/87209834/stump.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010002/87209835/shirt.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010014/87209836/mix.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010025/87209837/sword.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010037/87209838/twitter.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010047/87209839/workout.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010058/87209840/triangle.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">30 Hot and Humid Memes Perfect For Summer </a><br>
+## <a href="#linky4" id="linky3">30 Hot and Humid Memes Perfect For Summer </a><br>
 
 <span style="font-size:4em">1. Nope, turn that things right back around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87207093.jpg" style="width:100%"><br>
 
@@ -639,7 +151,397 @@ Last updated: 07/07/2022-12:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">Movie Reviews That Hit the Nail Right on the Head</a><br>
+## <a href="#linky5" id="linky4">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208550.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208555.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208567.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208569.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
+
+<span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Fox Network and Comedy Central both passed on early Lonely Island TV series pitches.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031254/87209236/cc.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The hit theme from The LEGO Movie was performed by Tegan and Sara, and written by the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031306/87209237/aweseome.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The Beck Bennett AT&T commercials were directed by fellow SNL alum, Jorma Taccone of the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031313/87209238/beckcomm.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Dick in a Box featuring Justin Timberlake actually won an Emmy award for Outstanding Original Music and Lyrics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031318/87209239/dick.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Jorma is clearly getting some acting work, as he also portrayed Cha-ka in Land of the Lost.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031324/87209240/chakajorma.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The poster of Poseidon in the Im on a Boat video is actually the same photograph from Age of Mythology.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031433/87209252/tpain.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. They were nominated for a Razzie for Grown Ups 2. The award was for worst on-screen combo and went to the entire cast of the movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031329/87209241/grown2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Jimmy Fallon pitched The Lonely Island to Lorne Michaels after they wrote for the 2005 MTV Movie Awards which Fallon hosted.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031336/87209242/jimmy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Jorma actually played the role of Hitler in the movie Kung Fury.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031340/87209243/jormahitler.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Julian Casablancas, mostly known as the lead singer/guitarist for The Strokes, has also worked with Queens of the Stone Age, and you guessed it...The Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031347/87209244/julian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. While shooting a pilot in 2000, Kiefer Sutherland just happened to be walking by. The scene they were filming was an elderly woman being mugged, and Sutherland didnt realize it was just a Lonely Island sketch. He stepped in and tried to help the woman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031351/87209245/keef.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In the clean version of the song Jizz in my Pants the word Jizz has been replaced by the sound of men orgasming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031358/87209246/jizz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Jorma Taccone directed the MacGruber movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031402/87209247/macjorma.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Popstar: Never Stop Stopping holds a certified fresh 79% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031409/87209248/popstar79.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Lonely Islands Like a Boss is a direct parody of Slim Thugs song by the exact same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031413/87209249/slimthug.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The trio all went to the same high school together, then parted ways in college but never lost touch.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031422/87209250/schoo.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Jorma Taccone and Andy Samberg both worked as production assistants on the show Spin City.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031424/87209251/spin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. They are the official creative directors of ROKK Vodka.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031435/87209253/vodka.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">16 Celebs Who Don’t Deserve a Second Chance</a><br>
+
+<span style="font-size:4em">1. Bill Cosby - Cosby famously drugged and sexually assaulted women in his home, destroying many lives including his own.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112456/87209070/cosby.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Armie Hammer - The actor sent super explicit (and terrifying) text messages to multiple women that included sexual fantasies, including cannibalism, violence, and rape.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112459/87209071/armie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Dave Chappelle - Chappelle has figuratively sh*t on the trans community time and time again, doubling down, and defending fellow TERF J.K. Rowling. Quotes from Dave include Gender is a fact and stating he didnt want a woman with a dick.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112507/87209072/dave.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. DaBaby - The rapper had this to say to fans at a festival: Fellas, if you aint suck a n**** d*** in the parking lot, put your cellphone lights in the air. f you didnt show up today with HIV, AIDS, any of them deadly sexually transmitted diseases thatll make you die in two or three weeks, put your cellphone light in the air.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112510/87209073/dababy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Ellen Degeneres - Ellen is finally ending her show after multiple allegations of sexual assault, racism, intimidation, and an overall toxic workplace.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112518/87209074/ellen.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. James Franco - Franco slid into a girls DMs on Instagram asking if she was 18. The woman responded that she was 17, and Franco then asked if he should get a hotel room where she was staying. Yeah, not a good dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112521/87209075/franco.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. R. Kelly - 8 counts of Sex Trafficking. One count of Racketeering. 30 years in prison. Oh yeah, and we all thought that pee thing was totally normal?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112554/87209080/kelly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Gina Carano - Carano has some very strong opinions. Which doesnt make you a bad person. You know what does? Comparing being a Republican today to what the Jewish people went through in the holocaust. Shes also blocked Black Lives Matter accounts on Twitter. She can go touch grass.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112530/87209076/gina.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Deshaun Watson - The Cleveland Browns quarterback might not even play a snap this season. He met with 66 women for massages over 17 months. He has 24 civil suits against him for sexual assault. The NFL has yet to punish him.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112534/87209077/im-565894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Harvey Weinstein - forcible rape, forcible oral copulation, sexual penetration by use of force and sexual battery by restraint. This guy can rot in hell.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112541/87209078/harvey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Louis C.K. - Five different women confirmed that the comedian either asked them or forced them to watch him masturbate. Ew. Just ew. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112557/87209081/louis.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Marilyn Manson - Both actresses Evan Rachel Wood and Charlyne Yi came forward with assault allegations against Manson. He has a history of assault, and reached a settlement with a security guard after spitting on his head and rubbing his crotch on the man. He groomed and abused Evan Rachel Wood when she was 18.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112605/87209082/manson.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. T.J. Miller - Not only called in a bomb-threat on an Amtrak train, but sexually assaulted a George Washington University student. He choked her, punched her in the mouth, anally penetrated her, and used a beer bottle at one point. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112608/87209083/miller.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Kevin Spacey - When actor Anthony Rapp was 14, Kevin Spacey made sexual advances toward him. Multiple men have come forward stating that they have been sexually harassed and/or assaulted by Spacey.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112617/87209084/spacey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. J.K. Rowling - The author continues to double-down on her hatred of the trans community. Shes the queen of the TERFs. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112546/87209079/jk.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Matt Lauer - Lauer was fired after it came to light that he raped and assaulted a female colleague in a hotel room at the Sochi Olympics. The assault continued back in the States.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112620/87209085/lauer.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">25 Staggering Facts About the Cold War</a><br>
+
+<span style="font-size:4em">1. Today I learned about Americas Cold War doomsday weapon, SLAM. It was a nuclear-powered cruise missile that would have dropped nuclear bombs at predetermined locations while releasing radiation from its unshielded reactor and then crashed into an area when it was finished.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The Icelandic government banned the stationing of black American soldiers in Iceland during the Cold War so as to protect Icelandic women and preserve a homogenous national body. After pressure from the US military, the ban was eventually lifted in the late 1960s.-u/OptimalProblemSolver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208585.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. In 1985, in the midst of the cold war, US President Ronald Reagan and USSR President Mikhail Gorbachev made a pact to put both their countries differences aside and have their militaries join as one if an alien invasion ever happened.-u/RingoStarAllies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The American Cold War-era stealth plane, the Lockheed SR-71, was made of 92% titanium. Most of this titanium was bought through shell companies directly from the USSR. Enough was supplied to build 32 planes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Helsinki, Finland was used to film many Cold War-era Hollywood movies when filming in the USSR was not possible. Examples include The Kremlin Letter (1970), Reds (1981), and Gorky Park (1983).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. To train new operatives during the Cold War, the Soviets built fully functional replicas of American towns. Their residents consisted of retired deep cover operatives who taught the trainees everything they needed to know about blending into American life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Kim Philby, a high-ranking MI6 spy and chief liaison for American/British intelligence relations was actually a Soviet agent during WW2 and the Cold War. He betrayed John le le Carré which is why he left spying to become a writer. Tinker Tailor Soldier Spy was partly inspired by him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Today I learned of Vasili Mitrokhin, a KGB archivist who kept a vast collection of handwritten notes on top-secret files. When he defected to British Intelligence in 1992, he brought six trunks of notes with him that exposed most KGB activities in the West during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Lockheed U-2 spy plane, famous for conducting covert reconnaissance during the Cold War, is still in active service after 65 years, being used for military and scientific missions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. During the peak of the Cold War, one of the tasks given to Niel Armstrong was to place two Soviet medals on the moon to honor their fallen Soviet competitors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Over 600 fighter pilots of the Swedish Air Force were killed in training exercises during the duration of the Cold War. Eventually in the 1960s flight safety became a concern because aircraft became more expensive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Switzerland finally dismantled last Cold War-era explosives from a bridge leading to Germany. They built such defenses to protect the country in the time of invasion!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. After the Cold War, the United States paired some of its states with eastern European countries to help bolster their armies and assert their independence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Today I learned about Building 470, a seven-story steel and brick building used during the Cold War for small-scale production of biological warfare agents. It was hermetically sealed and negatively pressurized, with false windows to make it appear to be a barracks or office building.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. During the Space Race in the Cold War, the USSR already had a head start by having the first satellite launched into space, known as Sputnik I, and by the time the USA had launched its first successful satellite into space, known as Explorer I, the USSR had already launched Sputnik II.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The motto, In God We Trust, is not the original motto of the United States. During the Cold War, it was changed from E Pluribus Unum (from many, one) in an effort to differentiate the United States from atheistic communism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Today I learned about Project Dark Gene, a joint CIA and Iranian program during the Cold War to fly Iranian fighter jets piloted by Americans into Soviet airspace to test defenses. This resulted in multiple planes being shot down and deaths.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Ballet dancer Rudolf Nureyev was the first Soviet artist to defect to the West during the Cold War, when he eluded Soviet security men at the airport in Paris and requested asylum, while on a tour with the Soviet Kirov Ballet in France, on June 1961.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A man (Robert Ballard) that went looking for the Titanic was only using that as a cover for a secret Cold War US Navy mission. The mission was completed 12 days earlier than expected, so with the time he had left he looked, and he found it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The real-life inspiration for The Americans was not Cold War spies, but 10 Russian deep-cover agents captured in 2010; but the show creator was unimpressed by the publics lukewarm reaction to the case, and figured the story would make for better TV if set in the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. During the height of the Cold War, the US built an embassy in Moscow that was so riddled with eavesdropping equipment, by 1985 the building was abandoned after spending $136 million. Eventually, the embassy was taken apart brick by brick and rebuilt over 15 years at a cost of $240 million.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The US military secretly built a flying saucer named VZ-9 Avrocar during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Today I learned of Qian Xuesen, a Chinese rocket scientist and mathematician, who worked on the Manhattan Project during WW2 to help America build the worlds first atomic bomb. During the Cold War, he was accused of being a communist and fled America to China, where he helped China build its first atomic bomb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. During the Cold War, the USA tried to intimidate the Soviet Bloc by convincing them that then-president Richard Nixon was an unstable lunatic who was likely to lash out for no rational reason, based on the dubious madman theory of foreign policy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Soviet leader Nikita Khrushchev gifted US President John F Kennedy a dog called Pushinka during the Cold War. She later on had puppies; which Kennedy referred to as the pupniks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208608.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">17 People Who Did Not Need to Leave a Comment</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">22 Memes That Only Tell the Truth</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100841/87209031/notmemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100730/87209023/notmemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100741/87209024/notmemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100752/87209025/notmemes5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100803/87209026/notmemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100812/87209027/notmemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100729/87209022/notmemes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100815/87209028/notmemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100830/87209030/notmemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100846/87209032/notmemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100852/87209033/notmemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100858/87209034/notmemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100903/87209035/notmemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100910/87209036/notmemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100915/87209037/notmemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100922/87209038/notmemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100926/87209039/notmemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100933/87209040/notmemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100937/87209041/notmemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100945/87209042/notmemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100950/87209043/notmemes21.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">20 Things Men Will Do Instead of Going to Therapy</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125812/87209821/bed.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125828/87209822/burn.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125838/87209823/champ.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125843/87209824/cod.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125849/87209825/creature.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125855/87209826/dbcoop.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125903/87209827/fast.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125906/87209828/elon.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125915/87209829/gram.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125917/87209830/jason.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125926/87209831/lake.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125927/87209832/meat.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125939/87209833/rob.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125950/87209834/stump.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010002/87209835/shirt.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010014/87209836/mix.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010025/87209837/sword.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010037/87209838/twitter.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010047/87209839/workout.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/010058/87209840/triangle.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Fresh and Funny Memes to Kickstart Your Day</a><br>
+
+<span style="font-size:4em">1. Well Ill be damned, looks like my internet does work after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Lmao. Because hes a foot guy, you get it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A hotdog is a sandwich. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. These things will unlock so many forgotten memories. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Whats the worst that could happen? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Scented farts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The kids are going to be just fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Take that England. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I see what you did there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207426.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207428.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207432.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Movie Reviews That Hit the Nail Right on the Head</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/035400/87208163/baby.jpg" style="width:100%"><br>
 
@@ -685,71 +587,123 @@ Last updated: 07/07/2022-12:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">17 People Who Did Not Need to Leave a Comment</a><br>
+## <a href="#linky15" id="linky14">28 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209444.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209460.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
+## <a href="#linky16" id="linky15">30 Cool Random Pics Packed to the Gills with Chill</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
+<span style="font-size:4em">1. Unamused cat is unamused with your antics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033244/87209256/87208679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
+<span style="font-size:4em">2. We hope you had a great (and safe) 4th of July weekend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033256/87209258/87205564.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
+<span style="font-size:4em">6.  Now this looks both amazing and delicious!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033258/87209259/87208698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033247/87209257/87205565.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033307/87209260/87208702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033308/87209261/87208703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
+<span style="font-size:4em">13. This is one neighborhood watch group you dont want to test your luck with!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033318/87209262/87208771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033320/87209263/87208775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033329/87209264/87208783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Onward my trusty steed!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041459/87209278/87205014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033331/87209265/87208801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033340/87209266/87208812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033341/87209267/87208820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Thanks... I hate it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041353/87209269/87204544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Looks like this plane literally  laughed it ass off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041404/87209270/87204537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041416/87209271/87204562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. This is cool and all, but how the heck do you see while driving?!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041427/87209272/87204973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041436/87209273/87204972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041438/87209274/87204975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Tell me you have more money than you know what to do with, without actually telling me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041447/87209275/87204981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041448/87209276/87204994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041458/87209277/87205000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041509/87209279/87205017.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
