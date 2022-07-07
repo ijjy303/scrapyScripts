@@ -1,37 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/07/2022-17:47:18
+Last updated: 07/07/2022-18:47:18
 <br>
-## <a href="#linky2" id="linky1">13 Things that are Much Simpler When Done the Right Way</a><br>
-
-<span style="font-size:4em">1. The most common way to hold a coffee cup is by the handle. But by holding the cup in this way, there is a higher chance that it will spill on your clothes when walking. To avoid this, the best way to hold a coffee mug is to grab it from above with your fingers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. To avoid getting all the frosting on your nose, the right way to eat a cupcake is to cut it in a half. Place the bottom at the top and eat it like a sandwich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Floss may not be the first thing that comes to mind when you think of cutting a cake. However, using it as a replacement for a knife is a great idea when you want to get perfect slices and not ruin the frosting on the cake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. You’ve surely noticed that most fridges have a spot on the door for storing eggs. But the truth is that the fridge door and its upper shelves are warmer than other areas. So the best place to store eggs, and keep them cooler, would be on the bottom shelf, toward the back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Brushing hair is one of those activities that we do every day. Instead of brushing from the bottom up, brush your hair starting from the scalp. This will help distribute the natural oils in your hair and moisturize it, and also prevent an oily scalp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Chances are, when you buy drinks from a fast-food restaurant and then need to drive, you don’t know where to put the cardboard cup holder. Instead of putting it on the floor or seat, use the car’s cup holder, and it should fit right in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. If you’ve ever had trouble wearing bobby pins because they’re hard to keep in place, the reason is that you might’ve been using them wrong this whole time. The correct way to use them is by pushing them into the scalp with the wavy side down. The ribbing is designed to hold the hair and prevent it from slipping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. We normally wait for food to cool before putting it in the fridge, but according to the USDA Food Safety and Inspection Service, food should not spend more than 2 hours out of the fridge. Instead, separate large batches of food into smaller containers to cool it quickly and store it immediately.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. For easier and quicker thawing, flatten ground beef in a resealable plastic bag, then freeze. When you’re ready to cook your meat, simply place the bag in water, and it will be ready in minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A good trick to help you stop struggling with a tube of toothpaste is to place a bobby pin on each side. You can also use a clip. This will ensure that you get all of the toothpaste without stressing about how to get the last of the product out of the tube.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ceiling fans can also be useful during winter. Simply flip the switch at the base of your fan, so it spins clockwise. This will push hot air down, keeping the room warmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A trick to help you eat your Jell-O easier is to let each one set upside down on the lid. This will make it easier to take and enjoy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The hack is to place the colander on top of the cooked pasta and the water. After that, hold both the colander and the pasta saucepan. Then pour the water through the colander, and you’re done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207041.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
+## <a href="#linky2" id="linky1">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
 
@@ -78,6 +48,36 @@ Last updated: 07/07/2022-17:47:18
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">13 Things that are Much Simpler When Done the Right Way</a><br>
+
+<span style="font-size:4em">1. The most common way to hold a coffee cup is by the handle. But by holding the cup in this way, there is a higher chance that it will spill on your clothes when walking. To avoid this, the best way to hold a coffee mug is to grab it from above with your fingers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. To avoid getting all the frosting on your nose, the right way to eat a cupcake is to cut it in a half. Place the bottom at the top and eat it like a sandwich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Floss may not be the first thing that comes to mind when you think of cutting a cake. However, using it as a replacement for a knife is a great idea when you want to get perfect slices and not ruin the frosting on the cake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. You’ve surely noticed that most fridges have a spot on the door for storing eggs. But the truth is that the fridge door and its upper shelves are warmer than other areas. So the best place to store eggs, and keep them cooler, would be on the bottom shelf, toward the back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Brushing hair is one of those activities that we do every day. Instead of brushing from the bottom up, brush your hair starting from the scalp. This will help distribute the natural oils in your hair and moisturize it, and also prevent an oily scalp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Chances are, when you buy drinks from a fast-food restaurant and then need to drive, you don’t know where to put the cardboard cup holder. Instead of putting it on the floor or seat, use the car’s cup holder, and it should fit right in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. If you’ve ever had trouble wearing bobby pins because they’re hard to keep in place, the reason is that you might’ve been using them wrong this whole time. The correct way to use them is by pushing them into the scalp with the wavy side down. The ribbing is designed to hold the hair and prevent it from slipping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. We normally wait for food to cool before putting it in the fridge, but according to the USDA Food Safety and Inspection Service, food should not spend more than 2 hours out of the fridge. Instead, separate large batches of food into smaller containers to cool it quickly and store it immediately.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. For easier and quicker thawing, flatten ground beef in a resealable plastic bag, then freeze. When you’re ready to cook your meat, simply place the bag in water, and it will be ready in minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A good trick to help you stop struggling with a tube of toothpaste is to place a bobby pin on each side. You can also use a clip. This will ensure that you get all of the toothpaste without stressing about how to get the last of the product out of the tube.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ceiling fans can also be useful during winter. Simply flip the switch at the base of your fan, so it spins clockwise. This will push hot air down, keeping the room warmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A trick to help you eat your Jell-O easier is to let each one set upside down on the lid. This will make it easier to take and enjoy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The hack is to place the colander on top of the cooked pasta and the water. After that, hold both the colander and the pasta saucepan. Then pour the water through the colander, and you’re done.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207041.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -135,125 +135,7 @@ Last updated: 07/07/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">17 People Who Did Not Need to Leave a Comment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">Customer Mistaken for Interviewee Reveals Managers Breaking the Law</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100658/87209730/one.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100730/87209731/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100847/87209732/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100924/87209733/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101006/87209734/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101052/87209736/six.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101150/87209737/seven.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101231/87209738/eight.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101351/87209739/nine.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101436/87209742/ten.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101518/87209743/eleven.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101815/87209744/twelve.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101858/87209745/thirt.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101950/87209746/final.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">HR Requires Employees to Clock Out before Using Restroom</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043546/87209983/one.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043620/87209988/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043615/87209987/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043603/87209985/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043533/87209982/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043608/87209986/six.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043557/87209984/seven.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
+## <a href="#linky5" id="linky4">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
 
 <span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
 
@@ -299,53 +181,37 @@ Last updated: 07/07/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">22 Memes That Only Tell the Truth</a><br>
+## <a href="#linky6" id="linky5">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100841/87209031/notmemes10.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100730/87209023/notmemes1.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100741/87209024/notmemes4.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100752/87209025/notmemes5.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100803/87209026/notmemes7.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100812/87209027/notmemes6.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100729/87209022/notmemes3.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100815/87209028/notmemes8.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100830/87209030/notmemes11.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100846/87209032/notmemes9.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100852/87209033/notmemes12.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100858/87209034/notmemes13.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100903/87209035/notmemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100910/87209036/notmemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100915/87209037/notmemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100922/87209038/notmemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100926/87209039/notmemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100933/87209040/notmemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100937/87209041/notmemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100945/87209042/notmemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100950/87209043/notmemes21.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">30 Cool Random Pics Packed to the Gills with Chill</a><br>
+## <a href="#linky7" id="linky6">30 Cool Random Pics Packed to the Gills with Chill</a><br>
 
 <span style="font-size:4em">1. Unamused cat is unamused with your antics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033244/87209256/87208679.jpg" style="width:100%"><br>
 
@@ -409,7 +275,7 @@ Last updated: 07/07/2022-17:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Movie Reviews That Hit the Nail Right on the Head</a><br>
+## <a href="#linky8" id="linky7">Movie Reviews That Hit the Nail Right on the Head</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/035400/87208163/baby.jpg" style="width:100%"><br>
 
@@ -452,6 +318,140 @@ Last updated: 07/07/2022-17:47:18
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/035547/87208182/wall.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/035553/87208183/women.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">HR Requires Employees to Clock Out before Using Restroom</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043546/87209983/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043620/87209988/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043615/87209987/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043603/87209985/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043533/87209982/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043608/87209986/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/043557/87209984/seven.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">17 People Who Did Not Need to Leave a Comment</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Customer Mistaken for Interviewee Reveals Managers Breaking the Law</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100658/87209730/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100730/87209731/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100847/87209732/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100924/87209733/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101006/87209734/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101052/87209736/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101150/87209737/seven.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101231/87209738/eight.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101351/87209739/nine.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101436/87209742/ten.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101518/87209743/eleven.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101815/87209744/twelve.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101858/87209745/thirt.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101950/87209746/final.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">22 Memes That Only Tell the Truth</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100841/87209031/notmemes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100730/87209023/notmemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100741/87209024/notmemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100752/87209025/notmemes5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100803/87209026/notmemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100812/87209027/notmemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100729/87209022/notmemes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100815/87209028/notmemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100830/87209030/notmemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100846/87209032/notmemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100852/87209033/notmemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100858/87209034/notmemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100903/87209035/notmemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100910/87209036/notmemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100915/87209037/notmemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100922/87209038/notmemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100926/87209039/notmemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100933/87209040/notmemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100937/87209041/notmemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100945/87209042/notmemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100950/87209043/notmemes21.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
