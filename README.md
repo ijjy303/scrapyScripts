@@ -1,51 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/07/2022-06:47:18
+Last updated: 07/07/2022-07:47:18
 <br>
-## <a href="#linky2" id="linky1">Dudes Trying to Flirt through Roleplay Is New Level Cringe</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015052/87207962/bear.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015058/87207963/brandon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015103/87207964/cops.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015109/87207965/block.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015114/87207966/fic.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015122/87207967/flame.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015150/87207971/prank.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015126/87207968/gross.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015134/87207969/hair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015137/87207970/hump.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015202/87207972/sandwich.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015213/87207974/taco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015219/87207975/mang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015224/87207976/throat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015230/87207977/toes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015235/87207978/tom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015207/87207973/kiss.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015241/87207979/wolf.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015246/87207980/yikes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015252/87207981/tv.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">25 Staggering Facts About the Cold War</a><br>
+## <a href="#linky2" id="linky1">25 Staggering Facts About the Cold War</a><br>
 
 <span style="font-size:4em">1. Today I learned about Americas Cold War doomsday weapon, SLAM. It was a nuclear-powered cruise missile that would have dropped nuclear bombs at predetermined locations while releasing radiation from its unshielded reactor and then crashed into an area when it was finished.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208584.jpg" style="width:100%"><br>
 
@@ -96,6 +52,50 @@ Last updated: 07/07/2022-06:47:18
 <span style="font-size:4em">24. During the Cold War, the USA tried to intimidate the Soviet Bloc by convincing them that then-president Richard Nixon was an unstable lunatic who was likely to lash out for no rational reason, based on the dubious madman theory of foreign policy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208607.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. Soviet leader Nikita Khrushchev gifted US President John F Kennedy a dog called Pushinka during the Cold War. She later on had puppies; which Kennedy referred to as the pupniks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208608.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">Dudes Trying to Flirt through Roleplay Is New Level Cringe</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015052/87207962/bear.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015058/87207963/brandon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015103/87207964/cops.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015109/87207965/block.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015114/87207966/fic.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015122/87207967/flame.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015150/87207971/prank.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015126/87207968/gross.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015134/87207969/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015137/87207970/hump.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015202/87207972/sandwich.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015213/87207974/taco.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015219/87207975/mang.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015224/87207976/throat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015230/87207977/toes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015235/87207978/tom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015207/87207973/kiss.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015241/87207979/wolf.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015246/87207980/yikes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/015252/87207981/tv.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -263,7 +263,43 @@ Last updated: 07/07/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Fresh and Funny Memes to Kickstart Your Day</a><br>
+## <a href="#linky7" id="linky6">16 Celebs Who Don’t Deserve a Second Chance</a><br>
+
+<span style="font-size:4em">1. Bill Cosby - Cosby famously drugged and sexually assaulted women in his home, destroying many lives including his own.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112456/87209070/cosby.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Armie Hammer - The actor sent super explicit (and terrifying) text messages to multiple women that included sexual fantasies, including cannibalism, violence, and rape.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112459/87209071/armie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Dave Chappelle - Chappelle has figuratively sh*t on the trans community time and time again, doubling down, and defending fellow TERF J.K. Rowling. Quotes from Dave include Gender is a fact and stating he didnt want a woman with a dick.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112507/87209072/dave.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. DaBaby - The rapper had this to say to fans at a festival: Fellas, if you aint suck a n**** d*** in the parking lot, put your cellphone lights in the air. f you didnt show up today with HIV, AIDS, any of them deadly sexually transmitted diseases thatll make you die in two or three weeks, put your cellphone light in the air.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112510/87209073/dababy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Ellen Degeneres - Ellen is finally ending her show after multiple allegations of sexual assault, racism, intimidation, and an overall toxic workplace.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112518/87209074/ellen.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. James Franco - Franco slid into a girls DMs on Instagram asking if she was 18. The woman responded that she was 17, and Franco then asked if he should get a hotel room where she was staying. Yeah, not a good dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112521/87209075/franco.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. R. Kelly - 8 counts of Sex Trafficking. One count of Racketeering. 30 years in prison. Oh yeah, and we all thought that pee thing was totally normal?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112554/87209080/kelly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Gina Carano - Carano has some very strong opinions. Which doesnt make you a bad person. You know what does? Comparing being a Republican today to what the Jewish people went through in the holocaust. Shes also blocked Black Lives Matter accounts on Twitter. She can go touch grass.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112530/87209076/gina.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Deshaun Watson - The Cleveland Browns quarterback might not even play a snap this season. He met with 66 women for massages over 17 months. He has 24 civil suits against him for sexual assault. The NFL has yet to punish him.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112534/87209077/im-565894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Harvey Weinstein - forcible rape, forcible oral copulation, sexual penetration by use of force and sexual battery by restraint. This guy can rot in hell.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112541/87209078/harvey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Louis C.K. - Five different women confirmed that the comedian either asked them or forced them to watch him masturbate. Ew. Just ew. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112557/87209081/louis.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Marilyn Manson - Both actresses Evan Rachel Wood and Charlyne Yi came forward with assault allegations against Manson. He has a history of assault, and reached a settlement with a security guard after spitting on his head and rubbing his crotch on the man. He groomed and abused Evan Rachel Wood when she was 18.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112605/87209082/manson.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. T.J. Miller - Not only called in a bomb-threat on an Amtrak train, but sexually assaulted a George Washington University student. He choked her, punched her in the mouth, anally penetrated her, and used a beer bottle at one point. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112608/87209083/miller.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Kevin Spacey - When actor Anthony Rapp was 14, Kevin Spacey made sexual advances toward him. Multiple men have come forward stating that they have been sexually harassed and/or assaulted by Spacey.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112617/87209084/spacey.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. J.K. Rowling - The author continues to double-down on her hatred of the trans community. Shes the queen of the TERFs. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112546/87209079/jk.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Matt Lauer - Lauer was fired after it came to light that he raped and assaulted a female colleague in a hotel room at the Sochi Olympics. The assault continued back in the States.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112620/87209085/lauer.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">Fresh and Funny Memes to Kickstart Your Day</a><br>
 
 <span style="font-size:4em">1. Well Ill be damned, looks like my internet does work after all. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87207412.jpg" style="width:100%"><br>
 
@@ -309,93 +345,7 @@ Last updated: 07/07/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">16 Celebs Who Don’t Deserve a Second Chance</a><br>
-
-<span style="font-size:4em">1. Bill Cosby - Cosby famously drugged and sexually assaulted women in his home, destroying many lives including his own.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112456/87209070/cosby.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Armie Hammer - The actor sent super explicit (and terrifying) text messages to multiple women that included sexual fantasies, including cannibalism, violence, and rape.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112459/87209071/armie.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Dave Chappelle - Chappelle has figuratively sh*t on the trans community time and time again, doubling down, and defending fellow TERF J.K. Rowling. Quotes from Dave include Gender is a fact and stating he didnt want a woman with a dick.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112507/87209072/dave.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. DaBaby - The rapper had this to say to fans at a festival: Fellas, if you aint suck a n**** d*** in the parking lot, put your cellphone lights in the air. f you didnt show up today with HIV, AIDS, any of them deadly sexually transmitted diseases thatll make you die in two or three weeks, put your cellphone light in the air.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112510/87209073/dababy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Ellen Degeneres - Ellen is finally ending her show after multiple allegations of sexual assault, racism, intimidation, and an overall toxic workplace.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112518/87209074/ellen.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. James Franco - Franco slid into a girls DMs on Instagram asking if she was 18. The woman responded that she was 17, and Franco then asked if he should get a hotel room where she was staying. Yeah, not a good dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112521/87209075/franco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. R. Kelly - 8 counts of Sex Trafficking. One count of Racketeering. 30 years in prison. Oh yeah, and we all thought that pee thing was totally normal?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112554/87209080/kelly.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gina Carano - Carano has some very strong opinions. Which doesnt make you a bad person. You know what does? Comparing being a Republican today to what the Jewish people went through in the holocaust. Shes also blocked Black Lives Matter accounts on Twitter. She can go touch grass.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112530/87209076/gina.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Deshaun Watson - The Cleveland Browns quarterback might not even play a snap this season. He met with 66 women for massages over 17 months. He has 24 civil suits against him for sexual assault. The NFL has yet to punish him.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112534/87209077/im-565894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Harvey Weinstein - forcible rape, forcible oral copulation, sexual penetration by use of force and sexual battery by restraint. This guy can rot in hell.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112541/87209078/harvey.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Louis C.K. - Five different women confirmed that the comedian either asked them or forced them to watch him masturbate. Ew. Just ew. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112557/87209081/louis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Marilyn Manson - Both actresses Evan Rachel Wood and Charlyne Yi came forward with assault allegations against Manson. He has a history of assault, and reached a settlement with a security guard after spitting on his head and rubbing his crotch on the man. He groomed and abused Evan Rachel Wood when she was 18.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112605/87209082/manson.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. T.J. Miller - Not only called in a bomb-threat on an Amtrak train, but sexually assaulted a George Washington University student. He choked her, punched her in the mouth, anally penetrated her, and used a beer bottle at one point. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112608/87209083/miller.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Kevin Spacey - When actor Anthony Rapp was 14, Kevin Spacey made sexual advances toward him. Multiple men have come forward stating that they have been sexually harassed and/or assaulted by Spacey.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112617/87209084/spacey.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. J.K. Rowling - The author continues to double-down on her hatred of the trans community. Shes the queen of the TERFs. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112546/87209079/jk.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Matt Lauer - Lauer was fired after it came to light that he raped and assaulted a female colleague in a hotel room at the Sochi Olympics. The assault continued back in the States.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/112620/87209085/lauer.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208550.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208555.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208567.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208569.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
+## <a href="#linky9" id="linky8">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
 
@@ -425,7 +375,7 @@ Last updated: 07/07/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">22 Memes That Only Tell the Truth</a><br>
+## <a href="#linky10" id="linky9">22 Memes That Only Tell the Truth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100841/87209031/notmemes10.png" style="width:100%"><br>
 
@@ -468,6 +418,48 @@ Last updated: 07/07/2022-06:47:18
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100945/87209042/notmemes22.png" style="width:100%"><br>
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/100950/87209043/notmemes21.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
+
+<span style="font-size:4em">1. The dreams of 13 Going on 30’s main character came true, and several elements prove it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+In one of the movie’s first scenes, the 13-year-old protagonist looks at a magazine with the keywords of what she wants to be in her adulthood: “30, flirtatious and prosperous”. Later, not only does the magazine’s message come true, but the same magazine inspires the decor of Jenna’s apartment when she’s 30.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There’s a reference to Pretty Woman in The Princess’s Diaries. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+In Pretty Woman, there’s a scene where Vivian (Julia Roberts) goes to dinner at an elegant restaurant. When she accidentally knocks over a snail, a waiter covers her sheer clumsiness by saying, “It happens all the time.” Mia (Anne Hathaway) in The Princess Diaries hears the exact phrase from the same waiter (Allan Kent) when she breaks a glass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. La La Land has a reference to a classic film. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+The scene in which the leads sing City of Stars in the apartment under a dim green light was created after director Damien Chazelle watched Alfred Hitchcock’s Vertigo the night before. Even at the last minute, he decided that Emma should wear a purple dress like Novak’s in that cinema classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The book “M.J.” reads may have a special connection to Peter Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+The book MJ reads in Spider-Man: Homecoming, Of Human Bondage (1915) by W. Somerset Maugham tells the story of an orphaned boy who is sent to live with his aunt and uncle, just as Peter Parker is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. One of the extras in Titanic is a historical consultant who helped the director. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Historian Edward Kamuda, as a member of the Titanic Historical Society, served as a consultant on the historical facts in the film and appeared briefly as an extra in the scene where Jack and Margaret are walking on deck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The shadow on her face reveals her true identity. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Some costumes in The Conjuring match. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the same tone and pattern. For example, Ed’s tie and Lorraine’s skirt. Maybe they’re meant to reflect the connection that the couple had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205913.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -589,61 +581,53 @@ Last updated: 07/07/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">13 Movie Easter Eggs Hiding in Plan Sight </a><br>
+## <a href="#linky14" id="linky13">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
 
-<span style="font-size:4em">1. The dreams of 13 Going on 30’s main character came true, and several elements prove it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205902.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-In one of the movie’s first scenes, the 13-year-old protagonist looks at a magazine with the keywords of what she wants to be in her adulthood: “30, flirtatious and prosperous”. Later, not only does the magazine’s message come true, but the same magazine inspires the decor of Jenna’s apartment when she’s 30.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205903.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208550.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. There’s a reference to Pretty Woman in The Princess’s Diaries. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205904.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208551.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-In Pretty Woman, there’s a scene where Vivian (Julia Roberts) goes to dinner at an elegant restaurant. When she accidentally knocks over a snail, a waiter covers her sheer clumsiness by saying, “It happens all the time.” Mia (Anne Hathaway) in The Princess Diaries hears the exact phrase from the same waiter (Allan Kent) when she breaks a glass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205905.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208552.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. La La Land has a reference to a classic film. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205906.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208553.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-The scene in which the leads sing City of Stars in the apartment under a dim green light was created after director Damien Chazelle watched Alfred Hitchcock’s Vertigo the night before. Even at the last minute, he decided that Emma should wear a purple dress like Novak’s in that cinema classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205907.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208555.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. The book “M.J.” reads may have a special connection to Peter Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205908.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208556.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-The book MJ reads in Spider-Man: Homecoming, Of Human Bondage (1915) by W. Somerset Maugham tells the story of an orphaned boy who is sent to live with his aunt and uncle, just as Peter Parker is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205901.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208558.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. One of the extras in Titanic is a historical consultant who helped the director. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205909.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208557.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Historian Edward Kamuda, as a member of the Titanic Historical Society, served as a consultant on the historical facts in the film and appeared briefly as an extra in the scene where Jack and Margaret are walking on deck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205910.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The shadow on her face reveals her true identity. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205912.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208559.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Some costumes in The Conjuring match. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205911.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208561.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-In The Conjuring, costumes worn by the couple Ed and Lorraine Warren have the same tone and pattern. For example, Ed’s tie and Lorraine’s skirt. Maybe they’re meant to reflect the connection that the couple had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87205913.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208560.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208562.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">New Neighbor Stingy about Sharing Driveway, Receives Instant Karma</a><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208563.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112916/87207793/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208564.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112944/87207798/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208565.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112939/87207797/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208566.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112922/87207794/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208567.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112933/87207796/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208568.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/05/112927/87207795/six.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208569.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
