@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/08/2022-06:47:18
+Last updated: 07/08/2022-07:47:18
 <br>
 ## <a href="#linky2" id="linky1">Things Men Will Do Instead of Going to Therapy</a><br>
 
@@ -83,39 +83,7 @@ Last updated: 07/08/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Customer Mistaken for Interviewee Reveals Managers Breaking the Law</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100658/87209730/one.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100730/87209731/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100847/87209732/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100924/87209733/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101006/87209734/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101052/87209736/six.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101150/87209737/seven.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101231/87209738/eight.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101351/87209739/nine.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101436/87209742/ten.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101518/87209743/eleven.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101815/87209744/twelve.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101858/87209745/thirt.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101950/87209746/final.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">13 Things that are Much Simpler When Done the Right Way</a><br>
+## <a href="#linky4" id="linky3">13 Things that are Much Simpler When Done the Right Way</a><br>
 
 <span style="font-size:4em">1. The most common way to hold a coffee cup is by the handle. But by holding the cup in this way, there is a higher chance that it will spill on your clothes when walking. To avoid this, the best way to hold a coffee mug is to grab it from above with your fingers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207030.jpg" style="width:100%"><br>
 
@@ -145,7 +113,7 @@ Last updated: 07/08/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Staggering Facts About the Cold War</a><br>
+## <a href="#linky5" id="linky4">25 Staggering Facts About the Cold War</a><br>
 
 <span style="font-size:4em">1. Today I learned about Americas Cold War doomsday weapon, SLAM. It was a nuclear-powered cruise missile that would have dropped nuclear bombs at predetermined locations while releasing radiation from its unshielded reactor and then crashed into an area when it was finished.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208584.jpg" style="width:100%"><br>
 
@@ -199,7 +167,7 @@ Last updated: 07/08/2022-06:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">36 Radical Randoms Wrangled from the Web</a><br>
+## <a href="#linky6" id="linky5">36 Radical Randoms Wrangled from the Web</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206660.jpg" style="width:100%"><br>
 
@@ -272,6 +240,38 @@ Last updated: 07/08/2022-06:47:18
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092939/87209721/87207317.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092638/87209700/87201623.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">Customer Mistaken for Interviewee Reveals Managers Breaking the Law</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100658/87209730/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100730/87209731/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100847/87209732/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100924/87209733/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101006/87209734/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101052/87209736/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101150/87209737/seven.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101231/87209738/eight.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101351/87209739/nine.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101436/87209742/ten.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101518/87209743/eleven.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101815/87209744/twelve.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101858/87209745/thirt.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101950/87209746/final.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -382,56 +382,6 @@ Last updated: 07/08/2022-06:47:18
 <span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208550.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208555.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208567.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208569.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
