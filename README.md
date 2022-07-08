@@ -1,147 +1,101 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/08/2022-10:47:18
+Last updated: 07/08/2022-11:47:19
 <br>
-## <a href="#linky2" id="linky1">20 Rare Facts You're Unlikely to Have Heard Before</a><br>
+## <a href="#linky2" id="linky1">28 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. The nuke stockpile in Washington State is guarded by trained dolphins that seek out and clamp a balloon on unfamiliar divers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/123439/87209818/obscurefacts9.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cultured bits of brain matter always try to grow an eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104630/87209752/obscurefacts1.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Boanthropy is a psychological disorder in which a person believes they are a cow and tries to live their life as one. Medical explanations suggest late-stage syphilis as one of the causes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104650/87209754/obscurefacts4.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. If humming birds don’t eat within an hour they might die from starvation, they feed from nectar every 15-20 minutes. The only exception to the rule is that at night, they get into a state called torpor which is similar to the way bears hibernate. They do this every night, they lower their body temperature, their heart rate goes down from like 1200 beats per minute to less than a 100 and they shut down their kidneys so they don’t die from dehydration.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104619/87209751/obscurefacts3.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Rabies kills around 60,000 people globally every year. To date, only 14 people worldwide have been known to recover after developing symptoms.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104654/87209755/obscurefacts6.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Your immune system doesn’t know your eyes exist. They have immune privilege to avoid inflammation in case of trauma.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104701/87209756/obscurefacts7.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. More pigeons have war medals than horses, dogs or mules.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104723/87209760/obscurefacts12.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I dont think most people know the meaning of prodigal. They know the parable of The Prodigal Son and think it refers to someone that leaves and then has to come crawling back, but thats incorrect. Prodigal means to spend money lavishly or wastefully. The prodigal son was prodigal whether or not he ever went back to his father.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104608/87209750/obscurefacts2.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The girl who voiced Lilo in Lilo and Stitch also played Samara in The Ring, both released in the same year (2002).</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104712/87209758/obscurefacts10.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Crabs commit suicide when gravely injured by pinching their own brains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104642/87209753/obscurefacts5.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209444.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. The same computer software used for the CGI in “Jurassic Park” was used to make the sprites for “Donkey Kong” country.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104716/87209759/obscurefacts11.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Before being born, two of the four chambers of a babys heart are not used, theyre actually bypassed! Theres no need to pump deoxygenated blood to the lungs when in the womb, because the lungs arent breathing air yet, and so are not supplying oxygen. All the oxygen comes from the umbilical cord.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104727/87209761/obscurefacts13.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Greater one-horned rhino or Great Indian rhinoceros population stands at around 3,700 individuals, a significant increase from around 200 remaining at the turn of the 20th century. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104734/87209762/obscurefacts14.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Raindrops don’t fall in the drip shape popularly conveyed. They fall in the shape of tiny parachutes or hamburger buns.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104739/87209763/obscurefacts15.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The Dutch national color is Orange but the flag is red white and blue stripes only because the dye they used for orange faded fast at sea, while red did not.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104746/87209764/obscurefacts16.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Pill bugs are crustaceans, like crabs or lobsters, that’s why they are always in the dampest places.  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104750/87209765/obscurefacts17.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The moon has an atmosphere. However, it is so thin that its considered to be an exosphere.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104757/87209766/obscurefacts18.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. They increased the rank of pigeons during WW1 so they could punish soldiers for eating a fellow soldier of higher rank. Cant have the soldiers eating the carrier pigeons!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104705/87209757/obscurefacts8.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. There was a man, Angus Barbieri who didnt eat for 382 days. He was morbidly obese and lived on tea, water, soda water and coffee while visiting the hospital weekly for vitamin and electrolyte treatments. He lost close to 280 lbs and broke his fast with an egg once he met his goal weight.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104800/87209767/obscurefacts19.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. A quarter has 119 ridges. 118 on a dime.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104809/87209768/obscurefacts20.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209454.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209455.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Fox Network and Comedy Central both passed on early Lonely Island TV series pitches.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031254/87209236/cc.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The hit theme from The LEGO Movie was performed by Tegan and Sara, and written by the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031306/87209237/aweseome.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The Beck Bennett AT&T commercials were directed by fellow SNL alum, Jorma Taccone of the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031313/87209238/beckcomm.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dick in a Box featuring Justin Timberlake actually won an Emmy award for Outstanding Original Music and Lyrics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031318/87209239/dick.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Jorma is clearly getting some acting work, as he also portrayed Cha-ka in Land of the Lost.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031324/87209240/chakajorma.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The poster of Poseidon in the Im on a Boat video is actually the same photograph from Age of Mythology.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031433/87209252/tpain.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. They were nominated for a Razzie for Grown Ups 2. The award was for worst on-screen combo and went to the entire cast of the movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031329/87209241/grown2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Jimmy Fallon pitched The Lonely Island to Lorne Michaels after they wrote for the 2005 MTV Movie Awards which Fallon hosted.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031336/87209242/jimmy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Jorma actually played the role of Hitler in the movie Kung Fury.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031340/87209243/jormahitler.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Julian Casablancas, mostly known as the lead singer/guitarist for The Strokes, has also worked with Queens of the Stone Age, and you guessed it...The Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031347/87209244/julian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. While shooting a pilot in 2000, Kiefer Sutherland just happened to be walking by. The scene they were filming was an elderly woman being mugged, and Sutherland didnt realize it was just a Lonely Island sketch. He stepped in and tried to help the woman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031351/87209245/keef.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In the clean version of the song Jizz in my Pants the word Jizz has been replaced by the sound of men orgasming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031358/87209246/jizz.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Jorma Taccone directed the MacGruber movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031402/87209247/macjorma.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Popstar: Never Stop Stopping holds a certified fresh 79% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031409/87209248/popstar79.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Lonely Islands Like a Boss is a direct parody of Slim Thugs song by the exact same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031413/87209249/slimthug.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The trio all went to the same high school together, then parted ways in college but never lost touch.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031422/87209250/schoo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Jorma Taccone and Andy Samberg both worked as production assistants on the show Spin City.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031424/87209251/spin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. They are the official creative directors of ROKK Vodka.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031435/87209253/vodka.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87209460.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Customer Mistaken for Interviewee Reveals Managers Breaking the Law</a><br>
+## <a href="#linky3" id="linky2">17 People Who Did Not Need to Leave a Comment</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100658/87209730/one.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100730/87209731/two.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100847/87209732/three.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100924/87209733/four.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101006/87209734/five.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101052/87209736/six.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101150/87209737/seven.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101231/87209738/eight.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101351/87209739/nine.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101436/87209742/ten.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101518/87209743/eleven.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101815/87209744/twelve.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101858/87209745/thirt.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101950/87209746/final.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">Gym Influencer Demands Guy Stop Mid-Workout So She Can Record Video, He Stays as Long as Possible</a><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112054/87210845/ONE.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112116/87210849/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112105/87210847/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112052/87210844/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112043/87210843/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112115/87210848/six.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112103/87210846/seven.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Things Men Will Do Instead of Going to Therapy</a><br>
+## <a href="#linky4" id="linky3">Things Men Will Do Instead of Going to Therapy</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/125812/87209821/bed.png" style="width:100%"><br>
 
@@ -185,111 +139,233 @@ Last updated: 07/08/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Lesser Known Facts About Cameron Diaz</a><br>
+## <a href="#linky5" id="linky4">24 Things People Shouldn’t Feel Proud Of</a><br>
 
-<span style="font-size:4em">1. Benji Madden, guitarist of Good Charlotte and husband to Cameron Diaz, has a tattoo on his buttcheeks which, when spread, reveals an image of Jesus Christ blowing bubbles. - u/Mr_Swirly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210086.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Being cruel. My ex actually said, Yeah, I saw this guy in a pub yesterday who tried talking to us so I basically burned his stupid shirt for an hour lol, which is one of the main reasons I broke up with him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cameron Diaz announced her retirement from acting in 2016 and has not acted since her role in Annie in 2014. - u/albuhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210087.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Those IQ tests people share, but then dont know how to read their results. Had some guy just so proud that he was in the top 90%</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Paul McCartney, President Jimmy Carter, Cameron Diaz, Mick Jagger, Steve Martin, Fidel Castro, and Agatha Christie are/were all birdwatching enthusiasts. - u/ChanceGuest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210088.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Willful ignorance. Example: pride in not knowing how to do basic math.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cameron Diaz and Snoop Dogg used to go to the same high school - u/Spawnacus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210089.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My dad, a father of 7, brags that hes never changed a diaper. Like, congratulations on being no help?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Cameron Diaz was all set to star as Sonya Blade in the 1995 Mortal Kombat movie, until she broke her wrist before filming began and she had to be replaced by Bridgette Wilson-Sampras - u/fumblebuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210090.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I’m proud of myself, I haven’t cheated in a while.” Me: “It’s been 2 months and I’m not proud of you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Cameron Diaz bought weed from Snoop Dogg in High School. - u/Justdandy325</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210091.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. That their dog weighs so much but really its an obese sausage with legs who cant even take three steps without running out of breath.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. One of the brothers from Good Charlotte married Nicole Richie and the other married Cameron Diaz. - u/agentorange4tang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210092.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Long commute times and working hours.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Jackie Chan, Carrie Fisher, Cameron Diaz, Sylvester Stallone starred in Porn. - u/123choji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210093.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Teachers being proud that their classes are hard and their students are always failing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Actress Cameron Diaz hasnt used deodorant in 20 years and believes men wouldnt need to if they just trimmed a little. - u/GizmosArrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210094.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Teens who think that are gangsters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cameron Diaz has OCD and opens doorknobs using her elbows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210095.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Followers. Internet clout.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Will Smith claims that Cameron Diaz lost the lead role opposite him in the movie Hitch because producers were worried about the nations problem of seeing a black man and a white woman getting intimate. So, Cuban-American Eva Mendes was cast instead. - u/Reagansmash1994</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210096.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Brand loyalty. If youre not getting paid to exclusively use Apple, Samsung, Sony, Nintendo, Nike, Adidas, Chanel then why are you going so a hard for them?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cameron Diaz hasnt had a movie thats gotten good reviews since the 2005 film In her Shoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210097.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Not reading books. Actually boasting about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Once, the highest grossing Actor of all time was Tom Hanks. The highest grossing Actress was Cameron Diaz.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210098.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I grew up in a rural/country area, and I struggle to find the word to describe it, but that kind of country snobbery where people brag about being too good to do things that people who are too good for simple things do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Cameron Diazs first appearance as an actress was in The Mask with Jim Carey - u/JazzWolf44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210099.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The amount of drinking they do, and sex they have.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Cameron Diaz was considered for the role of Bridget Jones - u/busmoswag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210100.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Holding or acquiring beliefs or opinions based on a single thing about yourself, to say you will or wont do something because its just the way its done. Supporting everything America does just because youre American. Supporting EVERYTHING a political party does because theyre your political party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Cameron Diaz sits atop of the list of actresses whose movies have made the most money at the worldwide box office, followed by Cate Blanchett and Helena Bonham Carter. - u/minc1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210101.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Not knowing something. I have a coworker who, whenever they saw me replacing the paper towels, would loudly and proudly declare they have never done that in the five years they worked there, and that they didn’t even know how. I was certain he thought it was some amazing, “Look how smart I am,” moment in his head, but all I could think of was, “I’d be embarrassed to not know something so basic, and certainly not proud to be that lazy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Nicole Richie has singer Lionel Richie (adoptive father), Sheila E. (biological aunt) & Cameron Diaz (sister-in-law) as part of her family. - u/laidbackcrusade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210102.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. How much of a jerk they can be.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Composer John Powell (who did the soundtrack for the Bourne movies) composed the music for Knight and Day, starring Tom Cruise and Cameron Diaz. - u/grovesprof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210103.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Not listening to experts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Many high-profile American celebrities (like Tommy Lee Jones, Cameron Diaz, Sylvester Stallone) have appeared in many Japanese commercials; some have become a spokesperson for a particular Japanese product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210104.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Fake mental illnesses. Depression/anxiety/OCD are not cute and quirky, they’re debilitating af to people who actually suffer them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Back in 1992, Cameron Diaz shot a softcore bondage video called Shes No Angel: Cameron Diaz - u/sedgwickave1520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210105.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Amount of weed they consume. - Noobie_DnD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Cheaters love talking about how many people they are with without their partner knowing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Drunk driving. They say it like it makes them a super cooool dude. Wait until you hit and kill a child and then see how cool you think you are.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Unearned wealth. Genetic assignments. Their place of origin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. How little sleep they got last night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210173.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">30 Cool Random Pics Packed to the Gills with Chill</a><br>
+## <a href="#linky6" id="linky5">The Hottest Facts About Cleopatra, History’s Hottest Woman</a><br>
 
-<span style="font-size:4em">1. Unamused cat is unamused with your antics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033244/87209256/87208679.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Cleopatra was the only Ptolemaic ruler to learn to read, write, and converse in Egyptian. She could also speak 7 languages.
+
+-u/kevlarbuns
+
+https://www.reddit.com/r/todayilearned/search/?q=cleopatra&restrict_sr=1&sr_nsfw=</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. We hope you had a great (and safe) 4th of July weekend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207274.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Some scholars believe Cleopatras own handwriting translating to Make it happen! appears at the end of a papyrus document granting financial rights to a Roman absentee landlord. The document is currently in the Egyptian Museum of Berlin.
+
+-u/nelirious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207262.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Pharaonic Period of Ancient Egypt lasted 3 Millennia. The timespan between the 1st Pharaoh of a Unified Egypt, Narmer, & the last Pharaoh of Egypt, Cleopatra VII was over 3,000 years.
+
+-u/GenericReditUserName</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033256/87209258/87205564.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Cleopatra often used clever stagecraft to woo potential allies. For example, when she met Mark Antony, she arrived on a golden barge made up to look like the goddess Aphrodite. Antony, who considered himself the embodiment of Dionysus, was instantly enchanted.
+
+-u/The_Internet_Author</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207264.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The famous sculpture Sleeping Ariadne was mistakenly identified as a sculpture of Cleopatra for a long time due to the snake bracelet worn by the subject.
+
+-u/vedvineet98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6.  Now this looks both amazing and delicious!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033258/87209259/87208698.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Julius Caesar and Cleopatra were in a relationship and political alliance. Julius Caesar needed Cleopatras money, and Cleopatra needed the help of Caesars army to take control of Egypt from her husband/brother Ptolemy XIII.
+
+-u/Upbeat_Analyst_3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207268.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In 1917, a film named Cleopatra was released. Years later, the film was destroyed in a fire in 1937. Today, only 17 seconds of the 2-hour film remain.
+
+-u/dennismarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207269.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The tomb of Cleopatra and Mark Antonys only daughter, Cleopatra Selene II, is located in Algeria. Brought to Rome after her parents suicide, she later married Juba II, a Berber prince. Her tomb has been looted over the centuries and was once used by the French Navy for target practice.
+
+-u/trifletruffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207270.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 1881, an Egyptian obelisk named Cleopatras Needle was erected in NYCs Central Park. A capsule buried beneath holds the 1870 census, a Bible, a Webster’s Dictionary, the complete works of Shakespeare, a guide to Egypt, and a copy of the Declaration of Independence.
+
+-u/MusicSole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033247/87209257/87205565.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Cleopatra was one of the wealthiest women of all time. Her net worth today would be around $95.8 billion USD.
+
+-u/The-Angler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033307/87209260/87208702.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Although Cleopatra was born in Egypt, she wasnt necessarily Egyptian. Her family origins come from Macedonian Greece and Ptolemy I Soter, one of Alexander the Great’s generals.
+
+-u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033308/87209261/87208703.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Cleopatras fame as a beautiful seductive master was entirely made by Octavian as a way of explaining how this foreign queen managed to seduce two of Romes most powerful men, while being described as a beauty, she was best known for her intelligence and charm.
+
+-u/Pepestatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is one neighborhood watch group you dont want to test your luck with!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033318/87209262/87208771.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. To this day, the tomb of Cleopatra and Mark Antony has not been found.
+
+-u/zachar3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033320/87209263/87208775.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Cleopatra tested various deadly poisons on condemned people and concluded that the bite of the asp was the least terrible way to die.
+
+-u/gargolito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033329/87209264/87208783.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Julius Caesar’s only son, Caesarion, was the last Pharaoh of Egypt. Even though Cleopatra swears he is Caesar’s son, Caesar never officially acknowledged him.
+
+-u/MilindGoswami007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Onward my trusty steed!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041459/87209278/87205014.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Cleopatra claimed pickles made her beautiful.
+
+-u/jmestrin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033331/87209265/87208801.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Cleopatra had a special lipstick made for her, consisting of a crushed mixture of ants and deep red carmine beetles.
+
+-u/Drblackcobra</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033340/87209266/87208812.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Cleopatra lived closer in time to the lunar landing than the completion of the Great Pyramid. By 500 years!
+
+-u/PapaMarquezo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210409.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033341/87209267/87208820.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The Egyptians, not Julius Caesar, were the fathers of the modern calendar. The Roman calendar was lunar and had 355 days. Egyptians knew it was 365 days because the Nile would peak on the same day each year. Caesar learned this from his affair with Cleopatra and created the Julian calendar.
+
+-u/jimngo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Thanks... I hate it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041353/87209269/87204544.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Cleopatra took baths in donkey milk to preserve her youthful skin, with legend saying it took 700 donkeys to supply the milk.
+
+-u/zepphiu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Looks like this plane literally  laughed it ass off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041404/87209270/87204537.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Cleopatra and Mark Antony formed their own drinking club in 41 B.C. and were known to take part in elaborate games and contests and to walk the streets of Alexandria in disguise, pranking the residents.
+
+-u/ObsceneGlabella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210412.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041416/87209271/87204562.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Due to inbreeding amongst the Ptolemies, Cleopatra had only two pairs of great-grandparents. One of those pairs was the son and daughter of the other.
+
+-u/zomskii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. This is cool and all, but how the heck do you see while driving?!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041427/87209272/87204973.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Despite the story that Cleopatra killed herself by letting an asp bite her, it was more probable that she killed herself using a mixture of opium and hemlock.
+
+-u/thr33beggars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041436/87209273/87204972.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Julius Caesar and Cleopatra had a child together name Caesarion, which translates to little caesar.
+
+-u/Dangerrios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210415.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041438/87209274/87204975.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">26. Tell me you have more money than you know what to do with, without actually telling me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041447/87209275/87204981.jpg" style="width:100%"><br>
+## <a href="#linky7" id="linky6">20 Rare Facts You're Unlikely to Have Heard Before</a><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041448/87209276/87204994.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The nuke stockpile in Washington State is guarded by trained dolphins that seek out and clamp a balloon on unfamiliar divers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/123439/87209818/obscurefacts9.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207265.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Cultured bits of brain matter always try to grow an eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104630/87209752/obscurefacts1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041458/87209277/87205000.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Boanthropy is a psychological disorder in which a person believes they are a cow and tries to live their life as one. Medical explanations suggest late-stage syphilis as one of the causes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104650/87209754/obscurefacts4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041509/87209279/87205017.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. If humming birds don’t eat within an hour they might die from starvation, they feed from nectar every 15-20 minutes. The only exception to the rule is that at night, they get into a state called torpor which is similar to the way bears hibernate. They do this every night, they lower their body temperature, their heart rate goes down from like 1200 beats per minute to less than a 100 and they shut down their kidneys so they don’t die from dehydration.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104619/87209751/obscurefacts3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Rabies kills around 60,000 people globally every year. To date, only 14 people worldwide have been known to recover after developing symptoms.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104654/87209755/obscurefacts6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Your immune system doesn’t know your eyes exist. They have immune privilege to avoid inflammation in case of trauma.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104701/87209756/obscurefacts7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. More pigeons have war medals than horses, dogs or mules.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104723/87209760/obscurefacts12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I dont think most people know the meaning of prodigal. They know the parable of The Prodigal Son and think it refers to someone that leaves and then has to come crawling back, but thats incorrect. Prodigal means to spend money lavishly or wastefully. The prodigal son was prodigal whether or not he ever went back to his father.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104608/87209750/obscurefacts2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The girl who voiced Lilo in Lilo and Stitch also played Samara in The Ring, both released in the same year (2002).</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104712/87209758/obscurefacts10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Crabs commit suicide when gravely injured by pinching their own brains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104642/87209753/obscurefacts5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The same computer software used for the CGI in “Jurassic Park” was used to make the sprites for “Donkey Kong” country.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104716/87209759/obscurefacts11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Before being born, two of the four chambers of a babys heart are not used, theyre actually bypassed! Theres no need to pump deoxygenated blood to the lungs when in the womb, because the lungs arent breathing air yet, and so are not supplying oxygen. All the oxygen comes from the umbilical cord.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104727/87209761/obscurefacts13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Greater one-horned rhino or Great Indian rhinoceros population stands at around 3,700 individuals, a significant increase from around 200 remaining at the turn of the 20th century. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104734/87209762/obscurefacts14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Raindrops don’t fall in the drip shape popularly conveyed. They fall in the shape of tiny parachutes or hamburger buns.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104739/87209763/obscurefacts15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Dutch national color is Orange but the flag is red white and blue stripes only because the dye they used for orange faded fast at sea, while red did not.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104746/87209764/obscurefacts16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Pill bugs are crustaceans, like crabs or lobsters, that’s why they are always in the dampest places.  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104750/87209765/obscurefacts17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The moon has an atmosphere. However, it is so thin that its considered to be an exosphere.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104757/87209766/obscurefacts18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. They increased the rank of pigeons during WW1 so they could punish soldiers for eating a fellow soldier of higher rank. Cant have the soldiers eating the carrier pigeons!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104705/87209757/obscurefacts8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. There was a man, Angus Barbieri who didnt eat for 382 days. He was morbidly obese and lived on tea, water, soda water and coffee while visiting the hospital weekly for vitamin and electrolyte treatments. He lost close to 280 lbs and broke his fast with an egg once he met his goal weight.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104800/87209767/obscurefacts19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A quarter has 119 ridges. 118 on a dime.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/104809/87209768/obscurefacts20.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">Customer Mistaken for Interviewee Reveals Managers Breaking the Law</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100658/87209730/one.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100730/87209731/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100847/87209732/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/100924/87209733/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101006/87209734/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101052/87209736/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101150/87209737/seven.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101231/87209738/eight.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101351/87209739/nine.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101436/87209742/ten.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101518/87209743/eleven.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101815/87209744/twelve.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101858/87209745/thirt.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/101950/87209746/final.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -369,41 +445,67 @@ Last updated: 07/08/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">17 People Who Did Not Need to Leave a Comment</a><br>
+## <a href="#linky10" id="linky9">30 Cool Random Pics Packed to the Gills with Chill</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Unamused cat is unamused with your antics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033244/87209256/87208679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. We hope you had a great (and safe) 4th of July weekend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033256/87209258/87205564.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
+<span style="font-size:4em">6.  Now this looks both amazing and delicious!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033258/87209259/87208698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033247/87209257/87205565.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033307/87209260/87208702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033308/87209261/87208703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. This is one neighborhood watch group you dont want to test your luck with!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033318/87209262/87208771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033320/87209263/87208775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033329/87209264/87208783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Onward my trusty steed!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041459/87209278/87205014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033331/87209265/87208801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033340/87209266/87208812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033341/87209267/87208820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Thanks... I hate it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041353/87209269/87204544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Looks like this plane literally  laughed it ass off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041404/87209270/87204537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041416/87209271/87204562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. This is cool and all, but how the heck do you see while driving?!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041427/87209272/87204973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041436/87209273/87204972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041438/87209274/87204975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Tell me you have more money than you know what to do with, without actually telling me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041447/87209275/87204981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041448/87209276/87204994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041458/87209277/87205000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041509/87209279/87205017.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
