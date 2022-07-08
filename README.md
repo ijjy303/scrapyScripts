@@ -1,45 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/08/2022-02:47:19
+Last updated: 07/08/2022-03:47:18
 <br>
-## <a href="#linky2" id="linky1">17 People Who Did Not Need to Leave a Comment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">36 Radical Randoms Wrangled from the Web</a><br>
+## <a href="#linky2" id="linky1">36 Radical Randoms Wrangled from the Web</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206660.jpg" style="width:100%"><br>
 
@@ -112,6 +74,56 @@ Last updated: 07/08/2022-02:47:19
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092939/87209721/87207317.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092638/87209700/87201623.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208550.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208555.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208567.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208569.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -211,7 +223,37 @@ Last updated: 07/08/2022-02:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">13 Things that are Much Simpler When Done the Right Way</a><br>
+## <a href="#linky6" id="linky5">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">13 Things that are Much Simpler When Done the Right Way</a><br>
 
 <span style="font-size:4em">1. The most common way to hold a coffee cup is by the handle. But by holding the cup in this way, there is a higher chance that it will spill on your clothes when walking. To avoid this, the best way to hold a coffee mug is to grab it from above with your fingers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207030.jpg" style="width:100%"><br>
 
@@ -241,103 +283,7 @@ Last updated: 07/08/2022-02:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208550.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208555.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208567.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208569.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208571.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
-
-<span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Fox Network and Comedy Central both passed on early Lonely Island TV series pitches.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031254/87209236/cc.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The hit theme from The LEGO Movie was performed by Tegan and Sara, and written by the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031306/87209237/aweseome.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Beck Bennett AT&T commercials were directed by fellow SNL alum, Jorma Taccone of the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031313/87209238/beckcomm.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dick in a Box featuring Justin Timberlake actually won an Emmy award for Outstanding Original Music and Lyrics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031318/87209239/dick.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Jorma is clearly getting some acting work, as he also portrayed Cha-ka in Land of the Lost.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031324/87209240/chakajorma.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The poster of Poseidon in the Im on a Boat video is actually the same photograph from Age of Mythology.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031433/87209252/tpain.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. They were nominated for a Razzie for Grown Ups 2. The award was for worst on-screen combo and went to the entire cast of the movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031329/87209241/grown2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Jimmy Fallon pitched The Lonely Island to Lorne Michaels after they wrote for the 2005 MTV Movie Awards which Fallon hosted.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031336/87209242/jimmy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Jorma actually played the role of Hitler in the movie Kung Fury.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031340/87209243/jormahitler.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Julian Casablancas, mostly known as the lead singer/guitarist for The Strokes, has also worked with Queens of the Stone Age, and you guessed it...The Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031347/87209244/julian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. While shooting a pilot in 2000, Kiefer Sutherland just happened to be walking by. The scene they were filming was an elderly woman being mugged, and Sutherland didnt realize it was just a Lonely Island sketch. He stepped in and tried to help the woman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031351/87209245/keef.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In the clean version of the song Jizz in my Pants the word Jizz has been replaced by the sound of men orgasming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031358/87209246/jizz.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Jorma Taccone directed the MacGruber movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031402/87209247/macjorma.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Popstar: Never Stop Stopping holds a certified fresh 79% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031409/87209248/popstar79.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Lonely Islands Like a Boss is a direct parody of Slim Thugs song by the exact same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031413/87209249/slimthug.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The trio all went to the same high school together, then parted ways in college but never lost touch.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031422/87209250/schoo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Jorma Taccone and Andy Samberg both worked as production assistants on the show Spin City.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031424/87209251/spin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. They are the official creative directors of ROKK Vodka.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031435/87209253/vodka.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">25 Staggering Facts About the Cold War</a><br>
+## <a href="#linky8" id="linky7">25 Staggering Facts About the Cold War</a><br>
 
 <span style="font-size:4em">1. Today I learned about Americas Cold War doomsday weapon, SLAM. It was a nuclear-powered cruise missile that would have dropped nuclear bombs at predetermined locations while releasing radiation from its unshielded reactor and then crashed into an area when it was finished.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208584.jpg" style="width:100%"><br>
 
@@ -391,33 +337,87 @@ Last updated: 07/08/2022-02:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
+## <a href="#linky9" id="linky8">17 People Who Did Not Need to Leave a Comment</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207984.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207985.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207986.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207987.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207988.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207989.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207990.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207991.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207992.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207993.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207994.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207995.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
+
+<span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Fox Network and Comedy Central both passed on early Lonely Island TV series pitches.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031254/87209236/cc.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The hit theme from The LEGO Movie was performed by Tegan and Sara, and written by the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031306/87209237/aweseome.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The Beck Bennett AT&T commercials were directed by fellow SNL alum, Jorma Taccone of the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031313/87209238/beckcomm.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Dick in a Box featuring Justin Timberlake actually won an Emmy award for Outstanding Original Music and Lyrics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031318/87209239/dick.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Jorma is clearly getting some acting work, as he also portrayed Cha-ka in Land of the Lost.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031324/87209240/chakajorma.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The poster of Poseidon in the Im on a Boat video is actually the same photograph from Age of Mythology.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031433/87209252/tpain.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. They were nominated for a Razzie for Grown Ups 2. The award was for worst on-screen combo and went to the entire cast of the movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031329/87209241/grown2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Jimmy Fallon pitched The Lonely Island to Lorne Michaels after they wrote for the 2005 MTV Movie Awards which Fallon hosted.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031336/87209242/jimmy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Jorma actually played the role of Hitler in the movie Kung Fury.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031340/87209243/jormahitler.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Julian Casablancas, mostly known as the lead singer/guitarist for The Strokes, has also worked with Queens of the Stone Age, and you guessed it...The Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031347/87209244/julian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. While shooting a pilot in 2000, Kiefer Sutherland just happened to be walking by. The scene they were filming was an elderly woman being mugged, and Sutherland didnt realize it was just a Lonely Island sketch. He stepped in and tried to help the woman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031351/87209245/keef.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In the clean version of the song Jizz in my Pants the word Jizz has been replaced by the sound of men orgasming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031358/87209246/jizz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Jorma Taccone directed the MacGruber movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031402/87209247/macjorma.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Popstar: Never Stop Stopping holds a certified fresh 79% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031409/87209248/popstar79.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Lonely Islands Like a Boss is a direct parody of Slim Thugs song by the exact same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031413/87209249/slimthug.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The trio all went to the same high school together, then parted ways in college but never lost touch.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031422/87209250/schoo.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Jorma Taccone and Andy Samberg both worked as production assistants on the show Spin City.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031424/87209251/spin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. They are the official creative directors of ROKK Vodka.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031435/87209253/vodka.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
