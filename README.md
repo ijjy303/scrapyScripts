@@ -1,49 +1,67 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/08/2022-08:47:25
+Last updated: 07/08/2022-08:57:03
 <br>
-## <a href="#linky2" id="linky1">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
+## <a href="#linky2" id="linky1">30 Cool Random Pics Packed to the Gills with Chill</a><br>
 
-<span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Unamused cat is unamused with your antics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033244/87209256/87208679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Fox Network and Comedy Central both passed on early Lonely Island TV series pitches.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031254/87209236/cc.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. We hope you had a great (and safe) 4th of July weekend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The hit theme from The LEGO Movie was performed by Tegan and Sara, and written by the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031306/87209237/aweseome.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The Beck Bennett AT&T commercials were directed by fellow SNL alum, Jorma Taccone of the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031313/87209238/beckcomm.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033256/87209258/87205564.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Dick in a Box featuring Justin Timberlake actually won an Emmy award for Outstanding Original Music and Lyrics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031318/87209239/dick.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Jorma is clearly getting some acting work, as he also portrayed Cha-ka in Land of the Lost.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031324/87209240/chakajorma.jpg" style="width:100%"><br>
+<span style="font-size:4em">6.  Now this looks both amazing and delicious!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033258/87209259/87208698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The poster of Poseidon in the Im on a Boat video is actually the same photograph from Age of Mythology.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031433/87209252/tpain.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. They were nominated for a Razzie for Grown Ups 2. The award was for worst on-screen combo and went to the entire cast of the movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031329/87209241/grown2.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Jimmy Fallon pitched The Lonely Island to Lorne Michaels after they wrote for the 2005 MTV Movie Awards which Fallon hosted.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031336/87209242/jimmy.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Jorma actually played the role of Hitler in the movie Kung Fury.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031340/87209243/jormahitler.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033247/87209257/87205565.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Julian Casablancas, mostly known as the lead singer/guitarist for The Strokes, has also worked with Queens of the Stone Age, and you guessed it...The Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031347/87209244/julian.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033307/87209260/87208702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. While shooting a pilot in 2000, Kiefer Sutherland just happened to be walking by. The scene they were filming was an elderly woman being mugged, and Sutherland didnt realize it was just a Lonely Island sketch. He stepped in and tried to help the woman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031351/87209245/keef.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033308/87209261/87208703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In the clean version of the song Jizz in my Pants the word Jizz has been replaced by the sound of men orgasming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031358/87209246/jizz.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. This is one neighborhood watch group you dont want to test your luck with!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033318/87209262/87208771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Jorma Taccone directed the MacGruber movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031402/87209247/macjorma.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033320/87209263/87208775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Popstar: Never Stop Stopping holds a certified fresh 79% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031409/87209248/popstar79.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033329/87209264/87208783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The Lonely Islands Like a Boss is a direct parody of Slim Thugs song by the exact same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031413/87209249/slimthug.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Onward my trusty steed!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041459/87209278/87205014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The trio all went to the same high school together, then parted ways in college but never lost touch.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031422/87209250/schoo.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033331/87209265/87208801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Jorma Taccone and Andy Samberg both worked as production assistants on the show Spin City.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031424/87209251/spin.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033340/87209266/87208812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. They are the official creative directors of ROKK Vodka.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031435/87209253/vodka.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033341/87209267/87208820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Thanks... I hate it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041353/87209269/87204544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Looks like this plane literally  laughed it ass off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041404/87209270/87204537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041416/87209271/87204562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. This is cool and all, but how the heck do you see while driving?!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041427/87209272/87204973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041436/87209273/87204972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041438/87209274/87204975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Tell me you have more money than you know what to do with, without actually telling me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041447/87209275/87204981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041448/87209276/87204994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041458/87209277/87205000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041509/87209279/87205017.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -167,67 +185,41 @@ Last updated: 07/08/2022-08:47:25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">30 Cool Random Pics Packed to the Gills with Chill</a><br>
+## <a href="#linky5" id="linky4">17 People Who Did Not Need to Leave a Comment</a><br>
 
-<span style="font-size:4em">1. Unamused cat is unamused with your antics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033244/87209256/87208679.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. We hope you had a great (and safe) 4th of July weekend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207274.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207262.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033256/87209258/87205564.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207264.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6.  Now this looks both amazing and delicious!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033258/87209259/87208698.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207268.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207269.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207270.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033247/87209257/87205565.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033307/87209260/87208702.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033308/87209261/87208703.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is one neighborhood watch group you dont want to test your luck with!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033318/87209262/87208771.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033320/87209263/87208775.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033329/87209264/87208783.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Onward my trusty steed!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041459/87209278/87205014.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033331/87209265/87208801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033340/87209266/87208812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/033341/87209267/87208820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Thanks... I hate it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041353/87209269/87204544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Looks like this plane literally  laughed it ass off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041404/87209270/87204537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041416/87209271/87204562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. This is cool and all, but how the heck do you see while driving?!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041427/87209272/87204973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041436/87209273/87204972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041438/87209274/87204975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Tell me you have more money than you know what to do with, without actually telling me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041447/87209275/87204981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041448/87209276/87204994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87207265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041458/87209277/87205000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/041509/87209279/87205017.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -293,41 +285,49 @@ Last updated: 07/08/2022-08:47:25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">17 People Who Did Not Need to Leave a Comment</a><br>
+## <a href="#linky8" id="linky7">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Fox Network and Comedy Central both passed on early Lonely Island TV series pitches.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031254/87209236/cc.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The hit theme from The LEGO Movie was performed by Tegan and Sara, and written by the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031306/87209237/aweseome.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The Beck Bennett AT&T commercials were directed by fellow SNL alum, Jorma Taccone of the Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031313/87209238/beckcomm.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Dick in a Box featuring Justin Timberlake actually won an Emmy award for Outstanding Original Music and Lyrics.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031318/87209239/dick.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Jorma is clearly getting some acting work, as he also portrayed Cha-ka in Land of the Lost.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031324/87209240/chakajorma.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The poster of Poseidon in the Im on a Boat video is actually the same photograph from Age of Mythology.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031433/87209252/tpain.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. They were nominated for a Razzie for Grown Ups 2. The award was for worst on-screen combo and went to the entire cast of the movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031329/87209241/grown2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Jimmy Fallon pitched The Lonely Island to Lorne Michaels after they wrote for the 2005 MTV Movie Awards which Fallon hosted.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031336/87209242/jimmy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Jorma actually played the role of Hitler in the movie Kung Fury.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031340/87209243/jormahitler.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Julian Casablancas, mostly known as the lead singer/guitarist for The Strokes, has also worked with Queens of the Stone Age, and you guessed it...The Lonely Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031347/87209244/julian.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. While shooting a pilot in 2000, Kiefer Sutherland just happened to be walking by. The scene they were filming was an elderly woman being mugged, and Sutherland didnt realize it was just a Lonely Island sketch. He stepped in and tried to help the woman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031351/87209245/keef.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In the clean version of the song Jizz in my Pants the word Jizz has been replaced by the sound of men orgasming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031358/87209246/jizz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Jorma Taccone directed the MacGruber movie.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031402/87209247/macjorma.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Popstar: Never Stop Stopping holds a certified fresh 79% on Rotten Tomatoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031409/87209248/popstar79.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The Lonely Islands Like a Boss is a direct parody of Slim Thugs song by the exact same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031413/87209249/slimthug.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The trio all went to the same high school together, then parted ways in college but never lost touch.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031422/87209250/schoo.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Jorma Taccone and Andy Samberg both worked as production assistants on the show Spin City.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031424/87209251/spin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. They are the official creative directors of ROKK Vodka.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031435/87209253/vodka.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
