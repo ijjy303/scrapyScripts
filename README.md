@@ -1,7 +1,83 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/07/2022-21:47:18
+Last updated: 07/07/2022-22:47:18
 <br>
-## <a href="#linky2" id="linky1">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
+## <a href="#linky2" id="linky1">36 Radical Randoms Wrangled from the Web</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092711/87209705/87202759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092839/87209716/87207291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092923/87209720/87207316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092850/87209717/87207297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092912/87209719/87207313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206687.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206690.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87206694.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092647/87209701/87201626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092650/87209702/87201629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092659/87209703/87201644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092701/87209704/87201647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092715/87209706/87202777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092722/87209707/87203640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092726/87209708/87203641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092733/87209709/87203648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092737/87209710/87203660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092744/87209711/87205262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092748/87209712/87205267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092755/87209713/87205278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092814/87209714/87205296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092828/87209715/87207290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092901/87209718/87207299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092939/87209721/87207317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/07/092638/87209700/87201623.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">21 Lonely Island Facts That Made Us J*zz in Our Pants</a><br>
 
 <span style="font-size:4em">1. The name Lonely Island originated from the trios old apartment nickname.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031243/87209235/apt.jpg" style="width:100%"><br>
 
@@ -44,60 +120,6 @@ Last updated: 07/07/2022-21:47:18
 <span style="font-size:4em">20. The movie The Watch was directed by Akiva Schaffer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/031446/87209254/watch.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">21. The song Lazy Sunday was written and recorded all in one night. They then borrowed a camera and shot the entire video in an afternoon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/06/051219/87209304/lazy.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">25 Staggering Facts About the Cold War</a><br>
-
-<span style="font-size:4em">1. Today I learned about Americas Cold War doomsday weapon, SLAM. It was a nuclear-powered cruise missile that would have dropped nuclear bombs at predetermined locations while releasing radiation from its unshielded reactor and then crashed into an area when it was finished.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The Icelandic government banned the stationing of black American soldiers in Iceland during the Cold War so as to protect Icelandic women and preserve a homogenous national body. After pressure from the US military, the ban was eventually lifted in the late 1960s.-u/OptimalProblemSolver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208585.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. In 1985, in the midst of the cold war, US President Ronald Reagan and USSR President Mikhail Gorbachev made a pact to put both their countries differences aside and have their militaries join as one if an alien invasion ever happened.-u/RingoStarAllies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The American Cold War-era stealth plane, the Lockheed SR-71, was made of 92% titanium. Most of this titanium was bought through shell companies directly from the USSR. Enough was supplied to build 32 planes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Helsinki, Finland was used to film many Cold War-era Hollywood movies when filming in the USSR was not possible. Examples include The Kremlin Letter (1970), Reds (1981), and Gorky Park (1983).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. To train new operatives during the Cold War, the Soviets built fully functional replicas of American towns. Their residents consisted of retired deep cover operatives who taught the trainees everything they needed to know about blending into American life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Philby, a high-ranking MI6 spy and chief liaison for American/British intelligence relations was actually a Soviet agent during WW2 and the Cold War. He betrayed John le le Carré which is why he left spying to become a writer. Tinker Tailor Soldier Spy was partly inspired by him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Today I learned of Vasili Mitrokhin, a KGB archivist who kept a vast collection of handwritten notes on top-secret files. When he defected to British Intelligence in 1992, he brought six trunks of notes with him that exposed most KGB activities in the West during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Lockheed U-2 spy plane, famous for conducting covert reconnaissance during the Cold War, is still in active service after 65 years, being used for military and scientific missions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. During the peak of the Cold War, one of the tasks given to Niel Armstrong was to place two Soviet medals on the moon to honor their fallen Soviet competitors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Over 600 fighter pilots of the Swedish Air Force were killed in training exercises during the duration of the Cold War. Eventually in the 1960s flight safety became a concern because aircraft became more expensive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Switzerland finally dismantled last Cold War-era explosives from a bridge leading to Germany. They built such defenses to protect the country in the time of invasion!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. After the Cold War, the United States paired some of its states with eastern European countries to help bolster their armies and assert their independence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Today I learned about Building 470, a seven-story steel and brick building used during the Cold War for small-scale production of biological warfare agents. It was hermetically sealed and negatively pressurized, with false windows to make it appear to be a barracks or office building.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. During the Space Race in the Cold War, the USSR already had a head start by having the first satellite launched into space, known as Sputnik I, and by the time the USA had launched its first successful satellite into space, known as Explorer I, the USSR had already launched Sputnik II.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The motto, In God We Trust, is not the original motto of the United States. During the Cold War, it was changed from E Pluribus Unum (from many, one) in an effort to differentiate the United States from atheistic communism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Today I learned about Project Dark Gene, a joint CIA and Iranian program during the Cold War to fly Iranian fighter jets piloted by Americans into Soviet airspace to test defenses. This resulted in multiple planes being shot down and deaths.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Ballet dancer Rudolf Nureyev was the first Soviet artist to defect to the West during the Cold War, when he eluded Soviet security men at the airport in Paris and requested asylum, while on a tour with the Soviet Kirov Ballet in France, on June 1961.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A man (Robert Ballard) that went looking for the Titanic was only using that as a cover for a secret Cold War US Navy mission. The mission was completed 12 days earlier than expected, so with the time he had left he looked, and he found it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The real-life inspiration for The Americans was not Cold War spies, but 10 Russian deep-cover agents captured in 2010; but the show creator was unimpressed by the publics lukewarm reaction to the case, and figured the story would make for better TV if set in the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. During the height of the Cold War, the US built an embassy in Moscow that was so riddled with eavesdropping equipment, by 1985 the building was abandoned after spending $136 million. Eventually, the embassy was taken apart brick by brick and rebuilt over 15 years at a cost of $240 million.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The US military secretly built a flying saucer named VZ-9 Avrocar during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Today I learned of Qian Xuesen, a Chinese rocket scientist and mathematician, who worked on the Manhattan Project during WW2 to help America build the worlds first atomic bomb. During the Cold War, he was accused of being a communist and fled America to China, where he helped China build its first atomic bomb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. During the Cold War, the USA tried to intimidate the Soviet Bloc by convincing them that then-president Richard Nixon was an unstable lunatic who was likely to lash out for no rational reason, based on the dubious madman theory of foreign policy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Soviet leader Nikita Khrushchev gifted US President John F Kennedy a dog called Pushinka during the Cold War. She later on had puppies; which Kennedy referred to as the pupniks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208608.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -227,45 +249,7 @@ Last updated: 07/07/2022-21:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">17 People Who Did Not Need to Leave a Comment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
+## <a href="#linky7" id="linky6">24 Dank Memes Approaching Radioactive Levels of Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87208548.png" style="width:100%"><br>
 
@@ -315,7 +299,99 @@ Last updated: 07/07/2022-21:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
+## <a href="#linky8" id="linky7">25 Staggering Facts About the Cold War</a><br>
+
+<span style="font-size:4em">1. Today I learned about Americas Cold War doomsday weapon, SLAM. It was a nuclear-powered cruise missile that would have dropped nuclear bombs at predetermined locations while releasing radiation from its unshielded reactor and then crashed into an area when it was finished.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The Icelandic government banned the stationing of black American soldiers in Iceland during the Cold War so as to protect Icelandic women and preserve a homogenous national body. After pressure from the US military, the ban was eventually lifted in the late 1960s.-u/OptimalProblemSolver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208585.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. In 1985, in the midst of the cold war, US President Ronald Reagan and USSR President Mikhail Gorbachev made a pact to put both their countries differences aside and have their militaries join as one if an alien invasion ever happened.-u/RingoStarAllies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The American Cold War-era stealth plane, the Lockheed SR-71, was made of 92% titanium. Most of this titanium was bought through shell companies directly from the USSR. Enough was supplied to build 32 planes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Helsinki, Finland was used to film many Cold War-era Hollywood movies when filming in the USSR was not possible. Examples include The Kremlin Letter (1970), Reds (1981), and Gorky Park (1983).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. To train new operatives during the Cold War, the Soviets built fully functional replicas of American towns. Their residents consisted of retired deep cover operatives who taught the trainees everything they needed to know about blending into American life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Kim Philby, a high-ranking MI6 spy and chief liaison for American/British intelligence relations was actually a Soviet agent during WW2 and the Cold War. He betrayed John le le Carré which is why he left spying to become a writer. Tinker Tailor Soldier Spy was partly inspired by him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Today I learned of Vasili Mitrokhin, a KGB archivist who kept a vast collection of handwritten notes on top-secret files. When he defected to British Intelligence in 1992, he brought six trunks of notes with him that exposed most KGB activities in the West during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Lockheed U-2 spy plane, famous for conducting covert reconnaissance during the Cold War, is still in active service after 65 years, being used for military and scientific missions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. During the peak of the Cold War, one of the tasks given to Niel Armstrong was to place two Soviet medals on the moon to honor their fallen Soviet competitors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Over 600 fighter pilots of the Swedish Air Force were killed in training exercises during the duration of the Cold War. Eventually in the 1960s flight safety became a concern because aircraft became more expensive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Switzerland finally dismantled last Cold War-era explosives from a bridge leading to Germany. They built such defenses to protect the country in the time of invasion!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. After the Cold War, the United States paired some of its states with eastern European countries to help bolster their armies and assert their independence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Today I learned about Building 470, a seven-story steel and brick building used during the Cold War for small-scale production of biological warfare agents. It was hermetically sealed and negatively pressurized, with false windows to make it appear to be a barracks or office building.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. During the Space Race in the Cold War, the USSR already had a head start by having the first satellite launched into space, known as Sputnik I, and by the time the USA had launched its first successful satellite into space, known as Explorer I, the USSR had already launched Sputnik II.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The motto, In God We Trust, is not the original motto of the United States. During the Cold War, it was changed from E Pluribus Unum (from many, one) in an effort to differentiate the United States from atheistic communism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Today I learned about Project Dark Gene, a joint CIA and Iranian program during the Cold War to fly Iranian fighter jets piloted by Americans into Soviet airspace to test defenses. This resulted in multiple planes being shot down and deaths.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Ballet dancer Rudolf Nureyev was the first Soviet artist to defect to the West during the Cold War, when he eluded Soviet security men at the airport in Paris and requested asylum, while on a tour with the Soviet Kirov Ballet in France, on June 1961.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A man (Robert Ballard) that went looking for the Titanic was only using that as a cover for a secret Cold War US Navy mission. The mission was completed 12 days earlier than expected, so with the time he had left he looked, and he found it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The real-life inspiration for The Americans was not Cold War spies, but 10 Russian deep-cover agents captured in 2010; but the show creator was unimpressed by the publics lukewarm reaction to the case, and figured the story would make for better TV if set in the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. During the height of the Cold War, the US built an embassy in Moscow that was so riddled with eavesdropping equipment, by 1985 the building was abandoned after spending $136 million. Eventually, the embassy was taken apart brick by brick and rebuilt over 15 years at a cost of $240 million.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The US military secretly built a flying saucer named VZ-9 Avrocar during the Cold War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Today I learned of Qian Xuesen, a Chinese rocket scientist and mathematician, who worked on the Manhattan Project during WW2 to help America build the worlds first atomic bomb. During the Cold War, he was accused of being a communist and fled America to China, where he helped China build its first atomic bomb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. During the Cold War, the USA tried to intimidate the Soviet Bloc by convincing them that then-president Richard Nixon was an unstable lunatic who was likely to lash out for no rational reason, based on the dubious madman theory of foreign policy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Soviet leader Nikita Khrushchev gifted US President John F Kennedy a dog called Pushinka during the Cold War. She later on had puppies; which Kennedy referred to as the pupniks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87208608.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">17 People Who Did Not Need to Leave a Comment</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87209067.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">Boss Makes Sick Employee Get Doctor’s Note, So They Do.</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/87207983.png" style="width:100%"><br>
 
