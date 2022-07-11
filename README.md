@@ -1,7 +1,51 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/11/2022-16:47:18
+Last updated: 07/11/2022-17:47:18
 <br>
-## <a href="#linky2" id="linky1">20 Lesser Known Facts About Cameron Diaz</a><br>
+## <a href="#linky2" id="linky1">20 Positive Facts That Are Also Disturbing</a><br>
+
+<span style="font-size:4em">1. A chicken lived without his head for 18 months.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. You did your best.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. One day youll never feel pain again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The most peaceful way to die is in your sleep, but you’ll go to sleep not knowing you’ll never see anything ever again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Either alien life exists, or we are totally alone in the universe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. People who are dying very often just have a sudden burst of energy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. While were losing a lot of forests in the tropics due to climate change, were actually gaining a lot of forest in the northern latitudes, and into formerly grassland areas, as more available CO2 allows them to grow in more arid regions. But habitat loss - like grasslands or tundra becoming forest - is arguably even harder on species than changes in weather patterns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. There are hundreds if not thousands of versions of you in the minds of other people, depending on how many people you have met in your life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. There will be a point in time where humans go extinct. We wont experience it but our future generations will see the “end of the world.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Most people dont die of old age.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This too shall pass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. You’re statistically more likely to die in a car crash on the way to the airport than you are in a plane crash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. You never truly know what anyone really thinks about you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When youre sick, youre supposed to do drugs and stay out of school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. You might be just like your parents when you have kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. CPS is returning a child to their family. And it’s often by far the worst thing that could happen to that child</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Death isnt the worst thing that can happen to you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Who you are is not who others perceive you to be, since no one can ever truly know who you are and how you think, to the point that if you ever lost your memories, no one would be able to describe you fully to you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I was at a bbq yesterday and my uncle told me, “think about it, one day you went outside to play with your friends for the last time and didn’t even know it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The idea that who we are is not who we used to be, nor who we will be. Both literally and figuratively, considering our cells are constantly dying and recycling. Every 7ish years you have a new body and because our minds are ever expanding and learning new things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210336.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">20 Lesser Known Facts About Cameron Diaz</a><br>
 
 <span style="font-size:4em">1. Benji Madden, guitarist of Good Charlotte and husband to Cameron Diaz, has a tattoo on his buttcheeks which, when spread, reveals an image of Jesus Christ blowing bubbles. - u/Mr_Swirly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210086.jpg" style="width:100%"><br>
 
@@ -45,133 +89,7 @@ Last updated: 07/11/2022-16:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Gym Influencer Commands Guy to Stop Mid-Workout So She Can Film a Video</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112054/87210845/ONE.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112116/87210849/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112105/87210847/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112052/87210844/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112043/87210843/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112115/87210848/six.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112103/87210846/seven.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">20 Best Jack Black Memes Of All Time</a><br>
-
-<span style="font-size:4em">1. Actually, Jack Black can play a mythologically accurate Thor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210045.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There are too many Jack Blacks in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Jacked Jack Black Playing Black Jack With Black Jack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210047.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. The respect is mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Jack Black wins, easy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I am someone of a photo-editor myself. - Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Gotta say the meme has a point.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Facts!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. That Black Jack Black image is truly a masterpiece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210049.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Well, Elon Musk can be added alongside Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. He wrote this for Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Well, no wonder the kid was sent to hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The meme has returned and it is better than ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If you had to describe Jack Black and the chaotic energy his personality brings, it would be this meme.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210063.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">30 Behind-The-Scenes Photos From Popular Movies</a><br>
-
-<span style="font-size:4em">1. Julia Roberts takes over for director Garry Marshall on camera for Pretty Woman (1990).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jack Nicholson and director/writer/producer Stanley Kubrick have no fear on the set of The Shining (1980).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Meanwhile, Michael Jordan doesnt need any movie magic for his basketball skills in Space Jam (1996).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. And director Ryan Coogler doesnt mind squatting for a chat with Chadwick Boseman while shooting Black Panther (2018). (TChalla in a hoodie?! He looks so comfy!!!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And director Jon M. Chu sets up the big party entrance scene with Awkwafina on the set of Crazy Rich Asians (2018).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Here we see co-directors/writers Daniel Kwan and Daniel Scheinert (collectively, the Daniels) chatting about a multitude of multiverses on the set of Everything Everywhere All At Once (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Jack Reynor, director Ari Aster, and Florence Pugh feel out some floral settings while filming Midsommar (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Director Chris Columbus uses his ~magic~ to reposition Daniel Radcliffe and Maggie Smith while shooting Harry Potter and the Sorcerers Stone (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. And director/writer Sam Raimi chats with Tobey Maguire and Kirstin Dunst on a New York City rooftop while shooting Spider-Man (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Director Steven Spielberg gives some very important notes on how to dinosaur to a dinosaur on the set of The Lost World: Jurassic Park (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Director Greta Gerwig and Saoirse Ronan pose identically on the set of Lady Bird (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Kiera Knightly listens intently while director Joe Wright plans his next shot in Pride & Prejudice (2005) — and, lets be real, hes probably talkin a little trash about Mr. Darcy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Tom Holland stands on a big, comfy-looking mat, listening to director Ruben Fleischer on the set of Uncharted (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Florence Pugh prepares to take flight(?) on the set of Black Widow (2020).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Speaking of flight, Keanu Reeves and Hugo Weaving both appear to have a fight AND flight response while filming for The Matrix (1999).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Director Steven Spielberg poses for a very handsome portrait with Captain Hook (Dustin Hoffman) on the set of Hook (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Kate Winslet and Leonardo DiCaprio stare while director James Cameron points to something on set of Titanic (1997). I love Kates face here because it 100% looks like James is a time-traveller sent back in time to tell her some hot gossip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Meanwhile, director Peter Jackson looks like a multiverse hopper come to warn Legolas (Orlando Bloom) about the dangers of not wearing sun protection on the set of The Lord of the Rings: The Two Towers (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. And director Jordan Peele isnt afraid to get up close and personal with Red (Lupita Nyongo) while filming Us (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Brandy Norwood looks every part a princess behind the scenes, too, while filming Rodgers & Hammersteins Cinderella (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Charlize Theron chats up director George Miller while sweatin it out in the desert during Mad Max: Fury Road (2015).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Director James Cameron chills with the Terminator (Arnold Schwarzenegger) and John Connor (Edward Furlong) while filming Terminator II: Judgement Day (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Clive Barker chilling with his sick-lookin cenobites on the set of Hellraiser (1987). Honestly? Squad goals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Oh, did I say squad goals?! Heres Ernie Hudson, Harold Ramis, director Ivan Reitman, Dan Aykroyd, and Bill Murray posing by their beloved car on the set of Ghostbusters II (1989).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Director George Lucas looks on while Ian McDiarmid and Samuel L. Jackson practice their laser sword duels on the set of Star Wars: Episode III — Revenge of the Sith (2005).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Heath Ledgers Joker gets a mid-day touch-up from make-up artist John Caglione Jr. while shooting The Dark Knight (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Did someone say knight?! Heres director David Lowery taking a moment to instruct Ralph Ineson and Dev Patel on the set of The Green Knight (2021). Im obsessed with how casual this tree man looks here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. And behind-the scenes pics arent just for live action movies! Heres artist Mark Henn as he works on a sketch of Belle while animating Beauty and the Beast (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. And Eddie Murphy getting into voicing Donkey in the recording sessions for Shrek (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Last, but certainly not least: Cate Blanchett looks on as director Taika Waititi shows her some shots on set of Thor: Ragnarok (2017). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207880.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">32 Pics and Memes It’s Hard to Argue With</a><br>
+## <a href="#linky4" id="linky3">32 Pics and Memes It’s Hard to Argue With</a><br>
 
 <span style="font-size:4em">1. Youll never have to eat again!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034357/87211089/technicallythetruth2.png" style="width:100%"><br>
 
@@ -234,6 +152,180 @@ Last updated: 07/11/2022-16:47:18
 <span style="font-size:4em">30. Thats suspicious. Well have to triangulate his position. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034814/87211119/technicallythetruth31.png" style="width:100%"><br>
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034818/87211120/technicallythetruth32.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">12 Useful Details Many People Never Noticed</a><br>
+
+<span style="font-size:4em">1. Most toothbrushes have colored bristles not just for design purposes but also as a helpful indicator that your brush is already too worn out to use. Once the vibrance fades and the fibers thin out, it’s time to switch it out for a new one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. One weird car feature you may have seen is the small circular plastic button found on seatbelts. This may just appear to be part of the design, but it actually prevents the buckle from slipping and gives more length to the strap to keep the driver and passengers secured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Aside from the aesthetic it provides, brass, copper, and other alloy doorknobs are perfect examples of antimicrobial surfaces. These types of handles eliminate a wide range of harmful microbes within almost 2 hours compared to their stainless steel and glass counterparts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The metal mesh we see on our microwave doors has another purpose, far from being a decorative element. Tiny holes help us take a peek at our food while it’s being heated, keeping us unharmed from radiation as we watch our meal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The bumps we see on the bottoms of our favorite soda bottles are not solely made for marketing purposes. In fact, they are designed to bounce back pressure inside carbonated drinks. They also provide stability and are made much thicker compared to their upper part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. It is widely known that the hook at the end of a measuring tape is used to grab onto the edges of the object we’re trying to assess. However, its hole enables us to do more than just the fringes. It’s there to accommodate the head of a nail or a screw so that you can do handiwork yourself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Another safety feature of cars is the seemingly unnoticeable toggle underneath the rearview mirror. Its purpose may seem vague at first, but once pushed, it can help block bright beams while you’re driving at night by adjusting the angle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211441.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. These brushes are not for cleaning your shoes — they are much more important than that. They act as shields between you and the edges of the escalator, minimizing accidents, such as stuck clothes or wedged accessories.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The famous takeout containers are actually carefully designed with patented packaging featuring many uses. Aside from being environmentally friendly, it can be used as a bowl, a makeshift plate, and a microwaveable box to be stored in the fridge and heated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211443.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Do you ever wonder why our coffee or juice cups have that distinct concave look on their lids? They are meant to hold your drink, and the slides prevent it from spilling on surfaces. In short, it’s a to-go coaster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Aside from carrying our groceries and little ones with us, the metal rails on our supermarket carts are designed to take care of much more. The hoops near the handle are for hanging shopping bags with fragile goods, such as eggs and bread, inside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Are you about to fill your tank, but have no clue which lane in the gas station to pull into? Search for the fuel indicator symbol on your dashboard. There, look for the arrow and see where it’s pointing. The direction to where it points is where your gas cap is located.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211444.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Monday Morning Randomness User Edition - Broncofan</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103246/87212013/87133530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103204/87212006/87106946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211722.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103215/87212008/87106952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211694.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211707.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211709.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211710.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211711.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211712.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211721.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211728.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102923/87211980/87073835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102935/87211981/87073843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102947/87211982/87076228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102954/87211983/87073828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102958/87211984/87076231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103005/87211985/87076232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103009/87211986/87076237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103017/87211987/87076249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103020/87211988/87076251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103029/87211989/87079511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103033/87211990/87079521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103040/87211991/87079526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103045/87211992/87079529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103051/87211993/87079535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103056/87211994/87079537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103104/87211995/87079539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103108/87211996/87080021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103115/87211997/87080028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103119/87211998/87080036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103127/87211999/87080037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103130/87212000/87080046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103138/87212001/87091000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103141/87212002/87091008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103149/87212003/87091012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103152/87212004/87091013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103200/87212005/87106940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103211/87212007/87106950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103222/87212009/87106958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103226/87212010/87106959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103233/87212011/87106960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103238/87212012/87106967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103250/87212014/87133549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103316/87212017/87201639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103406/87212019/87202750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103419/87212020/87202753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103606/87212021/87202754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103807/87212022/87202770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104007/87212023/87202772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104816/87212025/87201628.png" style="width:100%"><br>
+
+<span style="font-size:4em">71. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104828/87212026/87201636.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -499,269 +591,7 @@ Last updated: 07/11/2022-16:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">12 Useful Details Many People Never Noticed</a><br>
-
-<span style="font-size:4em">1. Most toothbrushes have colored bristles not just for design purposes but also as a helpful indicator that your brush is already too worn out to use. Once the vibrance fades and the fibers thin out, it’s time to switch it out for a new one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. One weird car feature you may have seen is the small circular plastic button found on seatbelts. This may just appear to be part of the design, but it actually prevents the buckle from slipping and gives more length to the strap to keep the driver and passengers secured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Aside from the aesthetic it provides, brass, copper, and other alloy doorknobs are perfect examples of antimicrobial surfaces. These types of handles eliminate a wide range of harmful microbes within almost 2 hours compared to their stainless steel and glass counterparts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The metal mesh we see on our microwave doors has another purpose, far from being a decorative element. Tiny holes help us take a peek at our food while it’s being heated, keeping us unharmed from radiation as we watch our meal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The bumps we see on the bottoms of our favorite soda bottles are not solely made for marketing purposes. In fact, they are designed to bounce back pressure inside carbonated drinks. They also provide stability and are made much thicker compared to their upper part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. It is widely known that the hook at the end of a measuring tape is used to grab onto the edges of the object we’re trying to assess. However, its hole enables us to do more than just the fringes. It’s there to accommodate the head of a nail or a screw so that you can do handiwork yourself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Another safety feature of cars is the seemingly unnoticeable toggle underneath the rearview mirror. Its purpose may seem vague at first, but once pushed, it can help block bright beams while you’re driving at night by adjusting the angle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. These brushes are not for cleaning your shoes — they are much more important than that. They act as shields between you and the edges of the escalator, minimizing accidents, such as stuck clothes or wedged accessories.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The famous takeout containers are actually carefully designed with patented packaging featuring many uses. Aside from being environmentally friendly, it can be used as a bowl, a makeshift plate, and a microwaveable box to be stored in the fridge and heated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Do you ever wonder why our coffee or juice cups have that distinct concave look on their lids? They are meant to hold your drink, and the slides prevent it from spilling on surfaces. In short, it’s a to-go coaster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Aside from carrying our groceries and little ones with us, the metal rails on our supermarket carts are designed to take care of much more. The hoops near the handle are for hanging shopping bags with fragile goods, such as eggs and bread, inside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Are you about to fill your tank, but have no clue which lane in the gas station to pull into? Search for the fuel indicator symbol on your dashboard. There, look for the arrow and see where it’s pointing. The direction to where it points is where your gas cap is located.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211444.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">20 Days That Got Completely Ruined</a><br>
-
-<span style="font-size:4em">1. “Trying to finish up a last minute job. Don’t forget to latch your screw boxes people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. ouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Accidentally left the garage open for 1 hour. They’re everywhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Just got off work, tripped on the way in the door.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I think my plate was telling me that I’m 35 and don’t need Totinos pizza.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Made two of these bad boys, was basically finished with the first before I realized I was eating mold.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Used ramps to change oil for the first time… while backing up, the ramps slid/shot out and hit the 5qt used oil container and painted my garage a new color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Our washer decided to become a smoke machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My 2yo GE oven exploded an hour after I turned it off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Broke my finger at work, got fired after the drug test. All at the end of a 12 hour night shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “New hobby= new broken bones. 30 seconds after putting on roller blades resulted in 2 broken wrists!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “A wasp flew into my helmet while I was riding my motorcycle and gave me a piece of its mind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My Little Brother Was Trying To Move Today… Geez.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My gf is from a small town that doesn’t get a lot of nice things. A couple of hours after the town welcomed this mural, this happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Broke my leg by standing too fast and falling onto myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “The stairs on my daily commute pedestrian bridge were removed without warning..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “First overseas flight in 9 years! Paid extra for a window seat so I can see everything.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Brand New $1300 set of golf clubs I bought as a birthday present to myself. On my very first swing (club head is somewhere in the pond)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211954.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">20 Positive Facts That Are Also Disturbing</a><br>
-
-<span style="font-size:4em">1. A chicken lived without his head for 18 months.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. You did your best.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. One day youll never feel pain again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The most peaceful way to die is in your sleep, but you’ll go to sleep not knowing you’ll never see anything ever again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Either alien life exists, or we are totally alone in the universe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. People who are dying very often just have a sudden burst of energy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. While were losing a lot of forests in the tropics due to climate change, were actually gaining a lot of forest in the northern latitudes, and into formerly grassland areas, as more available CO2 allows them to grow in more arid regions. But habitat loss - like grasslands or tundra becoming forest - is arguably even harder on species than changes in weather patterns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. There are hundreds if not thousands of versions of you in the minds of other people, depending on how many people you have met in your life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There will be a point in time where humans go extinct. We wont experience it but our future generations will see the “end of the world.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Most people dont die of old age.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This too shall pass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. You’re statistically more likely to die in a car crash on the way to the airport than you are in a plane crash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. You never truly know what anyone really thinks about you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When youre sick, youre supposed to do drugs and stay out of school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. You might be just like your parents when you have kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. CPS is returning a child to their family. And it’s often by far the worst thing that could happen to that child</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Death isnt the worst thing that can happen to you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Who you are is not who others perceive you to be, since no one can ever truly know who you are and how you think, to the point that if you ever lost your memories, no one would be able to describe you fully to you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I was at a bbq yesterday and my uncle told me, “think about it, one day you went outside to play with your friends for the last time and didn’t even know it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The idea that who we are is not who we used to be, nor who we will be. Both literally and figuratively, considering our cells are constantly dying and recycling. Every 7ish years you have a new body and because our minds are ever expanding and learning new things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210336.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Monday Morning Randomness User Edition - Broncofan</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103246/87212013/87133530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103204/87212006/87106946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211722.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103215/87212008/87106952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211694.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211707.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211709.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211710.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211711.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211712.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211721.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211728.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87211736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102923/87211980/87073835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102935/87211981/87073843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102947/87211982/87076228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102954/87211983/87073828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/102958/87211984/87076231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103005/87211985/87076232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103009/87211986/87076237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103017/87211987/87076249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103020/87211988/87076251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103029/87211989/87079511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103033/87211990/87079521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103040/87211991/87079526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103045/87211992/87079529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103051/87211993/87079535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103056/87211994/87079537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103104/87211995/87079539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103108/87211996/87080021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103115/87211997/87080028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103119/87211998/87080036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103127/87211999/87080037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103130/87212000/87080046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103138/87212001/87091000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103141/87212002/87091008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103149/87212003/87091012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103152/87212004/87091013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103200/87212005/87106940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103211/87212007/87106950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103222/87212009/87106958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103226/87212010/87106959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103233/87212011/87106960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103238/87212012/87106967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103250/87212014/87133549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103316/87212017/87201639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103406/87212019/87202750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103419/87212020/87202753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103606/87212021/87202754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103807/87212022/87202770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104007/87212023/87202772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104816/87212025/87201628.png" style="width:100%"><br>
-
-<span style="font-size:4em">71. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104828/87212026/87201636.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 Facts About Confucius</a><br>
+## <a href="#linky10" id="linky9">25 Facts About Confucius</a><br>
 
 <span style="font-size:4em">1. In 1967, Red Guards ransacked the graves of Confucius and his family under the slogan, Annihilate the Kong Family Business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210365.jpg" style="width:100%"><br>
 
@@ -812,6 +642,176 @@ Last updated: 07/11/2022-16:47:18
 <span style="font-size:4em">24. The locations of the bodies of various religious leaders are known - including Muhammad, Confucius, and a canine tooth of the Buddha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210388.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. William Hung is a 73rd Generation Descendant of Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210389.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Days That Got Completely Ruined</a><br>
+
+<span style="font-size:4em">1. “Trying to finish up a last minute job. Don’t forget to latch your screw boxes people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. ouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Accidentally left the garage open for 1 hour. They’re everywhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Just got off work, tripped on the way in the door.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I think my plate was telling me that I’m 35 and don’t need Totinos pizza.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Made two of these bad boys, was basically finished with the first before I realized I was eating mold.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Used ramps to change oil for the first time… while backing up, the ramps slid/shot out and hit the 5qt used oil container and painted my garage a new color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Our washer decided to become a smoke machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My 2yo GE oven exploded an hour after I turned it off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Broke my finger at work, got fired after the drug test. All at the end of a 12 hour night shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “New hobby= new broken bones. 30 seconds after putting on roller blades resulted in 2 broken wrists!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “A wasp flew into my helmet while I was riding my motorcycle and gave me a piece of its mind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My Little Brother Was Trying To Move Today… Geez.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My gf is from a small town that doesn’t get a lot of nice things. A couple of hours after the town welcomed this mural, this happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Broke my leg by standing too fast and falling onto myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “The stairs on my daily commute pedestrian bridge were removed without warning..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “First overseas flight in 9 years! Paid extra for a window seat so I can see everything.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Brand New $1300 set of golf clubs I bought as a birthday present to myself. On my very first swing (club head is somewhere in the pond)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211954.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">30 Behind-The-Scenes Photos From Popular Movies</a><br>
+
+<span style="font-size:4em">1. Julia Roberts takes over for director Garry Marshall on camera for Pretty Woman (1990).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Jack Nicholson and director/writer/producer Stanley Kubrick have no fear on the set of The Shining (1980).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Meanwhile, Michael Jordan doesnt need any movie magic for his basketball skills in Space Jam (1996).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. And director Ryan Coogler doesnt mind squatting for a chat with Chadwick Boseman while shooting Black Panther (2018). (TChalla in a hoodie?! He looks so comfy!!!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. And director Jon M. Chu sets up the big party entrance scene with Awkwafina on the set of Crazy Rich Asians (2018).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Here we see co-directors/writers Daniel Kwan and Daniel Scheinert (collectively, the Daniels) chatting about a multitude of multiverses on the set of Everything Everywhere All At Once (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jack Reynor, director Ari Aster, and Florence Pugh feel out some floral settings while filming Midsommar (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Director Chris Columbus uses his ~magic~ to reposition Daniel Radcliffe and Maggie Smith while shooting Harry Potter and the Sorcerers Stone (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. And director/writer Sam Raimi chats with Tobey Maguire and Kirstin Dunst on a New York City rooftop while shooting Spider-Man (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Director Steven Spielberg gives some very important notes on how to dinosaur to a dinosaur on the set of The Lost World: Jurassic Park (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Director Greta Gerwig and Saoirse Ronan pose identically on the set of Lady Bird (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Kiera Knightly listens intently while director Joe Wright plans his next shot in Pride & Prejudice (2005) — and, lets be real, hes probably talkin a little trash about Mr. Darcy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Tom Holland stands on a big, comfy-looking mat, listening to director Ruben Fleischer on the set of Uncharted (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Florence Pugh prepares to take flight(?) on the set of Black Widow (2020).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Speaking of flight, Keanu Reeves and Hugo Weaving both appear to have a fight AND flight response while filming for The Matrix (1999).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Director Steven Spielberg poses for a very handsome portrait with Captain Hook (Dustin Hoffman) on the set of Hook (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Kate Winslet and Leonardo DiCaprio stare while director James Cameron points to something on set of Titanic (1997). I love Kates face here because it 100% looks like James is a time-traveller sent back in time to tell her some hot gossip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Meanwhile, director Peter Jackson looks like a multiverse hopper come to warn Legolas (Orlando Bloom) about the dangers of not wearing sun protection on the set of The Lord of the Rings: The Two Towers (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. And director Jordan Peele isnt afraid to get up close and personal with Red (Lupita Nyongo) while filming Us (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Brandy Norwood looks every part a princess behind the scenes, too, while filming Rodgers & Hammersteins Cinderella (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Charlize Theron chats up director George Miller while sweatin it out in the desert during Mad Max: Fury Road (2015).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Director James Cameron chills with the Terminator (Arnold Schwarzenegger) and John Connor (Edward Furlong) while filming Terminator II: Judgement Day (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Clive Barker chilling with his sick-lookin cenobites on the set of Hellraiser (1987). Honestly? Squad goals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Oh, did I say squad goals?! Heres Ernie Hudson, Harold Ramis, director Ivan Reitman, Dan Aykroyd, and Bill Murray posing by their beloved car on the set of Ghostbusters II (1989).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Director George Lucas looks on while Ian McDiarmid and Samuel L. Jackson practice their laser sword duels on the set of Star Wars: Episode III — Revenge of the Sith (2005).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Heath Ledgers Joker gets a mid-day touch-up from make-up artist John Caglione Jr. while shooting The Dark Knight (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Did someone say knight?! Heres director David Lowery taking a moment to instruct Ralph Ineson and Dev Patel on the set of The Green Knight (2021). Im obsessed with how casual this tree man looks here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. And behind-the scenes pics arent just for live action movies! Heres artist Mark Henn as he works on a sketch of Belle while animating Beauty and the Beast (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. And Eddie Murphy getting into voicing Donkey in the recording sessions for Shrek (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Last, but certainly not least: Cate Blanchett looks on as director Taika Waititi shows her some shots on set of Thor: Ragnarok (2017). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207880.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Gym Influencer Commands Guy to Stop Mid-Workout So She Can Film a Video</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112054/87210845/ONE.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112116/87210849/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112105/87210847/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112052/87210844/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112043/87210843/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112115/87210848/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112103/87210846/seven.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">20 Best Jack Black Memes Of All Time</a><br>
+
+<span style="font-size:4em">1. Actually, Jack Black can play a mythologically accurate Thor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210045.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There are too many Jack Blacks in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Jacked Jack Black Playing Black Jack With Black Jack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210047.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. The respect is mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Jack Black wins, easy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I am someone of a photo-editor myself. - Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Gotta say the meme has a point.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Facts!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. That Black Jack Black image is truly a masterpiece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210049.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Well, Elon Musk can be added alongside Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. He wrote this for Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Well, no wonder the kid was sent to hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The meme has returned and it is better than ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If you had to describe Jack Black and the chaotic energy his personality brings, it would be this meme.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210063.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
