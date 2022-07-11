@@ -1,57 +1,101 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/11/2022-12:47:18
+Last updated: 07/11/2022-13:47:18
 <br>
-## <a href="#linky2" id="linky1">25 Unknown Wrestling Facts For Fans</a><br>
+## <a href="#linky2" id="linky1">47 Relatable Memes Because We've All Been There</a><br>
 
-<span style="font-size:4em">1. TIME Magazines Person of the Century online poll resulted in the top spots going to Jesus Christ and Ric Flair, neither of which were considered eligible. - u/Stocky_Racoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210340.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. WWFS Iron Sheik, whose shtick was to be pro Iranian and very anti-American (usually alongside Nikolai Volkoff in the 80s), had previously been an assistant coach on the U.S. National Wrestling Team during the Olympics. - u/Rexton9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210342.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Despite not existing for the past 30 years, the Soviet Union still holds the most Olympic gold medals for wrestling. - u/disc2k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210343.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The WWE was known as the WWF (World Wrestling Federation) till 2002, when it lost a lawsuit against the World Wildlife Fund. However, even though it maintains the WWF trademark, the World Wildlife Fund officially renamed itself as the World Wide Fund for Nature in 1986. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210341.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Oil Wrestling is one of the most popular sports in Turkey. - u/baffybonk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210344.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A 2014 report found that the mortality rate for professional wrestlers was significantly higher than that of athletes in other sports. - u/Gwen_Tennyson10</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210345.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Professional wrestler Scott Hall was diagnosed with post traumatic stress disorder, years after killing a man in self defense. Hall wrestled away the drunken man’s gun, and shot him in the head, outside of Hall’s place of work. - u/borderbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210339.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211605.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The stunt of Jerry Lawler slapping Andy Kaufman on David Letterman was not revealed as a hoax until years later. - u/shewhodrives</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210346.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211606.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Author Ken Kesey (One Flew Over the Cuckoo’s Nest) qualified for the US Olympic Wrestling Team, but due to a shoulder injury was never able to compete. - u/ManOfLaBook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210347.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Sputnik Monroe, a 60s Memphis wrestler. As part of his villainous act, he fought against segregation and frequented black neighbourhoods. He succeeded in ending segregation in wrestling arenas and became one of the biggest draws in wrestling history. - u/UndercoverDoll49</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210348.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211608.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Cryme Tyme. A WWE wrestling duo from 2006 that consisted of two black men, dressed in thug outfits, that would show up in random broadcasts and steal items like the broadcasters laptop. - u/Iam_a_honeybadger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210349.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211609.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Black Knight from Monty Python was based on a real person: Arrichion of Phigalia, a Greek wrestler who famously refused to give up during a particularly tough wrestling match. He died during the match, but still won because his opponent surrendered, not realizing he was dead. - u/IHad360K_KarmaDammit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210350.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Bonnie Tyler’s (1986) song “Ravashing” was originally written by Jim Steinman as an instrumental track on The Wrestling Album (1985), titled Hulk Hogans Theme. - u/AliWalnuts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210351.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211611.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Molluscum contagiosum. Commonly called the wrestling disease It is a skin infection with no cure. It can take the immune system 6 months to 4 years to clear it up. Depending on transmission it can also be classified as an STD. - u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210352.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211612.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Pro wrestler Batista decided to get into wrestling after realizing he had squandered his 20s and was living in poverty to the point that he had to borrow money to buy Christmas presents for his kids. - u/astarisaslave</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210353.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211613.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Kurt Angle won an olympic gold medal in wrestling with a broken neck. - u/averageredditcuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210355.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Before he was president, Lincoln was a wrestler winning 299 out of 300 matches. Old Abe is actually in the Wrestling Hall of Fame. - u/joecooool418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210354.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. André the Giant grew so fast that his own parents didnt recognize him. He left home at 14 and returned at 19, having already become a professional wrestler. As he explained his career choice, they realized they had seen him wrestle on TV under his alias, without knowing it was their son. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210357.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Marvel owned the rights to the name Hulk Hogan from 84-04. For each match Hogan wrestled, Marvel was paid $100. Marvel also made royalties on merch and every project involving his name. When he dropped Hulk and started going by Hollywood Hogan in 96, he was able to avoid paying the fees. - u/demafrost</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210356.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. A booker for WCW once told Mark Calaway, then using the name Mean Mark Callous, that nobody would ever pay to see him wrestle. The next year he left the company and joined WWF and started wrestling as The Undertaker. - u/HistoricalDebates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210358.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Nicolas Cage was considered for the role of Randy The Ram Robinson in The Wrestler. When taken to a live event, he thought wrestling was real like UFC! In the end, the crew had a meeting where it was determined that Cage looked too healthy for the part, so the role went to Mickey Rourke. - u/broken_beat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210359.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Dwayne Johnson aka The Rock began his acting and wrestling career after being cut from the Calgary Stampeders of the Canadian Football League. He would later say Sometimes, your biggest dreams that don’t come true are the best things that never happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210360.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Kevin James, the actor behind King of Queens, Paul Blart Mall Cop, and Becky was on his high schools wrestling team but was injured his senior year. His replacement, future WWE superstar and Hall of Famer, Mick Foley. - u/FilmBrony</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210361.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Macho Man Randy Savages first wrestling character was called The Spider, based off of Spider-Man. He would later star as the villainn wrestler Bone Saw in The Amazing Spiderman movie. - u/ulcerman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210362.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Professional wrestler Kerry Von Erich had to have his foot amputated after a bad accident, but continued wrestling while secretly wearing a prosthetic - even showering in his boots so no one would know. His injury wasnt public knowledge until his death from suicide 7 years later. - u/CletusVanDamnit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210363.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211643.png" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211644.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211645.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -455,63 +499,57 @@ Last updated: 07/11/2022-12:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Most Obscure Animal Facts That Might Shock You</a><br>
+## <a href="#linky10" id="linky9">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
 
-<span style="font-size:4em">1. Army Ants will create balls during high water floods. The ball will roll allowing every ant to get a breath. - H010CR0N </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210292.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. There is a genus of frog called Mini. There are only three frogs in the genus, and their scientific names are all puns: Mini mum, Mini ature and Mini scule. - SwimmingOnMars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210293.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run! - generic-volume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210294.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The duck-billed platypus has no nipples to feed their offspring. Instead, milk oozes from the skin. - ChimpyChompies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210295.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Rabbits dont have pads on their paws. Only fur. So if you see a cartoon rabbit with pads on its paw, completely wrong. - FOTBWN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210296.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals. - Iron_Chic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210297.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Kangaroos cannot jump backwards. - bsquirlz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210298.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them. It is thought that this might actually be helpful because a) their eyesight was shit anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey. Imagine something eating your eyeballs and it being an upgrade. - Fabled_Webs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210299.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater. - Yeeteth_thy_baby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210300.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cats have tiny whiskers on their ankles to help them hunt and be sneaky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210301.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Butterflies will drink blood given the option. - Semicolon7645</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210302.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing. - Soulfighter56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210303.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A kangaroo will mate again one to three days after giving birth. The newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210304.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210305.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-If the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. So they can have an adolescent Joey, a nursing one, and one in stasis all at the same time. - themoonhasgone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210306.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her. - amishsheepherder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210307.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Turkey vultures projectile vomit as a means of defense! - yourscottygirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210308.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider. - imachiknsamich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210309.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Axolotls are real life Frankensteins monsters. Not only do they have the ability to regenerate tissue if it gets damaged much like a starfish can grow a limb, but if you cut off their arm and (oh I dont know) ATTACH IT TO ITS BACK, their cells will form and fix between the back and the dismembered limb. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210310.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210311.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-After some time, the arm is completely attached and useful while attached to the back like some disgusting Mr Potato Head. Some people did a test where they completely severed the head of an Axolotl and just pasted it next to the head of another one to see if a head could do the same thing. It worked. The brain started thinking again, ate food after their esophagus attached, and became a fully functioning 2 headed axolotl. - WillyMcHilly489</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210312.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking. - powderabuser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210313.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Only sheep, whales, and humans go through menopause - FinishTheThing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210314.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. There are no male Mourning geckos. The entire species is female. - Moctor_Drignall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210315.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. The Western Lowland Gorillas scientific name is gorilla gorilla gorilla. - CorporalCrash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210316.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211649.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -559,223 +597,59 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">25 Disturbing Facts About Outer Space</a><br>
+## <a href="#linky12" id="linky11">24 Facts About Cleopatra History Couldn't Hide</a><br>
 
-<span style="font-size:4em">1. The farthest galaxy we can detect was 13.4 billion light years away when it emitted the light we see today. That light (not the galaxy, the light itself) is three times as old as the Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210227.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Cleopatra was the only Ptolemaic ruler to learn to read, write, and converse in Egyptian. She could also speak 7 languages.-u/kevlarbuns</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. There are voids in the universe that are so big that if you were teleported to the center with a spacesuit on, you would just see pitch darkness in all directions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210228.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Some scholars believe Cleopatras own handwriting translating to Make it happen! appears at the end of a papyrus document granting financial rights to a Roman absentee landlord. The document is currently in the Egyptian Museum of Berlin.-u/nelirious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. How easy it would be to become completely and totally isolated out there. In space, technology is the only thing keeping us alive. The only reason we dont freeze suffocate or starve. Imagine the day when humans advance to traveling deeper into space. Imagine not having communication. Completely alone in the blackness of space. Or even worse, your engines die and youre just forced to sit, hoping and praying that somewhere in the vast universe someone comes across you. Thats scarier than any movie monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210229.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Pharaonic Period of Ancient Egypt lasted 3 Millennia. The timespan between the 1st Pharaoh of a Unified Egypt, Narmer, & the last Pharaoh of Egypt, Cleopatra VII was over 3,000 years.-u/GenericReditUserName</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. That we, as a planet, are literally flying through Space. I dont just mean around the Sun, because our Solar System is flying through space as well. Along with our Galaxy too. Where Earth was one minute ago is a point in space that we will never return too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210230.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Cleopatra often used clever stagecraft to woo potential allies. For example, when she met Mark Antony, she arrived on a golden barge made up to look like the goddess Aphrodite. Antony, who considered himself the embodiment of Dionysus, was instantly enchanted.-u/The_Internet_Author</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The fact that the Voyager 2 Space probe after over 40 years has not even hit a pebble.....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210231.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The famous sculpture Sleeping Ariadne was mistakenly identified as a sculpture of Cleopatra for a long time due to the snake bracelet worn by the subject.-u/vedvineet98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. If you gathered together all the matter in the universe we can observe right now ,and squished it together until it had the density of water, (1gm/cm^3) it would fit into a cube about 1 light year on each side. There are several disturbing things about this. A single light year is almost unimaginably huge. A cubic light year is a ridiculous volume of space. The observable universe is 33 orders of magnitude larger than that. It is almost entirely empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210232.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Julius Caesar and Cleopatra were in a relationship and political alliance. Julius Caesar needed Cleopatras money, and Cleopatra needed the help of Caesars army to take control of Egypt from her husband/brother Ptolemy XIII.-u/Upbeat_Analyst_3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The largest black hole we have discovered has a diameter of 490.000.000.000 km. Earths diameter is roughly 13.000 km.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210233.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In 1917, a film named Cleopatra was released. Years later, the film was destroyed in a fire in 1937. Today, only 17 seconds of the 2-hour film remain.-u/dennismarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. There is no up or down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210234.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The tomb of Cleopatra and Mark Antonys only daughter, Cleopatra Selene II, is located in Algeria. Brought to Rome after her parents suicide, she later married Juba II, a Berber prince. Her tomb has been looted over the centuries and was once used by the French Navy for target practice.-u/trifletruffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Time-lapses of the Future send me into an existential crisis every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210235.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 1881, an Egyptian obelisk named Cleopatras Needle was erected in NYCs Central Park. A capsule buried beneath holds the 1870 census, a Bible, a Webster’s Dictionary, the complete works of Shakespeare, a guide to Egypt, and a copy of the Declaration of Independence.-u/MusicSole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Here’s one closer to home. The Kessler Effect is the theory that a single destructive event in low Earth orbit could create a cascade where satellites break up into tiny fragments taking out other satellites, breaking up into smaller fragments and so on, until the earth is completely surrounded by a massive cloud of tiny flying death shrapnel, which would make leaving this planet almost impossible. If you look up how much space debris there is already up there and how many satellites currently orbit, plus the continued growth of the commercial space industry... I think about it a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210236.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Cleopatra was one of the wealthiest women of all time. Her net worth today would be around $95.8 billion USD.-u/The-Angler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Somewhere, something incredible is waiting to be known.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210237.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Although Cleopatra was born in Egypt, she wasnt necessarily Egyptian. Her family origins come from Macedonian Greece and Ptolemy I Soter, one of Alexander the Great’s generals.-u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Rogue planets. Such objects have been ejected from the planetary system in which they were formed or have never been gravitationally bound to any star or brown dwarf. If a rogue planet invaded our Solar System, things could go very wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210238.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Cleopatras fame as a beautiful seductive master was entirely made by Octavian as a way of explaining how this foreign queen managed to seduce two of Romes most powerful men, while being described as a beauty, she was best known for her intelligence and charm.-u/Pepestatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In about 150 billion years, intergalactic transportation and communication beyond our local supercluster will be impossible. In about two trillion years, galaxies outside of our local supercluster are no longer detectable due to redshift. Assuming the universe keeps expanding, then the universe’s final fate depends on whether or not protons decay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210239.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. To this day, the tomb of Cleopatra and Mark Antony has not been found.-u/zachar3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. More of a theory than a fact, but I find the Dark Forest theory pretty disturbing. Basically the idea that there are other civilizations out there but they are staying quiet for good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210240.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Cleopatra tested various deadly poisons on condemned people and concluded that the bite of the asp was the least terrible way to die.-u/gargolito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I truly don’t believe most of us are capable of comprehending the vastness of space and the distance between things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210241.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Julius Caesar’s only son, Caesarion, was the last Pharaoh of Egypt. Even though Cleopatra swears he is Caesar’s son, Caesar never officially acknowledged him.-u/MilindGoswami007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. In 2019, scientists at the Royal Institution of Australia (along with NASA and other international space agencies) completely missed a football-field-sized asteroid that came eerily close to Earths atmosphere and had apparently realized it only minutes before it passed Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210242.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Cleopatra claimed pickles made her beautiful.-u/jmestrin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The near impossibility of interstellar human travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210243.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Cleopatra had a special lipstick made for her, consisting of a crushed mixture of ants and deep red carmine beetles.-u/Drblackcobra</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. We still dont know exactly how it came into existence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210244.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Cleopatra lived closer in time to the lunar landing than the completion of the Great Pyramid. By 500 years!-u/PapaMarquezo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210409.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. There is a theory (Proton decay) that states that protons, one of the fundamental building blocks of matter, can just spontaneously evaporate. The amount of time this takes is astronomical, but current theories predict that all matter in the universe will decay away until there is nothing left but particles of light and empty space. The time it will take for this to happen is incomprehensible, but it is the most likely scenario for how our universe will end.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210245.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The Egyptians, not Julius Caesar, were the fathers of the modern calendar. The Roman calendar was lunar and had 355 days. Egyptians knew it was 365 days because the Nile would peak on the same day each year. Caesar learned this from his affair with Cleopatra and created the Julian calendar.-u/jimngo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. At 600KM above planet Earth the temperature fluctuates between +258 and -148 degrees Fahrenheit. There is nothing to carry sound. No air pressure. No oxygen. Life in space is impossible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210246.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Cleopatra took baths in donkey milk to preserve her youthful skin, with legend saying it took 700 donkeys to supply the milk.-u/zepphiu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. I just learned about something called Angular Diameter Turnaround. Basically, things that are far away look smaller; but things that are really far away look bigger, because when their light was emitted, the universe was small and they were close to us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210247.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Cleopatra and Mark Antony formed their own drinking club in 41 B.C. and were known to take part in elaborate games and contests and to walk the streets of Alexandria in disguise, pranking the residents.-u/ObsceneGlabella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210412.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. Two possibilities exist: either we are alone in the Universe or we are not. Both are equally terrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210248.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Due to inbreeding amongst the Ptolemies, Cleopatra had only two pairs of great-grandparents. One of those pairs was the son and daughter of the other.-u/zomskii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The images you see are galaxies not as they are but as they were, based on how many light-years away they are. This is fine for anything within the thousands but if we are talking millions or billions of light-years away then there is a good chance that none of those stars you see even technically exist right now. On the bright side though, if we can figure out how to move faster than light then we could see our own planet with a good enough telescope as it was in the past. We could observe any outside historical event or even dinosaurs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210249.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Despite the story that Cleopatra killed herself by letting an asp bite her, it was more probable that she killed herself using a mixture of opium and hemlock.-u/thr33beggars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. We could literally get vaporized at any moment from a space death laser traveling at the speed of light, so we cant even detect it before were dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Time is not linear due to the constant expansion of space therefore time is expansive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210251.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Julius Caesar and Cleopatra had a child together name Caesarion, which translates to little caesar.-u/Dangerrios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210415.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">47 Relatable Memes Because We've All Been There</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211643.png" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211644.png" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211645.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">30 Behind-The-Scenes Photos From Popular Movies</a><br>
-
-<span style="font-size:4em">1. Julia Roberts takes over for director Garry Marshall on camera for Pretty Woman (1990).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jack Nicholson and director/writer/producer Stanley Kubrick have no fear on the set of The Shining (1980).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Meanwhile, Michael Jordan doesnt need any movie magic for his basketball skills in Space Jam (1996).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. And director Ryan Coogler doesnt mind squatting for a chat with Chadwick Boseman while shooting Black Panther (2018). (TChalla in a hoodie?! He looks so comfy!!!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And director Jon M. Chu sets up the big party entrance scene with Awkwafina on the set of Crazy Rich Asians (2018).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Here we see co-directors/writers Daniel Kwan and Daniel Scheinert (collectively, the Daniels) chatting about a multitude of multiverses on the set of Everything Everywhere All At Once (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Jack Reynor, director Ari Aster, and Florence Pugh feel out some floral settings while filming Midsommar (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Director Chris Columbus uses his ~magic~ to reposition Daniel Radcliffe and Maggie Smith while shooting Harry Potter and the Sorcerers Stone (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. And director/writer Sam Raimi chats with Tobey Maguire and Kirstin Dunst on a New York City rooftop while shooting Spider-Man (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Director Steven Spielberg gives some very important notes on how to dinosaur to a dinosaur on the set of The Lost World: Jurassic Park (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Director Greta Gerwig and Saoirse Ronan pose identically on the set of Lady Bird (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Kiera Knightly listens intently while director Joe Wright plans his next shot in Pride & Prejudice (2005) — and, lets be real, hes probably talkin a little trash about Mr. Darcy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Tom Holland stands on a big, comfy-looking mat, listening to director Ruben Fleischer on the set of Uncharted (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Florence Pugh prepares to take flight(?) on the set of Black Widow (2020).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Speaking of flight, Keanu Reeves and Hugo Weaving both appear to have a fight AND flight response while filming for The Matrix (1999).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Director Steven Spielberg poses for a very handsome portrait with Captain Hook (Dustin Hoffman) on the set of Hook (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Kate Winslet and Leonardo DiCaprio stare while director James Cameron points to something on set of Titanic (1997). I love Kates face here because it 100% looks like James is a time-traveller sent back in time to tell her some hot gossip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Meanwhile, director Peter Jackson looks like a multiverse hopper come to warn Legolas (Orlando Bloom) about the dangers of not wearing sun protection on the set of The Lord of the Rings: The Two Towers (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. And director Jordan Peele isnt afraid to get up close and personal with Red (Lupita Nyongo) while filming Us (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Brandy Norwood looks every part a princess behind the scenes, too, while filming Rodgers & Hammersteins Cinderella (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Charlize Theron chats up director George Miller while sweatin it out in the desert during Mad Max: Fury Road (2015).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Director James Cameron chills with the Terminator (Arnold Schwarzenegger) and John Connor (Edward Furlong) while filming Terminator II: Judgement Day (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Clive Barker chilling with his sick-lookin cenobites on the set of Hellraiser (1987). Honestly? Squad goals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Oh, did I say squad goals?! Heres Ernie Hudson, Harold Ramis, director Ivan Reitman, Dan Aykroyd, and Bill Murray posing by their beloved car on the set of Ghostbusters II (1989).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Director George Lucas looks on while Ian McDiarmid and Samuel L. Jackson practice their laser sword duels on the set of Star Wars: Episode III — Revenge of the Sith (2005).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Heath Ledgers Joker gets a mid-day touch-up from make-up artist John Caglione Jr. while shooting The Dark Knight (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Did someone say knight?! Heres director David Lowery taking a moment to instruct Ralph Ineson and Dev Patel on the set of The Green Knight (2021). Im obsessed with how casual this tree man looks here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. And behind-the scenes pics arent just for live action movies! Heres artist Mark Henn as he works on a sketch of Belle while animating Beauty and the Beast (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. And Eddie Murphy getting into voicing Donkey in the recording sessions for Shrek (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Last, but certainly not least: Cate Blanchett looks on as director Taika Waititi shows her some shots on set of Thor: Ragnarok (2017). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207880.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">55 Really Cool Before And After Photos of How Things Change</a><br>
+## <a href="#linky13" id="linky12">55 Really Cool Before And After Photos of How Things Change</a><br>
 
 <span style="font-size:4em">1. “My first-ever crazy candy cake vs one of my latest ones”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207130.jpg" style="width:100%"><br>
 
@@ -890,109 +764,121 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">24 Facts About Cleopatra History Couldn't Hide</a><br>
+## <a href="#linky14" id="linky13">30 Behind-The-Scenes Photos From Popular Movies</a><br>
 
-<span style="font-size:4em">1. Cleopatra was the only Ptolemaic ruler to learn to read, write, and converse in Egyptian. She could also speak 7 languages.-u/kevlarbuns</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210392.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Julia Roberts takes over for director Garry Marshall on camera for Pretty Woman (1990).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Some scholars believe Cleopatras own handwriting translating to Make it happen! appears at the end of a papyrus document granting financial rights to a Roman absentee landlord. The document is currently in the Egyptian Museum of Berlin.-u/nelirious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210393.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Jack Nicholson and director/writer/producer Stanley Kubrick have no fear on the set of The Shining (1980).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Pharaonic Period of Ancient Egypt lasted 3 Millennia. The timespan between the 1st Pharaoh of a Unified Egypt, Narmer, & the last Pharaoh of Egypt, Cleopatra VII was over 3,000 years.-u/GenericReditUserName</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210394.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Meanwhile, Michael Jordan doesnt need any movie magic for his basketball skills in Space Jam (1996).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cleopatra often used clever stagecraft to woo potential allies. For example, when she met Mark Antony, she arrived on a golden barge made up to look like the goddess Aphrodite. Antony, who considered himself the embodiment of Dionysus, was instantly enchanted.-u/The_Internet_Author</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210395.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. And director Ryan Coogler doesnt mind squatting for a chat with Chadwick Boseman while shooting Black Panther (2018). (TChalla in a hoodie?! He looks so comfy!!!)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The famous sculpture Sleeping Ariadne was mistakenly identified as a sculpture of Cleopatra for a long time due to the snake bracelet worn by the subject.-u/vedvineet98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210396.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. And director Jon M. Chu sets up the big party entrance scene with Awkwafina on the set of Crazy Rich Asians (2018).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Julius Caesar and Cleopatra were in a relationship and political alliance. Julius Caesar needed Cleopatras money, and Cleopatra needed the help of Caesars army to take control of Egypt from her husband/brother Ptolemy XIII.-u/Upbeat_Analyst_3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210397.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Here we see co-directors/writers Daniel Kwan and Daniel Scheinert (collectively, the Daniels) chatting about a multitude of multiverses on the set of Everything Everywhere All At Once (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In 1917, a film named Cleopatra was released. Years later, the film was destroyed in a fire in 1937. Today, only 17 seconds of the 2-hour film remain.-u/dennismarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210398.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Jack Reynor, director Ari Aster, and Florence Pugh feel out some floral settings while filming Midsommar (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The tomb of Cleopatra and Mark Antonys only daughter, Cleopatra Selene II, is located in Algeria. Brought to Rome after her parents suicide, she later married Juba II, a Berber prince. Her tomb has been looted over the centuries and was once used by the French Navy for target practice.-u/trifletruffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210399.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Director Chris Columbus uses his ~magic~ to reposition Daniel Radcliffe and Maggie Smith while shooting Harry Potter and the Sorcerers Stone (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In 1881, an Egyptian obelisk named Cleopatras Needle was erected in NYCs Central Park. A capsule buried beneath holds the 1870 census, a Bible, a Webster’s Dictionary, the complete works of Shakespeare, a guide to Egypt, and a copy of the Declaration of Independence.-u/MusicSole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210400.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. And director/writer Sam Raimi chats with Tobey Maguire and Kirstin Dunst on a New York City rooftop while shooting Spider-Man (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cleopatra was one of the wealthiest women of all time. Her net worth today would be around $95.8 billion USD.-u/The-Angler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210401.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Director Steven Spielberg gives some very important notes on how to dinosaur to a dinosaur on the set of The Lost World: Jurassic Park (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Although Cleopatra was born in Egypt, she wasnt necessarily Egyptian. Her family origins come from Macedonian Greece and Ptolemy I Soter, one of Alexander the Great’s generals.-u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210402.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Director Greta Gerwig and Saoirse Ronan pose identically on the set of Lady Bird (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cleopatras fame as a beautiful seductive master was entirely made by Octavian as a way of explaining how this foreign queen managed to seduce two of Romes most powerful men, while being described as a beauty, she was best known for her intelligence and charm.-u/Pepestatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210403.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Kiera Knightly listens intently while director Joe Wright plans his next shot in Pride & Prejudice (2005) — and, lets be real, hes probably talkin a little trash about Mr. Darcy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. To this day, the tomb of Cleopatra and Mark Antony has not been found.-u/zachar3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210404.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Tom Holland stands on a big, comfy-looking mat, listening to director Ruben Fleischer on the set of Uncharted (2022).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Cleopatra tested various deadly poisons on condemned people and concluded that the bite of the asp was the least terrible way to die.-u/gargolito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210405.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Florence Pugh prepares to take flight(?) on the set of Black Widow (2020).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Julius Caesar’s only son, Caesarion, was the last Pharaoh of Egypt. Even though Cleopatra swears he is Caesar’s son, Caesar never officially acknowledged him.-u/MilindGoswami007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210406.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Speaking of flight, Keanu Reeves and Hugo Weaving both appear to have a fight AND flight response while filming for The Matrix (1999).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Cleopatra claimed pickles made her beautiful.-u/jmestrin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210407.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Director Steven Spielberg poses for a very handsome portrait with Captain Hook (Dustin Hoffman) on the set of Hook (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Cleopatra had a special lipstick made for her, consisting of a crushed mixture of ants and deep red carmine beetles.-u/Drblackcobra</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210408.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Kate Winslet and Leonardo DiCaprio stare while director James Cameron points to something on set of Titanic (1997). I love Kates face here because it 100% looks like James is a time-traveller sent back in time to tell her some hot gossip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Cleopatra lived closer in time to the lunar landing than the completion of the Great Pyramid. By 500 years!-u/PapaMarquezo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210409.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Meanwhile, director Peter Jackson looks like a multiverse hopper come to warn Legolas (Orlando Bloom) about the dangers of not wearing sun protection on the set of The Lord of the Rings: The Two Towers (2002).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Egyptians, not Julius Caesar, were the fathers of the modern calendar. The Roman calendar was lunar and had 355 days. Egyptians knew it was 365 days because the Nile would peak on the same day each year. Caesar learned this from his affair with Cleopatra and created the Julian calendar.-u/jimngo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210410.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. And director Jordan Peele isnt afraid to get up close and personal with Red (Lupita Nyongo) while filming Us (2019).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Cleopatra took baths in donkey milk to preserve her youthful skin, with legend saying it took 700 donkeys to supply the milk.-u/zepphiu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210411.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Brandy Norwood looks every part a princess behind the scenes, too, while filming Rodgers & Hammersteins Cinderella (1997).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Cleopatra and Mark Antony formed their own drinking club in 41 B.C. and were known to take part in elaborate games and contests and to walk the streets of Alexandria in disguise, pranking the residents.-u/ObsceneGlabella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210412.png" style="width:100%"><br>
+<span style="font-size:4em">21. Charlize Theron chats up director George Miller while sweatin it out in the desert during Mad Max: Fury Road (2015).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Due to inbreeding amongst the Ptolemies, Cleopatra had only two pairs of great-grandparents. One of those pairs was the son and daughter of the other.-u/zomskii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210413.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Director James Cameron chills with the Terminator (Arnold Schwarzenegger) and John Connor (Edward Furlong) while filming Terminator II: Judgement Day (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Despite the story that Cleopatra killed herself by letting an asp bite her, it was more probable that she killed herself using a mixture of opium and hemlock.-u/thr33beggars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210414.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Clive Barker chilling with his sick-lookin cenobites on the set of Hellraiser (1987). Honestly? Squad goals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Julius Caesar and Cleopatra had a child together name Caesarion, which translates to little caesar.-u/Dangerrios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210415.png" style="width:100%"><br>
+<span style="font-size:4em">24. Oh, did I say squad goals?! Heres Ernie Hudson, Harold Ramis, director Ivan Reitman, Dan Aykroyd, and Bill Murray posing by their beloved car on the set of Ghostbusters II (1989).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Director George Lucas looks on while Ian McDiarmid and Samuel L. Jackson practice their laser sword duels on the set of Star Wars: Episode III — Revenge of the Sith (2005).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Heath Ledgers Joker gets a mid-day touch-up from make-up artist John Caglione Jr. while shooting The Dark Knight (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Did someone say knight?! Heres director David Lowery taking a moment to instruct Ralph Ineson and Dev Patel on the set of The Green Knight (2021). Im obsessed with how casual this tree man looks here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. And behind-the scenes pics arent just for live action movies! Heres artist Mark Henn as he works on a sketch of Belle while animating Beauty and the Beast (1991).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. And Eddie Murphy getting into voicing Donkey in the recording sessions for Shrek (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Last, but certainly not least: Cate Blanchett looks on as director Taika Waititi shows her some shots on set of Thor: Ragnarok (2017). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207880.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
+## <a href="#linky15" id="linky14">25 Unknown Wrestling Facts For Fans</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211651.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. TIME Magazines Person of the Century online poll resulted in the top spots going to Jesus Christ and Ric Flair, neither of which were considered eligible. - u/Stocky_Racoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210340.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211669.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. WWFS Iron Sheik, whose shtick was to be pro Iranian and very anti-American (usually alongside Nikolai Volkoff in the 80s), had previously been an assistant coach on the U.S. National Wrestling Team during the Olympics. - u/Rexton9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210342.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211666.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Despite not existing for the past 30 years, the Soviet Union still holds the most Olympic gold medals for wrestling. - u/disc2k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211652.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The WWE was known as the WWF (World Wrestling Federation) till 2002, when it lost a lawsuit against the World Wildlife Fund. However, even though it maintains the WWF trademark, the World Wildlife Fund officially renamed itself as the World Wide Fund for Nature in 1986. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210341.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211656.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Oil Wrestling is one of the most popular sports in Turkey. - u/baffybonk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211654.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. A 2014 report found that the mortality rate for professional wrestlers was significantly higher than that of athletes in other sports. - u/Gwen_Tennyson10</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211653.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Professional wrestler Scott Hall was diagnosed with post traumatic stress disorder, years after killing a man in self defense. Hall wrestled away the drunken man’s gun, and shot him in the head, outside of Hall’s place of work. - u/borderbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210339.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211655.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The stunt of Jerry Lawler slapping Andy Kaufman on David Letterman was not revealed as a hoax until years later. - u/shewhodrives</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211667.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Author Ken Kesey (One Flew Over the Cuckoo’s Nest) qualified for the US Olympic Wrestling Team, but due to a shoulder injury was never able to compete. - u/ManOfLaBook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211657.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Sputnik Monroe, a 60s Memphis wrestler. As part of his villainous act, he fought against segregation and frequented black neighbourhoods. He succeeded in ending segregation in wrestling arenas and became one of the biggest draws in wrestling history. - u/UndercoverDoll49</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211658.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Cryme Tyme. A WWE wrestling duo from 2006 that consisted of two black men, dressed in thug outfits, that would show up in random broadcasts and steal items like the broadcasters laptop. - u/Iam_a_honeybadger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211663.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Black Knight from Monty Python was based on a real person: Arrichion of Phigalia, a Greek wrestler who famously refused to give up during a particularly tough wrestling match. He died during the match, but still won because his opponent surrendered, not realizing he was dead. - u/IHad360K_KarmaDammit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211659.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Bonnie Tyler’s (1986) song “Ravashing” was originally written by Jim Steinman as an instrumental track on The Wrestling Album (1985), titled Hulk Hogans Theme. - u/AliWalnuts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211660.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Molluscum contagiosum. Commonly called the wrestling disease It is a skin infection with no cure. It can take the immune system 6 months to 4 years to clear it up. Depending on transmission it can also be classified as an STD. - u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211661.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Pro wrestler Batista decided to get into wrestling after realizing he had squandered his 20s and was living in poverty to the point that he had to borrow money to buy Christmas presents for his kids. - u/astarisaslave</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211662.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Kurt Angle won an olympic gold medal in wrestling with a broken neck. - u/averageredditcuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211648.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Before he was president, Lincoln was a wrestler winning 299 out of 300 matches. Old Abe is actually in the Wrestling Hall of Fame. - u/joecooool418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211664.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. André the Giant grew so fast that his own parents didnt recognize him. He left home at 14 and returned at 19, having already become a professional wrestler. As he explained his career choice, they realized they had seen him wrestle on TV under his alias, without knowing it was their son. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211665.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Marvel owned the rights to the name Hulk Hogan from 84-04. For each match Hogan wrestled, Marvel was paid $100. Marvel also made royalties on merch and every project involving his name. When he dropped Hulk and started going by Hollywood Hogan in 96, he was able to avoid paying the fees. - u/demafrost</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211650.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. A booker for WCW once told Mark Calaway, then using the name Mean Mark Callous, that nobody would ever pay to see him wrestle. The next year he left the company and joined WWF and started wrestling as The Undertaker. - u/HistoricalDebates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211668.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Nicolas Cage was considered for the role of Randy The Ram Robinson in The Wrestler. When taken to a live event, he thought wrestling was real like UFC! In the end, the crew had a meeting where it was determined that Cage looked too healthy for the part, so the role went to Mickey Rourke. - u/broken_beat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211670.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Dwayne Johnson aka The Rock began his acting and wrestling career after being cut from the Calgary Stampeders of the Canadian Football League. He would later say Sometimes, your biggest dreams that don’t come true are the best things that never happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211671.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Kevin James, the actor behind King of Queens, Paul Blart Mall Cop, and Becky was on his high schools wrestling team but was injured his senior year. His replacement, future WWE superstar and Hall of Famer, Mick Foley. - u/FilmBrony</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211647.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Macho Man Randy Savages first wrestling character was called The Spider, based off of Spider-Man. He would later star as the villainn wrestler Bone Saw in The Amazing Spiderman movie. - u/ulcerman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211649.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Professional wrestler Kerry Von Erich had to have his foot amputated after a bad accident, but continued wrestling while secretly wearing a prosthetic - even showering in his boots so no one would know. His injury wasnt public knowledge until his death from suicide 7 years later. - u/CletusVanDamnit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210363.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
