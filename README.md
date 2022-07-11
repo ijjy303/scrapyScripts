@@ -1,7 +1,113 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/11/2022-15:47:18
+Last updated: 07/11/2022-16:47:18
 <br>
-## <a href="#linky2" id="linky1">30 Behind-The-Scenes Photos From Popular Movies</a><br>
+## <a href="#linky2" id="linky1">20 Lesser Known Facts About Cameron Diaz</a><br>
+
+<span style="font-size:4em">1. Benji Madden, guitarist of Good Charlotte and husband to Cameron Diaz, has a tattoo on his buttcheeks which, when spread, reveals an image of Jesus Christ blowing bubbles. - u/Mr_Swirly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cameron Diaz announced her retirement from acting in 2016 and has not acted since her role in Annie in 2014. - u/albuhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Paul McCartney, President Jimmy Carter, Cameron Diaz, Mick Jagger, Steve Martin, Fidel Castro, and Agatha Christie are/were all birdwatching enthusiasts. - u/ChanceGuest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Cameron Diaz and Snoop Dogg used to go to the same high school - u/Spawnacus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Cameron Diaz was all set to star as Sonya Blade in the 1995 Mortal Kombat movie, until she broke her wrist before filming began and she had to be replaced by Bridgette Wilson-Sampras - u/fumblebuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Cameron Diaz bought weed from Snoop Dogg in High School. - u/Justdandy325</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. One of the brothers from Good Charlotte married Nicole Richie and the other married Cameron Diaz. - u/agentorange4tang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Jackie Chan, Carrie Fisher, Cameron Diaz, Sylvester Stallone starred in Porn. - u/123choji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Actress Cameron Diaz hasnt used deodorant in 20 years and believes men wouldnt need to if they just trimmed a little. - u/GizmosArrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cameron Diaz has OCD and opens doorknobs using her elbows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Will Smith claims that Cameron Diaz lost the lead role opposite him in the movie Hitch because producers were worried about the nations problem of seeing a black man and a white woman getting intimate. So, Cuban-American Eva Mendes was cast instead. - u/Reagansmash1994</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Cameron Diaz hasnt had a movie thats gotten good reviews since the 2005 film In her Shoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Once, the highest grossing Actor of all time was Tom Hanks. The highest grossing Actress was Cameron Diaz.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Cameron Diazs first appearance as an actress was in The Mask with Jim Carey - u/JazzWolf44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Cameron Diaz was considered for the role of Bridget Jones - u/busmoswag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Cameron Diaz sits atop of the list of actresses whose movies have made the most money at the worldwide box office, followed by Cate Blanchett and Helena Bonham Carter. - u/minc1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Nicole Richie has singer Lionel Richie (adoptive father), Sheila E. (biological aunt) & Cameron Diaz (sister-in-law) as part of her family. - u/laidbackcrusade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Composer John Powell (who did the soundtrack for the Bourne movies) composed the music for Knight and Day, starring Tom Cruise and Cameron Diaz. - u/grovesprof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Many high-profile American celebrities (like Tommy Lee Jones, Cameron Diaz, Sylvester Stallone) have appeared in many Japanese commercials; some have become a spokesperson for a particular Japanese product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Back in 1992, Cameron Diaz shot a softcore bondage video called Shes No Angel: Cameron Diaz - u/sedgwickave1520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210105.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">Gym Influencer Commands Guy to Stop Mid-Workout So She Can Film a Video</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112054/87210845/ONE.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112116/87210849/two.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112105/87210847/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112052/87210844/four.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112043/87210843/five.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112115/87210848/six.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112103/87210846/seven.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">20 Best Jack Black Memes Of All Time</a><br>
+
+<span style="font-size:4em">1. Actually, Jack Black can play a mythologically accurate Thor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210045.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There are too many Jack Blacks in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Jacked Jack Black Playing Black Jack With Black Jack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210047.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. The respect is mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Jack Black wins, easy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I am someone of a photo-editor myself. - Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Gotta say the meme has a point.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Facts!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. That Black Jack Black image is truly a masterpiece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210049.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Well, Elon Musk can be added alongside Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. He wrote this for Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Well, no wonder the kid was sent to hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The meme has returned and it is better than ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If you had to describe Jack Black and the chaotic energy his personality brings, it would be this meme.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210063.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">30 Behind-The-Scenes Photos From Popular Movies</a><br>
 
 <span style="font-size:4em">1. Julia Roberts takes over for director Garry Marshall on camera for Pretty Woman (1990).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207858.jpg" style="width:100%"><br>
 
@@ -65,122 +171,225 @@ Last updated: 07/11/2022-15:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">55 Really Cool Before And After Photos of How Things Change</a><br>
+## <a href="#linky6" id="linky5">32 Pics and Memes It’s Hard to Argue With</a><br>
 
-<span style="font-size:4em">1. “My first-ever crazy candy cake vs one of my latest ones”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207130.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Youll never have to eat again!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034357/87211089/technicallythetruth2.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “I tried really hard. It didn’t deserve to be thrown away!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207139.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. If the sign said clean restrooms would he have done it?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034431/87211092/technicallythetruth4.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I like to draw an eyeball every few years to mark my progress, this year I’m really proud.” Both are drawings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207175.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Tank tops do not protect against shark attacks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034408/87211090/technicallythetruth1.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Before and after a 40-pound weight loss — I can’t even begin to describe how much better I feel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207146.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211109/technicallythetruth21.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I’ve never had a restoration as rusty as this one turn out this good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207142.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Well at least I know it will never be my body bag. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034539/87211098/technicallythetruth11.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “They told us it might be cancer, but we adopted her anyway. Turns out she was just stressed out!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207135.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034544/87211099/technicallythetruth9.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Before and after I cleaned my backyard”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207136.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034557/87211100/technicallythetruth14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Changed my career 1 year ago to make cookies for a living. Here are the photos at the beginning and now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207137.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034608/87211101/technicallythetruth13.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. The first hard disk from 1965 compared to some modern ones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207138.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Well... still only 31. The cowboys are not winning any time soon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034454/87211094/technicallythetruth5.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Some of my babies before and after a good soak”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207140.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034619/87211102/technicallythetruth15.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I compared my art progress from the last 10 years!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207141.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. And the best Thor movie since Ragnarok! </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034629/87211103/technicallythetruth12.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “My first ever attempt at making pain au chocolate a year ago vs now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207134.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034631/87211104/technicallythetruth16.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “18 months apart”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207143.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I can afford the watch... ing other people in the Apple store through the window. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034505/87211095/technicallythetruth7.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. A hair dryer in 1958 and in 2019</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207144.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034642/87211105/technicallythetruth17.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I started imaging Saturn 2 years ago today. This is my progress.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207145.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034655/87211106/technicallythetruth19.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207147.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034706/87211107/technicallythetruth20.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “The chest of drawers, refreshed. It needs a little more paint on some places, but I’m pleased with it so far.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207148.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. And after all that, the trash had as good a chance as they did at killing the DS.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211108/technicallythetruth18.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “My progress in making cakes over the year”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207149.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The realistic answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034442/87211093/technicallythetruth6.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “One year of makeup practice — there’s still room for improvement but I’m happy with how this look turned out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207150.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034728/87211110/technicallythetruth22.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. When you draw 6 hours a day:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207151.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034731/87211111/technicallythetruth24.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “I made the same frog as a knitting progress marker. I’ve come so far.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207152.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Believe it or not...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034420/87211091/technicallythetruth3.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. “The first macrame owl I made vs my most recent one”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207132.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034739/87211112/technicallythetruth25.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. “My nail growth progress! If I can do it, anyone can!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207153.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Ask and you shall receive. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034528/87211097/technicallythetruth10.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Spoon carving progression: my first spoon is on the left, and my latest one is on the right.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207154.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034742/87211113/technicallythetruth26.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. “I lost 50 pounds. Am I crazy or did I lose weight in my nose?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207155.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034750/87211114/technicallythetruth27.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. “Jo was adopted 3 months ago. I hardly recognize her in earlier pictures, and I can’t believe how fluffy she’s gotten.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207156.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. What a strange answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034516/87211096/technicallythetruth8.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. “The before and after results of cleaning and polishing an old purse of my mom’s from the ’80s!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207157.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034756/87211116/technicallythetruth28.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. “My friend needed someone to fix a cake that she got from a decorator. I’m proud of my clean-up job!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207158.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. The only green vehicle that gets under 15 mpg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034802/87211117/technicallythetruth29.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. “6 months after my double jaw surgery”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207133.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034807/87211118/technicallythetruth30.png" style="width:100%"><br>
 
-<span style="font-size:4em">30. “I don’t think our retaining wall had been touched since it was built in 1983.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207159.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Thats suspicious. Well have to triangulate his position. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034814/87211119/technicallythetruth31.png" style="width:100%"><br>
 
-<span style="font-size:4em">31. A little over a year and about 175 pounds lighter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “The progression of this cocoon hanging off the side of our house is awesome. Photos taken 8 days apart.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “Our kitchen before and after remodeling.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “This arrangement I made is doing remarkably well. Before/After. Time: About 5 months.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “In 2006 my boyfriend asked me to do an epic painting for his birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “I recreated my 2018 New Year’s cake to see my progress in cake decorating.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. “Exactly one year of hair growth”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. “My 90-year-old grandmother’s handwriting before and after her focused ultrasound essential tremor treatment”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. “My latest ceramic project next to my first one, 2 years worth of progress”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. “My first home! I bought it when I turned 21.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. “We found this plant in the trash a year and a half ago, and look at it now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. “This is a visual of my progress in becoming a happier and healthier person with the help of therapy and the proper medication.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. “I started doing astrophotography from my backyard one year ago, and this is my progress!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. “Before and after processing the Andromeda Galaxy from my backyard”
-“The image is processed to remove light pollution, color balance, and boost faint details. Nothing artificial is added. You could literally input the before picture into nearly any image editor and arrive at the second image. The trick is that the first image is absolutely massive, nearly half a gig large and full of faint details.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. This is someone’s progress in 3D modeling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207184.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034818/87211120/technicallythetruth32.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">XL Serving of Fun Randoms and Cool Pics</a><br>
+## <a href="#linky7" id="linky6">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211649.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">47 Relatable Memes Because We've All Been There</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211643.png" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211644.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211645.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">XL Serving of Fun Randoms and Cool Pics</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87211880.jpg" style="width:100%"><br>
 
@@ -290,73 +499,7 @@ Last updated: 07/11/2022-15:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">32 Pics and Memes It’s Hard to Argue With</a><br>
-
-<span style="font-size:4em">1. Youll never have to eat again!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034357/87211089/technicallythetruth2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. If the sign said clean restrooms would he have done it?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034431/87211092/technicallythetruth4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Tank tops do not protect against shark attacks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034408/87211090/technicallythetruth1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211109/technicallythetruth21.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Well at least I know it will never be my body bag. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034539/87211098/technicallythetruth11.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034544/87211099/technicallythetruth9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034557/87211100/technicallythetruth14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034608/87211101/technicallythetruth13.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Well... still only 31. The cowboys are not winning any time soon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034454/87211094/technicallythetruth5.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034619/87211102/technicallythetruth15.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. And the best Thor movie since Ragnarok! </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034629/87211103/technicallythetruth12.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034631/87211104/technicallythetruth16.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. I can afford the watch... ing other people in the Apple store through the window. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034505/87211095/technicallythetruth7.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034642/87211105/technicallythetruth17.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034655/87211106/technicallythetruth19.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034706/87211107/technicallythetruth20.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. And after all that, the trash had as good a chance as they did at killing the DS.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211108/technicallythetruth18.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. The realistic answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034442/87211093/technicallythetruth6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034728/87211110/technicallythetruth22.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034731/87211111/technicallythetruth24.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Believe it or not...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034420/87211091/technicallythetruth3.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034739/87211112/technicallythetruth25.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. Ask and you shall receive. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034528/87211097/technicallythetruth10.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034742/87211113/technicallythetruth26.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034750/87211114/technicallythetruth27.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. What a strange answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034516/87211096/technicallythetruth8.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034756/87211116/technicallythetruth28.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. The only green vehicle that gets under 15 mpg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034802/87211117/technicallythetruth29.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034807/87211118/technicallythetruth30.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. Thats suspicious. Well have to triangulate his position. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034814/87211119/technicallythetruth31.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034818/87211120/technicallythetruth32.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">12 Useful Details Many People Never Noticed</a><br>
+## <a href="#linky10" id="linky9">12 Useful Details Many People Never Noticed</a><br>
 
 <span style="font-size:4em">1. Most toothbrushes have colored bristles not just for design purposes but also as a helpful indicator that your brush is already too worn out to use. Once the vibrance fades and the fibers thin out, it’s time to switch it out for a new one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211439.jpg" style="width:100%"><br>
 
@@ -384,319 +527,51 @@ Last updated: 07/11/2022-15:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Lesser Known Facts About Cameron Diaz</a><br>
+## <a href="#linky11" id="linky10">20 Days That Got Completely Ruined</a><br>
 
-<span style="font-size:4em">1. Benji Madden, guitarist of Good Charlotte and husband to Cameron Diaz, has a tattoo on his buttcheeks which, when spread, reveals an image of Jesus Christ blowing bubbles. - u/Mr_Swirly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210086.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Trying to finish up a last minute job. Don’t forget to latch your screw boxes people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211948.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cameron Diaz announced her retirement from acting in 2016 and has not acted since her role in Annie in 2014. - u/albuhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210087.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. ouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211936.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Paul McCartney, President Jimmy Carter, Cameron Diaz, Mick Jagger, Steve Martin, Fidel Castro, and Agatha Christie are/were all birdwatching enthusiasts. - u/ChanceGuest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210088.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Accidentally left the garage open for 1 hour. They’re everywhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211935.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cameron Diaz and Snoop Dogg used to go to the same high school - u/Spawnacus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210089.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Just got off work, tripped on the way in the door.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211937.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Cameron Diaz was all set to star as Sonya Blade in the 1995 Mortal Kombat movie, until she broke her wrist before filming began and she had to be replaced by Bridgette Wilson-Sampras - u/fumblebuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210090.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I think my plate was telling me that I’m 35 and don’t need Totinos pizza.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211938.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Cameron Diaz bought weed from Snoop Dogg in High School. - u/Justdandy325</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210091.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Made two of these bad boys, was basically finished with the first before I realized I was eating mold.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211939.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. One of the brothers from Good Charlotte married Nicole Richie and the other married Cameron Diaz. - u/agentorange4tang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210092.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Used ramps to change oil for the first time… while backing up, the ramps slid/shot out and hit the 5qt used oil container and painted my garage a new color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211949.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Jackie Chan, Carrie Fisher, Cameron Diaz, Sylvester Stallone starred in Porn. - u/123choji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210093.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Our washer decided to become a smoke machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211940.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Actress Cameron Diaz hasnt used deodorant in 20 years and believes men wouldnt need to if they just trimmed a little. - u/GizmosArrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210094.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211941.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cameron Diaz has OCD and opens doorknobs using her elbows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210095.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “My 2yo GE oven exploded an hour after I turned it off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211942.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Will Smith claims that Cameron Diaz lost the lead role opposite him in the movie Hitch because producers were worried about the nations problem of seeing a black man and a white woman getting intimate. So, Cuban-American Eva Mendes was cast instead. - u/Reagansmash1994</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210096.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Broke my finger at work, got fired after the drug test. All at the end of a 12 hour night shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211943.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cameron Diaz hasnt had a movie thats gotten good reviews since the 2005 film In her Shoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210097.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “New hobby= new broken bones. 30 seconds after putting on roller blades resulted in 2 broken wrists!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211944.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Once, the highest grossing Actor of all time was Tom Hanks. The highest grossing Actress was Cameron Diaz.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210098.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “A wasp flew into my helmet while I was riding my motorcycle and gave me a piece of its mind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211945.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Cameron Diazs first appearance as an actress was in The Mask with Jim Carey - u/JazzWolf44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210099.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “My Little Brother Was Trying To Move Today… Geez.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211946.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Cameron Diaz was considered for the role of Bridget Jones - u/busmoswag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210100.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “My gf is from a small town that doesn’t get a lot of nice things. A couple of hours after the town welcomed this mural, this happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211947.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Cameron Diaz sits atop of the list of actresses whose movies have made the most money at the worldwide box office, followed by Cate Blanchett and Helena Bonham Carter. - u/minc1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210101.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Nicole Richie has singer Lionel Richie (adoptive father), Sheila E. (biological aunt) & Cameron Diaz (sister-in-law) as part of her family. - u/laidbackcrusade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210102.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Broke my leg by standing too fast and falling onto myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Composer John Powell (who did the soundtrack for the Bourne movies) composed the music for Knight and Day, starring Tom Cruise and Cameron Diaz. - u/grovesprof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210103.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “The stairs on my daily commute pedestrian bridge were removed without warning..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Many high-profile American celebrities (like Tommy Lee Jones, Cameron Diaz, Sylvester Stallone) have appeared in many Japanese commercials; some have become a spokesperson for a particular Japanese product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210104.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “First overseas flight in 9 years! Paid extra for a window seat so I can see everything.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211953.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Back in 1992, Cameron Diaz shot a softcore bondage video called Shes No Angel: Cameron Diaz - u/sedgwickave1520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210105.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211649.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Brand New $1300 set of golf clubs I bought as a birthday present to myself. On my very first swing (club head is somewhere in the pond)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211954.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">47 Relatable Memes Because We've All Been There</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211643.png" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211644.png" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211645.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">20 Best Jack Black Memes Of All Time</a><br>
-
-<span style="font-size:4em">1. Actually, Jack Black can play a mythologically accurate Thor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210045.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There are too many Jack Blacks in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Jacked Jack Black Playing Black Jack With Black Jack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210047.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. The respect is mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Jack Black wins, easy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I am someone of a photo-editor myself. - Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Gotta say the meme has a point.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Facts!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. That Black Jack Black image is truly a masterpiece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210049.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Well, Elon Musk can be added alongside Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. He wrote this for Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Well, no wonder the kid was sent to hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The meme has returned and it is better than ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If you had to describe Jack Black and the chaotic energy his personality brings, it would be this meme.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210063.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">25 Facts About Confucius</a><br>
-
-<span style="font-size:4em">1. In 1967, Red Guards ransacked the graves of Confucius and his family under the slogan, Annihilate the Kong Family Business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The family tree of Confucius has been tracked for more than 2500 years, and with 80 generations, it is the longest known line of succession in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Analects, one of the most important scripture of Confucianism, which is a large collection of sayings and ideas attributed to the Chinese philosopher Confucius, literally starts with, Isnt it a pleasure to study and practice what you have learned?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Up until as recently as 2008, a descendant of Confucius held a cabinet-level position in the Taiwanese government, titled the Sacrificial Official to Confucius. The current holder is a 79th-generation descendant of the philosopher who died in 479 BC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Supreme Court building has sculpted representations of 18 people who impacted our concept of law, including Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. China has its own version of the Nobel Peace Prize called the Confucius Peace Prize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Confucius taught the Golden Rule (or law of reciprocity) 500 years before Jesus did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Confucius actual name was Kong Qiu. The name Confucius comes from the honorific Kong Fuzi, meaning Grand Master Kong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Chinese engravers snuck in hidden designs on banknotes as a way to protest Japanese occupation during World War II. The 1 yuan banknote of 1938 features Confucius with his fingers in an obscene gesture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Confucius used to work as a bookkeeper, before finally finding his true calling: becoming a cowherd. In later life, he also engaged in some teaching and philosophy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Jiroemon Kimura died at 116, being the current title holder for the longest life for a man. His secret he says is to eat until you are 80% full. It is a teaching of Confucius called Hara hachi bun me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Since 205 BC, 12 different Chinese emperors paid 20 personal visits to worship Confucius at his tomb in Qufu and 100 others sent their deputies for 196 official visits to pay their respects to him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. TIMEs Top 100 Most Significant Figures in History List ranks Aristotle at #8, the father of western philosophy, but Confucius whose ideas form the basis of Asian philosophy, is not ranked at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Gao Chai, a disciple of Confucius, served as a judge and once condemned a criminal to getting his foot cut off. When he was later fleeing the state, the same man saved his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Japan has a cult called Happy Science whose leader claims to channel the spirits of Muhammad, Christ, Buddha and Confucius (among many other beings) and claims to be the incarnation of the supreme spiritual being called El Cantare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Chopsticks originated during the Shang Dynasty as a substitute for knives. According to Confucius, knives were equated with acts of aggression and shouldnt be used at the table.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210380.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Confucius spent five days in jail because of an error of mistaken identity. He calmly played his lute until the error was resolved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Confucius never said, Before you embark on a journey of revenge, Dig two Graves. This was actually a Japanese Proverb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Confucius had a special place in his heart for unicorns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Confucius has a Dinosaur name after him; Confuciusornis sanctus, also known as the Holy Confucius Bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Harley Davidson hosted a Ride to Confucius in China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Confucius said there are three ways to achieve wisdom. First, by reflection, which is noblest; second, by imitation, which is easiest; and third by experience, which is the bitterest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Using toilet paper was first mentioned in the writings of the official Yan Zhitui (531–591) who said he dared not make use of paper from books by Confucius for his toilet usage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The locations of the bodies of various religious leaders are known - including Muhammad, Confucius, and a canine tooth of the Buddha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. William Hung is a 73rd Generation Descendant of Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210389.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">Gym Influencer Commands Guy to Stop Mid-Workout So She Can Film a Video</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112054/87210845/ONE.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112116/87210849/two.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112105/87210847/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112052/87210844/four.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112043/87210843/five.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112115/87210848/six.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112103/87210846/seven.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">20 Positive Facts That Are Also Disturbing</a><br>
+## <a href="#linky12" id="linky11">20 Positive Facts That Are Also Disturbing</a><br>
 
 <span style="font-size:4em">1. A chicken lived without his head for 18 months.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210332.jpg" style="width:100%"><br>
 
@@ -740,7 +615,7 @@ Last updated: 07/11/2022-15:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Monday Morning Randomness User Edition - Broncofan</a><br>
+## <a href="#linky13" id="linky12">Monday Morning Randomness User Edition - Broncofan</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103246/87212013/87133530.jpg" style="width:100%"><br>
 
@@ -883,6 +758,60 @@ Last updated: 07/11/2022-15:47:18
 <span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104816/87212025/87201628.png" style="width:100%"><br>
 
 <span style="font-size:4em">71. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/104828/87212026/87201636.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">25 Facts About Confucius</a><br>
+
+<span style="font-size:4em">1. In 1967, Red Guards ransacked the graves of Confucius and his family under the slogan, Annihilate the Kong Family Business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The family tree of Confucius has been tracked for more than 2500 years, and with 80 generations, it is the longest known line of succession in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Analects, one of the most important scripture of Confucianism, which is a large collection of sayings and ideas attributed to the Chinese philosopher Confucius, literally starts with, Isnt it a pleasure to study and practice what you have learned?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Up until as recently as 2008, a descendant of Confucius held a cabinet-level position in the Taiwanese government, titled the Sacrificial Official to Confucius. The current holder is a 79th-generation descendant of the philosopher who died in 479 BC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Supreme Court building has sculpted representations of 18 people who impacted our concept of law, including Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. China has its own version of the Nobel Peace Prize called the Confucius Peace Prize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Confucius taught the Golden Rule (or law of reciprocity) 500 years before Jesus did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Confucius actual name was Kong Qiu. The name Confucius comes from the honorific Kong Fuzi, meaning Grand Master Kong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Chinese engravers snuck in hidden designs on banknotes as a way to protest Japanese occupation during World War II. The 1 yuan banknote of 1938 features Confucius with his fingers in an obscene gesture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Confucius used to work as a bookkeeper, before finally finding his true calling: becoming a cowherd. In later life, he also engaged in some teaching and philosophy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Jiroemon Kimura died at 116, being the current title holder for the longest life for a man. His secret he says is to eat until you are 80% full. It is a teaching of Confucius called Hara hachi bun me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Since 205 BC, 12 different Chinese emperors paid 20 personal visits to worship Confucius at his tomb in Qufu and 100 others sent their deputies for 196 official visits to pay their respects to him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. TIMEs Top 100 Most Significant Figures in History List ranks Aristotle at #8, the father of western philosophy, but Confucius whose ideas form the basis of Asian philosophy, is not ranked at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Gao Chai, a disciple of Confucius, served as a judge and once condemned a criminal to getting his foot cut off. When he was later fleeing the state, the same man saved his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Japan has a cult called Happy Science whose leader claims to channel the spirits of Muhammad, Christ, Buddha and Confucius (among many other beings) and claims to be the incarnation of the supreme spiritual being called El Cantare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Chopsticks originated during the Shang Dynasty as a substitute for knives. According to Confucius, knives were equated with acts of aggression and shouldnt be used at the table.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210380.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Confucius spent five days in jail because of an error of mistaken identity. He calmly played his lute until the error was resolved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Confucius never said, Before you embark on a journey of revenge, Dig two Graves. This was actually a Japanese Proverb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Confucius had a special place in his heart for unicorns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Confucius has a Dinosaur name after him; Confuciusornis sanctus, also known as the Holy Confucius Bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Harley Davidson hosted a Ride to Confucius in China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Confucius said there are three ways to achieve wisdom. First, by reflection, which is noblest; second, by imitation, which is easiest; and third by experience, which is the bitterest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Using toilet paper was first mentioned in the writings of the official Yan Zhitui (531–591) who said he dared not make use of paper from books by Confucius for his toilet usage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The locations of the bodies of various religious leaders are known - including Muhammad, Confucius, and a canine tooth of the Buddha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. William Hung is a 73rd Generation Descendant of Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210389.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
