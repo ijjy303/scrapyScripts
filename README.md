@@ -1,7 +1,61 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/11/2022-13:47:18
+Last updated: 07/11/2022-14:47:18
 <br>
-## <a href="#linky2" id="linky1">47 Relatable Memes Because We've All Been There</a><br>
+## <a href="#linky2" id="linky1">25 Unknown Wrestling Facts For Fans</a><br>
+
+<span style="font-size:4em">1. TIME Magazines Person of the Century online poll resulted in the top spots going to Jesus Christ and Ric Flair, neither of which were considered eligible. - u/Stocky_Racoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. WWFS Iron Sheik, whose shtick was to be pro Iranian and very anti-American (usually alongside Nikolai Volkoff in the 80s), had previously been an assistant coach on the U.S. National Wrestling Team during the Olympics. - u/Rexton9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Despite not existing for the past 30 years, the Soviet Union still holds the most Olympic gold medals for wrestling. - u/disc2k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The WWE was known as the WWF (World Wrestling Federation) till 2002, when it lost a lawsuit against the World Wildlife Fund. However, even though it maintains the WWF trademark, the World Wildlife Fund officially renamed itself as the World Wide Fund for Nature in 1986. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Oil Wrestling is one of the most popular sports in Turkey. - u/baffybonk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A 2014 report found that the mortality rate for professional wrestlers was significantly higher than that of athletes in other sports. - u/Gwen_Tennyson10</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Professional wrestler Scott Hall was diagnosed with post traumatic stress disorder, years after killing a man in self defense. Hall wrestled away the drunken man’s gun, and shot him in the head, outside of Hall’s place of work. - u/borderbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The stunt of Jerry Lawler slapping Andy Kaufman on David Letterman was not revealed as a hoax until years later. - u/shewhodrives</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Author Ken Kesey (One Flew Over the Cuckoo’s Nest) qualified for the US Olympic Wrestling Team, but due to a shoulder injury was never able to compete. - u/ManOfLaBook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Sputnik Monroe, a 60s Memphis wrestler. As part of his villainous act, he fought against segregation and frequented black neighbourhoods. He succeeded in ending segregation in wrestling arenas and became one of the biggest draws in wrestling history. - u/UndercoverDoll49</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Cryme Tyme. A WWE wrestling duo from 2006 that consisted of two black men, dressed in thug outfits, that would show up in random broadcasts and steal items like the broadcasters laptop. - u/Iam_a_honeybadger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Black Knight from Monty Python was based on a real person: Arrichion of Phigalia, a Greek wrestler who famously refused to give up during a particularly tough wrestling match. He died during the match, but still won because his opponent surrendered, not realizing he was dead. - u/IHad360K_KarmaDammit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Bonnie Tyler’s (1986) song “Ravashing” was originally written by Jim Steinman as an instrumental track on The Wrestling Album (1985), titled Hulk Hogans Theme. - u/AliWalnuts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Molluscum contagiosum. Commonly called the wrestling disease It is a skin infection with no cure. It can take the immune system 6 months to 4 years to clear it up. Depending on transmission it can also be classified as an STD. - u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Pro wrestler Batista decided to get into wrestling after realizing he had squandered his 20s and was living in poverty to the point that he had to borrow money to buy Christmas presents for his kids. - u/astarisaslave</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Kurt Angle won an olympic gold medal in wrestling with a broken neck. - u/averageredditcuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Before he was president, Lincoln was a wrestler winning 299 out of 300 matches. Old Abe is actually in the Wrestling Hall of Fame. - u/joecooool418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. André the Giant grew so fast that his own parents didnt recognize him. He left home at 14 and returned at 19, having already become a professional wrestler. As he explained his career choice, they realized they had seen him wrestle on TV under his alias, without knowing it was their son. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Marvel owned the rights to the name Hulk Hogan from 84-04. For each match Hogan wrestled, Marvel was paid $100. Marvel also made royalties on merch and every project involving his name. When he dropped Hulk and started going by Hollywood Hogan in 96, he was able to avoid paying the fees. - u/demafrost</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A booker for WCW once told Mark Calaway, then using the name Mean Mark Callous, that nobody would ever pay to see him wrestle. The next year he left the company and joined WWF and started wrestling as The Undertaker. - u/HistoricalDebates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Nicolas Cage was considered for the role of Randy The Ram Robinson in The Wrestler. When taken to a live event, he thought wrestling was real like UFC! In the end, the crew had a meeting where it was determined that Cage looked too healthy for the part, so the role went to Mickey Rourke. - u/broken_beat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Dwayne Johnson aka The Rock began his acting and wrestling career after being cut from the Calgary Stampeders of the Canadian Football League. He would later say Sometimes, your biggest dreams that don’t come true are the best things that never happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Kevin James, the actor behind King of Queens, Paul Blart Mall Cop, and Becky was on his high schools wrestling team but was injured his senior year. His replacement, future WWE superstar and Hall of Famer, Mick Foley. - u/FilmBrony</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Macho Man Randy Savages first wrestling character was called The Spider, based off of Spider-Man. He would later star as the villainn wrestler Bone Saw in The Amazing Spiderman movie. - u/ulcerman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Professional wrestler Kerry Von Erich had to have his foot amputated after a bad accident, but continued wrestling while secretly wearing a prosthetic - even showering in his boots so no one would know. His injury wasnt public knowledge until his death from suicide 7 years later. - u/CletusVanDamnit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210363.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">47 Relatable Memes Because We've All Been There</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211599.jpg" style="width:100%"><br>
 
@@ -99,50 +153,6 @@ Last updated: 07/11/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Best Jack Black Memes Of All Time</a><br>
-
-<span style="font-size:4em">1. Actually, Jack Black can play a mythologically accurate Thor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210045.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There are too many Jack Blacks in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Jacked Jack Black Playing Black Jack With Black Jack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210047.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. The respect is mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Jack Black wins, easy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I am someone of a photo-editor myself. - Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Gotta say the meme has a point.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Facts!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. That Black Jack Black image is truly a masterpiece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210049.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Well, Elon Musk can be added alongside Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. He wrote this for Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Well, no wonder the kid was sent to hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The meme has returned and it is better than ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If you had to describe Jack Black and the chaotic energy his personality brings, it would be this meme.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210063.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
 ## <a href="#linky4" id="linky3">Gym Influencer Commands Guy to Stop Mid-Workout So She Can Film a Video</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/112054/87210845/ONE.png" style="width:100%"><br>
@@ -205,61 +215,7 @@ Last updated: 07/11/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Facts About Confucius</a><br>
-
-<span style="font-size:4em">1. In 1967, Red Guards ransacked the graves of Confucius and his family under the slogan, Annihilate the Kong Family Business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The family tree of Confucius has been tracked for more than 2500 years, and with 80 generations, it is the longest known line of succession in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Analects, one of the most important scripture of Confucianism, which is a large collection of sayings and ideas attributed to the Chinese philosopher Confucius, literally starts with, Isnt it a pleasure to study and practice what you have learned?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Up until as recently as 2008, a descendant of Confucius held a cabinet-level position in the Taiwanese government, titled the Sacrificial Official to Confucius. The current holder is a 79th-generation descendant of the philosopher who died in 479 BC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Supreme Court building has sculpted representations of 18 people who impacted our concept of law, including Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. China has its own version of the Nobel Peace Prize called the Confucius Peace Prize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Confucius taught the Golden Rule (or law of reciprocity) 500 years before Jesus did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Confucius actual name was Kong Qiu. The name Confucius comes from the honorific Kong Fuzi, meaning Grand Master Kong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Chinese engravers snuck in hidden designs on banknotes as a way to protest Japanese occupation during World War II. The 1 yuan banknote of 1938 features Confucius with his fingers in an obscene gesture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Confucius used to work as a bookkeeper, before finally finding his true calling: becoming a cowherd. In later life, he also engaged in some teaching and philosophy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Jiroemon Kimura died at 116, being the current title holder for the longest life for a man. His secret he says is to eat until you are 80% full. It is a teaching of Confucius called Hara hachi bun me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Since 205 BC, 12 different Chinese emperors paid 20 personal visits to worship Confucius at his tomb in Qufu and 100 others sent their deputies for 196 official visits to pay their respects to him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. TIMEs Top 100 Most Significant Figures in History List ranks Aristotle at #8, the father of western philosophy, but Confucius whose ideas form the basis of Asian philosophy, is not ranked at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Gao Chai, a disciple of Confucius, served as a judge and once condemned a criminal to getting his foot cut off. When he was later fleeing the state, the same man saved his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Japan has a cult called Happy Science whose leader claims to channel the spirits of Muhammad, Christ, Buddha and Confucius (among many other beings) and claims to be the incarnation of the supreme spiritual being called El Cantare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Chopsticks originated during the Shang Dynasty as a substitute for knives. According to Confucius, knives were equated with acts of aggression and shouldnt be used at the table.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210380.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Confucius spent five days in jail because of an error of mistaken identity. He calmly played his lute until the error was resolved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Confucius never said, Before you embark on a journey of revenge, Dig two Graves. This was actually a Japanese Proverb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Confucius had a special place in his heart for unicorns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Confucius has a Dinosaur name after him; Confuciusornis sanctus, also known as the Holy Confucius Bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Harley Davidson hosted a Ride to Confucius in China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Confucius said there are three ways to achieve wisdom. First, by reflection, which is noblest; second, by imitation, which is easiest; and third by experience, which is the bitterest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Using toilet paper was first mentioned in the writings of the official Yan Zhitui (531–591) who said he dared not make use of paper from books by Confucius for his toilet usage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The locations of the bodies of various religious leaders are known - including Muhammad, Confucius, and a canine tooth of the Buddha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. William Hung is a 73rd Generation Descendant of Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210389.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">32 Pics and Memes It’s Hard to Argue With</a><br>
+## <a href="#linky6" id="linky5">32 Pics and Memes It’s Hard to Argue With</a><br>
 
 <span style="font-size:4em">1. Youll never have to eat again!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034357/87211089/technicallythetruth2.png" style="width:100%"><br>
 
@@ -325,7 +281,7 @@ Last updated: 07/11/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">12 Useful Details Many People Never Noticed</a><br>
+## <a href="#linky7" id="linky6">12 Useful Details Many People Never Noticed</a><br>
 
 <span style="font-size:4em">1. Most toothbrushes have colored bristles not just for design purposes but also as a helpful indicator that your brush is already too worn out to use. Once the vibrance fades and the fibers thin out, it’s time to switch it out for a new one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211439.jpg" style="width:100%"><br>
 
@@ -353,7 +309,7 @@ Last updated: 07/11/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Monday Morning Randomness User Edition - Broncofan</a><br>
+## <a href="#linky8" id="linky7">Monday Morning Randomness User Edition - Broncofan</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103246/87212013/87133530.jpg" style="width:100%"><br>
 
@@ -499,7 +455,7 @@ Last updated: 07/11/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
+## <a href="#linky9" id="linky8">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211651.jpg" style="width:100%"><br>
 
@@ -553,103 +509,105 @@ Last updated: 07/11/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">20 Lesser Known Facts About Cameron Diaz</a><br>
+## <a href="#linky10" id="linky9">20 Best Jack Black Memes Of All Time</a><br>
 
-<span style="font-size:4em">1. Benji Madden, guitarist of Good Charlotte and husband to Cameron Diaz, has a tattoo on his buttcheeks which, when spread, reveals an image of Jesus Christ blowing bubbles. - u/Mr_Swirly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210086.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Actually, Jack Black can play a mythologically accurate Thor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210045.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cameron Diaz announced her retirement from acting in 2016 and has not acted since her role in Annie in 2014. - u/albuhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210087.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. There are too many Jack Blacks in this picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Paul McCartney, President Jimmy Carter, Cameron Diaz, Mick Jagger, Steve Martin, Fidel Castro, and Agatha Christie are/were all birdwatching enthusiasts. - u/ChanceGuest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210088.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Jacked Jack Black Playing Black Jack With Black Jack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210047.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cameron Diaz and Snoop Dogg used to go to the same high school - u/Spawnacus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210089.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The respect is mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Cameron Diaz was all set to star as Sonya Blade in the 1995 Mortal Kombat movie, until she broke her wrist before filming began and she had to be replaced by Bridgette Wilson-Sampras - u/fumblebuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210090.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Jack Black wins, easy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Cameron Diaz bought weed from Snoop Dogg in High School. - u/Justdandy325</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210091.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I am someone of a photo-editor myself. - Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. One of the brothers from Good Charlotte married Nicole Richie and the other married Cameron Diaz. - u/agentorange4tang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210092.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Gotta say the meme has a point.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Jackie Chan, Carrie Fisher, Cameron Diaz, Sylvester Stallone starred in Porn. - u/123choji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210093.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Facts!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Actress Cameron Diaz hasnt used deodorant in 20 years and believes men wouldnt need to if they just trimmed a little. - u/GizmosArrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210094.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. That Black Jack Black image is truly a masterpiece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210049.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cameron Diaz has OCD and opens doorknobs using her elbows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210095.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Well, Elon Musk can be added alongside Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Will Smith claims that Cameron Diaz lost the lead role opposite him in the movie Hitch because producers were worried about the nations problem of seeing a black man and a white woman getting intimate. So, Cuban-American Eva Mendes was cast instead. - u/Reagansmash1994</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210096.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. He wrote this for Jack Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cameron Diaz hasnt had a movie thats gotten good reviews since the 2005 film In her Shoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210097.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Well, no wonder the kid was sent to hell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Once, the highest grossing Actor of all time was Tom Hanks. The highest grossing Actress was Cameron Diaz.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210098.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The meme has returned and it is better than ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Cameron Diazs first appearance as an actress was in The Mask with Jim Carey - u/JazzWolf44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210099.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. If you had to describe Jack Black and the chaotic energy his personality brings, it would be this meme.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Cameron Diaz was considered for the role of Bridget Jones - u/busmoswag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210100.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Cameron Diaz sits atop of the list of actresses whose movies have made the most money at the worldwide box office, followed by Cate Blanchett and Helena Bonham Carter. - u/minc1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210101.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Nicole Richie has singer Lionel Richie (adoptive father), Sheila E. (biological aunt) & Cameron Diaz (sister-in-law) as part of her family. - u/laidbackcrusade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210102.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Composer John Powell (who did the soundtrack for the Bourne movies) composed the music for Knight and Day, starring Tom Cruise and Cameron Diaz. - u/grovesprof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210103.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Many high-profile American celebrities (like Tommy Lee Jones, Cameron Diaz, Sylvester Stallone) have appeared in many Japanese commercials; some have become a spokesperson for a particular Japanese product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210104.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Back in 1992, Cameron Diaz shot a softcore bondage video called Shes No Angel: Cameron Diaz - u/sedgwickave1520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210105.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">24 Facts About Cleopatra History Couldn't Hide</a><br>
-
-<span style="font-size:4em">1. Cleopatra was the only Ptolemaic ruler to learn to read, write, and converse in Egyptian. She could also speak 7 languages.-u/kevlarbuns</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Some scholars believe Cleopatras own handwriting translating to Make it happen! appears at the end of a papyrus document granting financial rights to a Roman absentee landlord. The document is currently in the Egyptian Museum of Berlin.-u/nelirious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Pharaonic Period of Ancient Egypt lasted 3 Millennia. The timespan between the 1st Pharaoh of a Unified Egypt, Narmer, & the last Pharaoh of Egypt, Cleopatra VII was over 3,000 years.-u/GenericReditUserName</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Cleopatra often used clever stagecraft to woo potential allies. For example, when she met Mark Antony, she arrived on a golden barge made up to look like the goddess Aphrodite. Antony, who considered himself the embodiment of Dionysus, was instantly enchanted.-u/The_Internet_Author</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The famous sculpture Sleeping Ariadne was mistakenly identified as a sculpture of Cleopatra for a long time due to the snake bracelet worn by the subject.-u/vedvineet98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Julius Caesar and Cleopatra were in a relationship and political alliance. Julius Caesar needed Cleopatras money, and Cleopatra needed the help of Caesars army to take control of Egypt from her husband/brother Ptolemy XIII.-u/Upbeat_Analyst_3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In 1917, a film named Cleopatra was released. Years later, the film was destroyed in a fire in 1937. Today, only 17 seconds of the 2-hour film remain.-u/dennismarr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The tomb of Cleopatra and Mark Antonys only daughter, Cleopatra Selene II, is located in Algeria. Brought to Rome after her parents suicide, she later married Juba II, a Berber prince. Her tomb has been looted over the centuries and was once used by the French Navy for target practice.-u/trifletruffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 1881, an Egyptian obelisk named Cleopatras Needle was erected in NYCs Central Park. A capsule buried beneath holds the 1870 census, a Bible, a Webster’s Dictionary, the complete works of Shakespeare, a guide to Egypt, and a copy of the Declaration of Independence.-u/MusicSole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cleopatra was one of the wealthiest women of all time. Her net worth today would be around $95.8 billion USD.-u/The-Angler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Although Cleopatra was born in Egypt, she wasnt necessarily Egyptian. Her family origins come from Macedonian Greece and Ptolemy I Soter, one of Alexander the Great’s generals.-u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Cleopatras fame as a beautiful seductive master was entirely made by Octavian as a way of explaining how this foreign queen managed to seduce two of Romes most powerful men, while being described as a beauty, she was best known for her intelligence and charm.-u/Pepestatic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. To this day, the tomb of Cleopatra and Mark Antony has not been found.-u/zachar3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Cleopatra tested various deadly poisons on condemned people and concluded that the bite of the asp was the least terrible way to die.-u/gargolito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Julius Caesar’s only son, Caesarion, was the last Pharaoh of Egypt. Even though Cleopatra swears he is Caesar’s son, Caesar never officially acknowledged him.-u/MilindGoswami007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Cleopatra claimed pickles made her beautiful.-u/jmestrin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Cleopatra had a special lipstick made for her, consisting of a crushed mixture of ants and deep red carmine beetles.-u/Drblackcobra</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Cleopatra lived closer in time to the lunar landing than the completion of the Great Pyramid. By 500 years!-u/PapaMarquezo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210409.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The Egyptians, not Julius Caesar, were the fathers of the modern calendar. The Roman calendar was lunar and had 355 days. Egyptians knew it was 365 days because the Nile would peak on the same day each year. Caesar learned this from his affair with Cleopatra and created the Julian calendar.-u/jimngo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Cleopatra took baths in donkey milk to preserve her youthful skin, with legend saying it took 700 donkeys to supply the milk.-u/zepphiu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Cleopatra and Mark Antony formed their own drinking club in 41 B.C. and were known to take part in elaborate games and contests and to walk the streets of Alexandria in disguise, pranking the residents.-u/ObsceneGlabella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210412.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Due to inbreeding amongst the Ptolemies, Cleopatra had only two pairs of great-grandparents. One of those pairs was the son and daughter of the other.-u/zomskii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Despite the story that Cleopatra killed herself by letting an asp bite her, it was more probable that she killed herself using a mixture of opium and hemlock.-u/thr33beggars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Julius Caesar and Cleopatra had a child together name Caesarion, which translates to little caesar.-u/Dangerrios</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210415.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210063.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">55 Really Cool Before And After Photos of How Things Change</a><br>
+## <a href="#linky11" id="linky10">25 Facts About Confucius</a><br>
+
+<span style="font-size:4em">1. In 1967, Red Guards ransacked the graves of Confucius and his family under the slogan, Annihilate the Kong Family Business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The family tree of Confucius has been tracked for more than 2500 years, and with 80 generations, it is the longest known line of succession in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Analects, one of the most important scripture of Confucianism, which is a large collection of sayings and ideas attributed to the Chinese philosopher Confucius, literally starts with, Isnt it a pleasure to study and practice what you have learned?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Up until as recently as 2008, a descendant of Confucius held a cabinet-level position in the Taiwanese government, titled the Sacrificial Official to Confucius. The current holder is a 79th-generation descendant of the philosopher who died in 479 BC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Supreme Court building has sculpted representations of 18 people who impacted our concept of law, including Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. China has its own version of the Nobel Peace Prize called the Confucius Peace Prize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Confucius taught the Golden Rule (or law of reciprocity) 500 years before Jesus did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Confucius actual name was Kong Qiu. The name Confucius comes from the honorific Kong Fuzi, meaning Grand Master Kong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Chinese engravers snuck in hidden designs on banknotes as a way to protest Japanese occupation during World War II. The 1 yuan banknote of 1938 features Confucius with his fingers in an obscene gesture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Confucius used to work as a bookkeeper, before finally finding his true calling: becoming a cowherd. In later life, he also engaged in some teaching and philosophy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Jiroemon Kimura died at 116, being the current title holder for the longest life for a man. His secret he says is to eat until you are 80% full. It is a teaching of Confucius called Hara hachi bun me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Since 205 BC, 12 different Chinese emperors paid 20 personal visits to worship Confucius at his tomb in Qufu and 100 others sent their deputies for 196 official visits to pay their respects to him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. TIMEs Top 100 Most Significant Figures in History List ranks Aristotle at #8, the father of western philosophy, but Confucius whose ideas form the basis of Asian philosophy, is not ranked at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Gao Chai, a disciple of Confucius, served as a judge and once condemned a criminal to getting his foot cut off. When he was later fleeing the state, the same man saved his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Japan has a cult called Happy Science whose leader claims to channel the spirits of Muhammad, Christ, Buddha and Confucius (among many other beings) and claims to be the incarnation of the supreme spiritual being called El Cantare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Chopsticks originated during the Shang Dynasty as a substitute for knives. According to Confucius, knives were equated with acts of aggression and shouldnt be used at the table.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210380.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Confucius spent five days in jail because of an error of mistaken identity. He calmly played his lute until the error was resolved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Confucius never said, Before you embark on a journey of revenge, Dig two Graves. This was actually a Japanese Proverb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Confucius had a special place in his heart for unicorns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Confucius has a Dinosaur name after him; Confuciusornis sanctus, also known as the Holy Confucius Bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Harley Davidson hosted a Ride to Confucius in China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Confucius said there are three ways to achieve wisdom. First, by reflection, which is noblest; second, by imitation, which is easiest; and third by experience, which is the bitterest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Using toilet paper was first mentioned in the writings of the official Yan Zhitui (531–591) who said he dared not make use of paper from books by Confucius for his toilet usage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The locations of the bodies of various religious leaders are known - including Muhammad, Confucius, and a canine tooth of the Buddha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. William Hung is a 73rd Generation Descendant of Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210389.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">55 Really Cool Before And After Photos of How Things Change</a><br>
 
 <span style="font-size:4em">1. “My first-ever crazy candy cake vs one of my latest ones”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207130.jpg" style="width:100%"><br>
 
@@ -764,6 +722,50 @@ Last updated: 07/11/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky13" id="linky12">20 Lesser Known Facts About Cameron Diaz</a><br>
+
+<span style="font-size:4em">1. Benji Madden, guitarist of Good Charlotte and husband to Cameron Diaz, has a tattoo on his buttcheeks which, when spread, reveals an image of Jesus Christ blowing bubbles. - u/Mr_Swirly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cameron Diaz announced her retirement from acting in 2016 and has not acted since her role in Annie in 2014. - u/albuhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Paul McCartney, President Jimmy Carter, Cameron Diaz, Mick Jagger, Steve Martin, Fidel Castro, and Agatha Christie are/were all birdwatching enthusiasts. - u/ChanceGuest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Cameron Diaz and Snoop Dogg used to go to the same high school - u/Spawnacus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Cameron Diaz was all set to star as Sonya Blade in the 1995 Mortal Kombat movie, until she broke her wrist before filming began and she had to be replaced by Bridgette Wilson-Sampras - u/fumblebuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Cameron Diaz bought weed from Snoop Dogg in High School. - u/Justdandy325</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. One of the brothers from Good Charlotte married Nicole Richie and the other married Cameron Diaz. - u/agentorange4tang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Jackie Chan, Carrie Fisher, Cameron Diaz, Sylvester Stallone starred in Porn. - u/123choji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Actress Cameron Diaz hasnt used deodorant in 20 years and believes men wouldnt need to if they just trimmed a little. - u/GizmosArrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cameron Diaz has OCD and opens doorknobs using her elbows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Will Smith claims that Cameron Diaz lost the lead role opposite him in the movie Hitch because producers were worried about the nations problem of seeing a black man and a white woman getting intimate. So, Cuban-American Eva Mendes was cast instead. - u/Reagansmash1994</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Cameron Diaz hasnt had a movie thats gotten good reviews since the 2005 film In her Shoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Once, the highest grossing Actor of all time was Tom Hanks. The highest grossing Actress was Cameron Diaz.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Cameron Diazs first appearance as an actress was in The Mask with Jim Carey - u/JazzWolf44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Cameron Diaz was considered for the role of Bridget Jones - u/busmoswag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Cameron Diaz sits atop of the list of actresses whose movies have made the most money at the worldwide box office, followed by Cate Blanchett and Helena Bonham Carter. - u/minc1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Nicole Richie has singer Lionel Richie (adoptive father), Sheila E. (biological aunt) & Cameron Diaz (sister-in-law) as part of her family. - u/laidbackcrusade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Composer John Powell (who did the soundtrack for the Bourne movies) composed the music for Knight and Day, starring Tom Cruise and Cameron Diaz. - u/grovesprof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Many high-profile American celebrities (like Tommy Lee Jones, Cameron Diaz, Sylvester Stallone) have appeared in many Japanese commercials; some have become a spokesperson for a particular Japanese product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Back in 1992, Cameron Diaz shot a softcore bondage video called Shes No Angel: Cameron Diaz - u/sedgwickave1520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210105.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky14" id="linky13">30 Behind-The-Scenes Photos From Popular Movies</a><br>
 
 <span style="font-size:4em">1. Julia Roberts takes over for director Garry Marshall on camera for Pretty Woman (1990).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207858.jpg" style="width:100%"><br>
@@ -825,60 +827,6 @@ Last updated: 07/11/2022-13:47:18
 <span style="font-size:4em">29. And Eddie Murphy getting into voicing Donkey in the recording sessions for Shrek (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207879.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. Last, but certainly not least: Cate Blanchett looks on as director Taika Waititi shows her some shots on set of Thor: Ragnarok (2017). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87207880.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">25 Unknown Wrestling Facts For Fans</a><br>
-
-<span style="font-size:4em">1. TIME Magazines Person of the Century online poll resulted in the top spots going to Jesus Christ and Ric Flair, neither of which were considered eligible. - u/Stocky_Racoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. WWFS Iron Sheik, whose shtick was to be pro Iranian and very anti-American (usually alongside Nikolai Volkoff in the 80s), had previously been an assistant coach on the U.S. National Wrestling Team during the Olympics. - u/Rexton9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Despite not existing for the past 30 years, the Soviet Union still holds the most Olympic gold medals for wrestling. - u/disc2k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The WWE was known as the WWF (World Wrestling Federation) till 2002, when it lost a lawsuit against the World Wildlife Fund. However, even though it maintains the WWF trademark, the World Wildlife Fund officially renamed itself as the World Wide Fund for Nature in 1986. - u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Oil Wrestling is one of the most popular sports in Turkey. - u/baffybonk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A 2014 report found that the mortality rate for professional wrestlers was significantly higher than that of athletes in other sports. - u/Gwen_Tennyson10</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Professional wrestler Scott Hall was diagnosed with post traumatic stress disorder, years after killing a man in self defense. Hall wrestled away the drunken man’s gun, and shot him in the head, outside of Hall’s place of work. - u/borderbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The stunt of Jerry Lawler slapping Andy Kaufman on David Letterman was not revealed as a hoax until years later. - u/shewhodrives</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Author Ken Kesey (One Flew Over the Cuckoo’s Nest) qualified for the US Olympic Wrestling Team, but due to a shoulder injury was never able to compete. - u/ManOfLaBook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Sputnik Monroe, a 60s Memphis wrestler. As part of his villainous act, he fought against segregation and frequented black neighbourhoods. He succeeded in ending segregation in wrestling arenas and became one of the biggest draws in wrestling history. - u/UndercoverDoll49</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Cryme Tyme. A WWE wrestling duo from 2006 that consisted of two black men, dressed in thug outfits, that would show up in random broadcasts and steal items like the broadcasters laptop. - u/Iam_a_honeybadger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Black Knight from Monty Python was based on a real person: Arrichion of Phigalia, a Greek wrestler who famously refused to give up during a particularly tough wrestling match. He died during the match, but still won because his opponent surrendered, not realizing he was dead. - u/IHad360K_KarmaDammit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Bonnie Tyler’s (1986) song “Ravashing” was originally written by Jim Steinman as an instrumental track on The Wrestling Album (1985), titled Hulk Hogans Theme. - u/AliWalnuts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Molluscum contagiosum. Commonly called the wrestling disease It is a skin infection with no cure. It can take the immune system 6 months to 4 years to clear it up. Depending on transmission it can also be classified as an STD. - u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Pro wrestler Batista decided to get into wrestling after realizing he had squandered his 20s and was living in poverty to the point that he had to borrow money to buy Christmas presents for his kids. - u/astarisaslave</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kurt Angle won an olympic gold medal in wrestling with a broken neck. - u/averageredditcuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Before he was president, Lincoln was a wrestler winning 299 out of 300 matches. Old Abe is actually in the Wrestling Hall of Fame. - u/joecooool418</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. André the Giant grew so fast that his own parents didnt recognize him. He left home at 14 and returned at 19, having already become a professional wrestler. As he explained his career choice, they realized they had seen him wrestle on TV under his alias, without knowing it was their son. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Marvel owned the rights to the name Hulk Hogan from 84-04. For each match Hogan wrestled, Marvel was paid $100. Marvel also made royalties on merch and every project involving his name. When he dropped Hulk and started going by Hollywood Hogan in 96, he was able to avoid paying the fees. - u/demafrost</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. A booker for WCW once told Mark Calaway, then using the name Mean Mark Callous, that nobody would ever pay to see him wrestle. The next year he left the company and joined WWF and started wrestling as The Undertaker. - u/HistoricalDebates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Nicolas Cage was considered for the role of Randy The Ram Robinson in The Wrestler. When taken to a live event, he thought wrestling was real like UFC! In the end, the crew had a meeting where it was determined that Cage looked too healthy for the part, so the role went to Mickey Rourke. - u/broken_beat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Dwayne Johnson aka The Rock began his acting and wrestling career after being cut from the Calgary Stampeders of the Canadian Football League. He would later say Sometimes, your biggest dreams that don’t come true are the best things that never happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Kevin James, the actor behind King of Queens, Paul Blart Mall Cop, and Becky was on his high schools wrestling team but was injured his senior year. His replacement, future WWE superstar and Hall of Famer, Mick Foley. - u/FilmBrony</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Macho Man Randy Savages first wrestling character was called The Spider, based off of Spider-Man. He would later star as the villainn wrestler Bone Saw in The Amazing Spiderman movie. - u/ulcerman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Professional wrestler Kerry Von Erich had to have his foot amputated after a bad accident, but continued wrestling while secretly wearing a prosthetic - even showering in his boots so no one would know. His injury wasnt public knowledge until his death from suicide 7 years later. - u/CletusVanDamnit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210363.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
