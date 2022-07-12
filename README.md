@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/12/2022-04:47:18
+Last updated: 07/12/2022-05:47:18
 <br>
 ## <a href="#linky2" id="linky1">25 Wildlife Facts to Chew On</a><br>
 
@@ -61,73 +61,7 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">32 Pics and Memes It’s Hard to Argue With</a><br>
-
-<span style="font-size:4em">1. Youll never have to eat again!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034357/87211089/technicallythetruth2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. If the sign said clean restrooms would he have done it?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034431/87211092/technicallythetruth4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Tank tops do not protect against shark attacks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034408/87211090/technicallythetruth1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211109/technicallythetruth21.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Well at least I know it will never be my body bag. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034539/87211098/technicallythetruth11.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034544/87211099/technicallythetruth9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034557/87211100/technicallythetruth14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034608/87211101/technicallythetruth13.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Well... still only 31. The cowboys are not winning any time soon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034454/87211094/technicallythetruth5.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034619/87211102/technicallythetruth15.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. And the best Thor movie since Ragnarok! </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034629/87211103/technicallythetruth12.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034631/87211104/technicallythetruth16.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. I can afford the watch... ing other people in the Apple store through the window. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034505/87211095/technicallythetruth7.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034642/87211105/technicallythetruth17.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034655/87211106/technicallythetruth19.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034706/87211107/technicallythetruth20.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. And after all that, the trash had as good a chance as they did at killing the DS.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211108/technicallythetruth18.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. The realistic answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034442/87211093/technicallythetruth6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034728/87211110/technicallythetruth22.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034731/87211111/technicallythetruth24.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Believe it or not...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034420/87211091/technicallythetruth3.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034739/87211112/technicallythetruth25.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. Ask and you shall receive. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034528/87211097/technicallythetruth10.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034742/87211113/technicallythetruth26.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034750/87211114/technicallythetruth27.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. What a strange answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034516/87211096/technicallythetruth8.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034756/87211116/technicallythetruth28.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. The only green vehicle that gets under 15 mpg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034802/87211117/technicallythetruth29.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034807/87211118/technicallythetruth30.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. Thats suspicious. Well have to triangulate his position. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034814/87211119/technicallythetruth31.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034818/87211120/technicallythetruth32.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
+## <a href="#linky3" id="linky2">25 Cringe Lords Who Make the Rest of Us Uncomfortable</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211651.jpg" style="width:100%"><br>
 
@@ -181,7 +115,391 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">XL Serving of Fun Randoms and Cool Pics</a><br>
+## <a href="#linky4" id="linky3">47 Relatable Memes Because We've All Been There</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211643.png" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211644.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211645.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">20 Days That Got Completely Ruined</a><br>
+
+<span style="font-size:4em">1. “Trying to finish up a last minute job. Don’t forget to latch your screw boxes people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. ouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Accidentally left the garage open for 1 hour. They’re everywhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Just got off work, tripped on the way in the door.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I think my plate was telling me that I’m 35 and don’t need Totinos pizza.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Made two of these bad boys, was basically finished with the first before I realized I was eating mold.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Used ramps to change oil for the first time… while backing up, the ramps slid/shot out and hit the 5qt used oil container and painted my garage a new color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Our washer decided to become a smoke machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My 2yo GE oven exploded an hour after I turned it off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Broke my finger at work, got fired after the drug test. All at the end of a 12 hour night shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “New hobby= new broken bones. 30 seconds after putting on roller blades resulted in 2 broken wrists!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “A wasp flew into my helmet while I was riding my motorcycle and gave me a piece of its mind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My Little Brother Was Trying To Move Today… Geez.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My gf is from a small town that doesn’t get a lot of nice things. A couple of hours after the town welcomed this mural, this happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Broke my leg by standing too fast and falling onto myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “The stairs on my daily commute pedestrian bridge were removed without warning..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “First overseas flight in 9 years! Paid extra for a window seat so I can see everything.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Brand New $1300 set of golf clubs I bought as a birthday present to myself. On my very first swing (club head is somewhere in the pond)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211954.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">25 Things That'll Trigger Your Nostalgia</a><br>
+
+<span style="font-size:4em">1. That feeling when you are going as high as you can go on the swings. Power? Freedom? Hard to describe. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When youd watch a vhs and it would say and now your feature presentation. - Mickthemouse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Getting up in the morning on a day it snowed to watch the list of closed schools across the bottom of the news/weather channel hoping your school was closed. - cmokelley213</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Hot Wheels. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Nick nick nick na nick nick nick nickelodeon. -purpleblackgreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Those candy necklaces. - MrSmallMedium</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. You have died of dysentery. - fakeprofile21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. PEZ Dispensers. - LordD0nnie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Conjunction Junction. - HarlanCulpepper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The Land Before Time. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Eating one of those plastic wrapped ice pop things after a long day of playing outside in your backyard with your friends. - onyourleft___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Scholastic book fairs. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The tingle of a skinned knee from drag on asphalt, and the dread of having it cleaned… - Cultural-Parsley-408</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The noise when picking up the phone when someone was surfing the web. - OhAces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. An eraser that looks and smells like a very fake strawberry. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Each sold separately. Batteries not included. - FifteenDoctorPeppers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Goosebumps series by R.L. Stine. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That feeling of limitless freedom on the first day of summer vacation. That feeling of dreaded anticipation on the last day of summer vacation. - _my_poor_brain_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. That sound of a door opening and shutting on AIM when your friend logs on. - Consistent-Candy6277</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Remember the warm, fuzzy static left on your tv screen after it was on for a while. Movies and video games on channel 3. - JK_NC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Collecting stickers. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Chinese finger traps. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Flintstones push pop ice creams. - Reveries25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Waking up super early on Saturday morning before the rest of the family to watch cartoons. - helltothenoyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Watching The Price Is Right when you were sick at home. - mayhemy11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210184.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">25 Facts About Confucius</a><br>
+
+<span style="font-size:4em">1. In 1967, Red Guards ransacked the graves of Confucius and his family under the slogan, Annihilate the Kong Family Business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The family tree of Confucius has been tracked for more than 2500 years, and with 80 generations, it is the longest known line of succession in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Analects, one of the most important scripture of Confucianism, which is a large collection of sayings and ideas attributed to the Chinese philosopher Confucius, literally starts with, Isnt it a pleasure to study and practice what you have learned?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Up until as recently as 2008, a descendant of Confucius held a cabinet-level position in the Taiwanese government, titled the Sacrificial Official to Confucius. The current holder is a 79th-generation descendant of the philosopher who died in 479 BC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Supreme Court building has sculpted representations of 18 people who impacted our concept of law, including Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. China has its own version of the Nobel Peace Prize called the Confucius Peace Prize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Confucius taught the Golden Rule (or law of reciprocity) 500 years before Jesus did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Confucius actual name was Kong Qiu. The name Confucius comes from the honorific Kong Fuzi, meaning Grand Master Kong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Chinese engravers snuck in hidden designs on banknotes as a way to protest Japanese occupation during World War II. The 1 yuan banknote of 1938 features Confucius with his fingers in an obscene gesture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Confucius used to work as a bookkeeper, before finally finding his true calling: becoming a cowherd. In later life, he also engaged in some teaching and philosophy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Jiroemon Kimura died at 116, being the current title holder for the longest life for a man. His secret he says is to eat until you are 80% full. It is a teaching of Confucius called Hara hachi bun me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Since 205 BC, 12 different Chinese emperors paid 20 personal visits to worship Confucius at his tomb in Qufu and 100 others sent their deputies for 196 official visits to pay their respects to him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. TIMEs Top 100 Most Significant Figures in History List ranks Aristotle at #8, the father of western philosophy, but Confucius whose ideas form the basis of Asian philosophy, is not ranked at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Gao Chai, a disciple of Confucius, served as a judge and once condemned a criminal to getting his foot cut off. When he was later fleeing the state, the same man saved his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Japan has a cult called Happy Science whose leader claims to channel the spirits of Muhammad, Christ, Buddha and Confucius (among many other beings) and claims to be the incarnation of the supreme spiritual being called El Cantare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Chopsticks originated during the Shang Dynasty as a substitute for knives. According to Confucius, knives were equated with acts of aggression and shouldnt be used at the table.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210380.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Confucius spent five days in jail because of an error of mistaken identity. He calmly played his lute until the error was resolved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Confucius never said, Before you embark on a journey of revenge, Dig two Graves. This was actually a Japanese Proverb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Confucius had a special place in his heart for unicorns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Confucius has a Dinosaur name after him; Confuciusornis sanctus, also known as the Holy Confucius Bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Harley Davidson hosted a Ride to Confucius in China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Confucius said there are three ways to achieve wisdom. First, by reflection, which is noblest; second, by imitation, which is easiest; and third by experience, which is the bitterest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Using toilet paper was first mentioned in the writings of the official Yan Zhitui (531–591) who said he dared not make use of paper from books by Confucius for his toilet usage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The locations of the bodies of various religious leaders are known - including Muhammad, Confucius, and a canine tooth of the Buddha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. William Hung is a 73rd Generation Descendant of Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210389.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">25 Unsettling Facts About Our Universe</a><br>
+
+<span style="font-size:4em">1. The farthest galaxy we can detect was 13.4 billion light years away when it emitted the light we see today. That light (not the galaxy, the light itself) is three times as old as the Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Two possibilities exist: either we are alone in the Universe or we are not. Both are equally terrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. There is a theory (Proton decay) that states that protons, one of the fundamental building blocks of matter, can just spontaneously evaporate. The amount of time this takes is astronomical, but current theories predict that all matter in the universe will decay away until there is nothing left but particles of light and empty space. The time it will take for this to happen is incomprehensible, but it is the most likely scenario for how our universe will end.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The fact that the Voyager 2 Space probe after over 40 years has not even hit a pebble.....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you gathered together all the matter in the universe we can observe right now ,and squished it together until it had the density of water, (1gm/cm^3) it would fit into a cube about 1 light year on each side. There are several disturbing things about this. A single light year is almost unimaginably huge. A cubic light year is a ridiculous volume of space. The observable universe is 33 orders of magnitude larger than that. It is almost entirely empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The largest black hole we have discovered has a diameter of 490.000.000.000 km. Earths diameter is roughly 13.000 km.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. There is no up or down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Time-lapses of the Future send me into an existential crisis every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Here’s one closer to home. The Kessler Effect is the theory that a single destructive event in low Earth orbit could create a cascade where satellites break up into tiny fragments taking out other satellites, breaking up into smaller fragments and so on, until the earth is completely surrounded by a massive cloud of tiny flying death shrapnel, which would make leaving this planet almost impossible. If you look up how much space debris there is already up there and how many satellites currently orbit, plus the continued growth of the commercial space industry... I think about it a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Somewhere, something incredible is waiting to be known.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That we, as a planet, are literally flying through Space. I dont just mean around the Sun, because our Solar System is flying through space as well. Along with our Galaxy too. Where Earth was one minute ago is a point in space that we will never return too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Rogue planets. Such objects have been ejected from the planetary system in which they were formed or have never been gravitationally bound to any star or brown dwarf. If a rogue planet invaded our Solar System, things could go very wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In about 150 billion years, intergalactic transportation and communication beyond our local supercluster will be impossible. In about two trillion years, galaxies outside of our local supercluster are no longer detectable due to redshift. Assuming the universe keeps expanding, then the universe’s final fate depends on whether or not protons decay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. More of a theory than a fact, but I find the Dark Forest theory pretty disturbing. Basically the idea that there are other civilizations out there but they are staying quiet for good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I truly don’t believe most of us are capable of comprehending the vastness of space and the distance between things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. There are voids in the universe that are so big that if you were teleported to the center with a spacesuit on, you would just see pitch darkness in all directions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In 2019, scientists at the Royal Institution of Australia (along with NASA and other international space agencies) completely missed a football-field-sized asteroid that came eerily close to Earths atmosphere and had apparently realized it only minutes before it passed Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The near impossibility of interstellar human travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. We still dont know exactly how it came into existence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. At 600KM above planet Earth the temperature fluctuates between +258 and -148 degrees Fahrenheit. There is nothing to carry sound. No air pressure. No oxygen. Life in space is impossible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I just learned about something called Angular Diameter Turnaround. Basically, things that are far away look smaller; but things that are really far away look bigger, because when their light was emitted, the universe was small and they were close to us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. How easy it would be to become completely and totally isolated out there. In space, technology is the only thing keeping us alive. The only reason we dont freeze suffocate or starve. Imagine the day when humans advance to traveling deeper into space. Imagine not having communication. Completely alone in the blackness of space. Or even worse, your engines die and youre just forced to sit, hoping and praying that somewhere in the vast universe someone comes across you. Thats scarier than any movie monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The images you see are galaxies not as they are but as they were, based on how many light-years away they are. This is fine for anything within the thousands but if we are talking millions or billions of light-years away then there is a good chance that none of those stars you see even technically exist right now. On the bright side though, if we can figure out how to move faster than light then we could see our own planet with a good enough telescope as it was in the past. We could observe any outside historical event or even dinosaurs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. We could literally get vaporized at any moment from a space death laser traveling at the speed of light, so we cant even detect it before were dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Time is not linear due to the constant expansion of space therefore time is expansive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210251.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">Some Lesser Known Badasses From History  </a><br>
+
+<span style="font-size:4em">1. Simo Hayha. Finnish farmer. Got drafted. Killed 505 Russians in the Winter War, making him the deadliest sniper ever. Didnt use a scope. He also killed 200 more with his machine gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Im gonna go with Chinese pirate queen Ching Shih. Started as a prostitute, ended as the leader of a fleet of 300 ships and 20000 to 40000 pirates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Mary E. Walker - doctor, and first and only woman to have the Congressional Medal of Honor from actions in the US Civil War.She was the daughter of active abolitionists and the only woman to graduate with a medical degree when she attended Syracuse Hospital (and one of the first). When she was refused from medical military service, she started treating the wounded who were dragging themselves home. She eventually was allowed in the military in 1863 as an assistant surgeon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">  The infantry she served with (Ohio 52nd) had lower casualty rates. Attended battle-ground wounded and crossed enemy lines to attend women and children and civilians injured. She was captured by the Confederates in 1864. She treated her fellow POWs while held, refusing to dress or act like a lady.She then worked in Tennessee at a woman’s and orphan asylum through outbreaks of tuberculosis, fever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> The hospital records of her service do not name her work, in favor of her male supervisors, but a medical award now is given in her name. Also campaigned, with risk of imprisonment, for womens right to vote. Respect for her service kept her from arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ben L. Salomon. He was a front line surgeon in WW2. During the battle of Saipan he was in a surgical tent helping wounded soldiers, when he noticed a Japanese soldier bayoneting one of the injured men. He shot the Japanese soldier and then quickly dispatched several other Japanese soldiers who came into the tent. He then took control of a mounted machine gun and went to town. When they found his body, he was shot and stabbed 24 times and had killed 98 Japanese soldiers. He repositioned the machine gun 4 times due to him not being able to shoot over the mountains of bodies. He was given the Medal of Honor in 2002.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Hugh Glass: While on a fur trapping expedition, Hugh was attacked and mauled by a grizzly bear. He was able to kill the giant bear with some help, then passed out. His group left him thinking he would never survive the wounds or the journey which was 200 miles away from the nearest town. Glass regained consciousness only to find himself abandoned, without weapons or equipment. He was suffering from a broken leg, the cuts on his back were exposing bare ribs, and all his wounds were festering. So he cleaned his wounds with maggots, made a boat, fought off wolves and 6 weeks later made it back to civilization, crawling a large portion of the way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Miyamoto Musashi. He was undefeated in the 60 duels he fought, and he won one of them with a wooden sword.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Diogenes - a homeless Greek philosopher who lived in a barrel and m*sturbated in public. He also had an epic encounter with Alexander the Great. Wile Diogenes was relaxing in the sunlight in the morning, Alexander, thrilled to meet the famous philosopher, asked if there was any favor he might do for him. Diogenes replied, Yes, stand out of my sunlight. Alexander then declared, If I were not Alexander, then I should wish to be Diogenes, to which Diogenes replied, If I were not Diogenes, I should also wish to be Diogenes. In another account of the conversation, Alexander found the philosopher looking attentively at a pile of human bones. Diogenes explained, I am searching for the bones of your father but cannot distinguish them from those of a slave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. There is no way Stanislav Petrov isnt the most badass person ever. On September 26, 1983, Lt. Colonel Stanislav Petrov was in command at Serpukhov-15, a bunker where the Soviets monitored their satellite-based detection systems. Shortly after midnight, panic broke out when an alarm sounded signaling that the United States had fired five Intercontinental Ballistic Missiles, or ICBMs, toward Russia. The warning was a false alarm—one of the satellites had misinterpreted the glint of sunlight off clouds near Montana as a missile launch—but to the Soviets, it appeared the United States had started a nuclear war. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">Protocol demanded that Serpukhov-15 report any signs of a missile launch to the Soviet high command, but Petrov had a hunch the warning was an error. He knew the new satellite system was mistake-prone, and he also reasoned that any nuclear strike by the Americans would come in the form of hundreds of missiles, not just five. With only minutes to make a decision, Petrov chose to ignore the blaring warning alarms and reported the launch as a false alarm—a move that may have averted a nuclear holocaust. The incident remained classified until after the Cold War ended, but Petrov later received several humanitarian awards for his extraordinary actions, and was even honored by the United Nations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Michael Malloy. Malloy was a homeless alcoholic man. Five men took out life insurance policies on him and tried to get him to drink himself to death by giving him unlimited credit at a bar that one of them owned (so that they could collect the money from the insurance company). This wasnt working fast enough, so they started putting anti-freeze in his drink... then turpentine, then horse tranquilizer, and finally rat poison. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">None of them killed Malloy. The men then tried feeding him raw oysters with wood alcohol and poisoned, spoiled sardine sandwiches (filled with carpet nails). Again, none of this worked, so they waited for him to pass out drunk one night, then dragged his body out into the -26 °C night and left him there to sleep (pouring 20 liter of water on him for good measure). The next day, Malloy came into the bar and ordered another drink. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">The group then ran him over with a car at 70km/h. This hospitalized him for a few weeks, but again, didnt kill him. Eventually they succeeded by putting a gas pipe down his throat (after he passed out drunk of course) and pumping gas into him for an hour. The group were later convicted of murder (due, in no small part, to the fame of Malloys durability), with four of them receiving the death penalty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212644.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">22 Dank Memes to Obliterate Boredom</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212522.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212524.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212526.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212542.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">XL Serving of Fun Randoms and Cool Pics</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87211880.jpg" style="width:100%"><br>
 
@@ -291,7 +609,7 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Monday Morning Randomness User Edition - Broncofan</a><br>
+## <a href="#linky12" id="linky11">Monday Morning Randomness User Edition - Broncofan</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/10/103246/87212013/87133530.jpg" style="width:100%"><br>
 
@@ -437,51 +755,7 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Days That Got Completely Ruined</a><br>
-
-<span style="font-size:4em">1. “Trying to finish up a last minute job. Don’t forget to latch your screw boxes people.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. ouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Accidentally left the garage open for 1 hour. They’re everywhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Just got off work, tripped on the way in the door.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I think my plate was telling me that I’m 35 and don’t need Totinos pizza.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Made two of these bad boys, was basically finished with the first before I realized I was eating mold.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Used ramps to change oil for the first time… while backing up, the ramps slid/shot out and hit the 5qt used oil container and painted my garage a new color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Our washer decided to become a smoke machine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My 2yo GE oven exploded an hour after I turned it off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Broke my finger at work, got fired after the drug test. All at the end of a 12 hour night shift.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “New hobby= new broken bones. 30 seconds after putting on roller blades resulted in 2 broken wrists!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “A wasp flew into my helmet while I was riding my motorcycle and gave me a piece of its mind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My Little Brother Was Trying To Move Today… Geez.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My gf is from a small town that doesn’t get a lot of nice things. A couple of hours after the town welcomed this mural, this happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Broke my leg by standing too fast and falling onto myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “The stairs on my daily commute pedestrian bridge were removed without warning..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “First overseas flight in 9 years! Paid extra for a window seat so I can see everything.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Brand New $1300 set of golf clubs I bought as a birthday present to myself. On my very first swing (club head is somewhere in the pond)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211954.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">12 Useful Details Many People Never Noticed</a><br>
+## <a href="#linky13" id="linky12">12 Useful Details Many People Never Noticed</a><br>
 
 <span style="font-size:4em">1. Most toothbrushes have colored bristles not just for design purposes but also as a helpful indicator that your brush is already too worn out to use. Once the vibrance fades and the fibers thin out, it’s time to switch it out for a new one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211439.jpg" style="width:100%"><br>
 
@@ -509,387 +783,69 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">22 Dank Memes to Obliterate Boredom</a><br>
+## <a href="#linky14" id="linky13">32 Pics and Memes It’s Hard to Argue With</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212521.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Youll never have to eat again!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034357/87211089/technicallythetruth2.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212522.png" style="width:100%"><br>
+<span style="font-size:4em">2. If the sign said clean restrooms would he have done it?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034431/87211092/technicallythetruth4.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212523.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Tank tops do not protect against shark attacks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034408/87211090/technicallythetruth1.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212524.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211109/technicallythetruth21.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212525.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Well at least I know it will never be my body bag. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034539/87211098/technicallythetruth11.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212526.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034544/87211099/technicallythetruth9.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212527.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034557/87211100/technicallythetruth14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212528.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034608/87211101/technicallythetruth13.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212529.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Well... still only 31. The cowboys are not winning any time soon.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034454/87211094/technicallythetruth5.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212531.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034619/87211102/technicallythetruth15.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212532.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. And the best Thor movie since Ragnarok! </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034629/87211103/technicallythetruth12.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212533.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034631/87211104/technicallythetruth16.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212534.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I can afford the watch... ing other people in the Apple store through the window. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034505/87211095/technicallythetruth7.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212535.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034642/87211105/technicallythetruth17.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212536.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034655/87211106/technicallythetruth19.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212537.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034706/87211107/technicallythetruth20.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212538.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. And after all that, the trash had as good a chance as they did at killing the DS.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034717/87211108/technicallythetruth18.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212539.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The realistic answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034442/87211093/technicallythetruth6.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212540.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034728/87211110/technicallythetruth22.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212530.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034731/87211111/technicallythetruth24.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212541.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Believe it or not...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034420/87211091/technicallythetruth3.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212542.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034739/87211112/technicallythetruth25.png" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">23. Ask and you shall receive. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034528/87211097/technicallythetruth10.png" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">25 Unsettling Facts About Our Universe</a><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034742/87211113/technicallythetruth26.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. The farthest galaxy we can detect was 13.4 billion light years away when it emitted the light we see today. That light (not the galaxy, the light itself) is three times as old as the Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210227.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034750/87211114/technicallythetruth27.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Two possibilities exist: either we are alone in the Universe or we are not. Both are equally terrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210248.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. What a strange answer. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034516/87211096/technicallythetruth8.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. There is a theory (Proton decay) that states that protons, one of the fundamental building blocks of matter, can just spontaneously evaporate. The amount of time this takes is astronomical, but current theories predict that all matter in the universe will decay away until there is nothing left but particles of light and empty space. The time it will take for this to happen is incomprehensible, but it is the most likely scenario for how our universe will end.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210245.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034756/87211116/technicallythetruth28.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. The fact that the Voyager 2 Space probe after over 40 years has not even hit a pebble.....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210231.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. The only green vehicle that gets under 15 mpg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034802/87211117/technicallythetruth29.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. If you gathered together all the matter in the universe we can observe right now ,and squished it together until it had the density of water, (1gm/cm^3) it would fit into a cube about 1 light year on each side. There are several disturbing things about this. A single light year is almost unimaginably huge. A cubic light year is a ridiculous volume of space. The observable universe is 33 orders of magnitude larger than that. It is almost entirely empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210232.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034807/87211118/technicallythetruth30.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. The largest black hole we have discovered has a diameter of 490.000.000.000 km. Earths diameter is roughly 13.000 km.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210233.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Thats suspicious. Well have to triangulate his position. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034814/87211119/technicallythetruth31.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. There is no up or down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Time-lapses of the Future send me into an existential crisis every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Here’s one closer to home. The Kessler Effect is the theory that a single destructive event in low Earth orbit could create a cascade where satellites break up into tiny fragments taking out other satellites, breaking up into smaller fragments and so on, until the earth is completely surrounded by a massive cloud of tiny flying death shrapnel, which would make leaving this planet almost impossible. If you look up how much space debris there is already up there and how many satellites currently orbit, plus the continued growth of the commercial space industry... I think about it a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Somewhere, something incredible is waiting to be known.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. That we, as a planet, are literally flying through Space. I dont just mean around the Sun, because our Solar System is flying through space as well. Along with our Galaxy too. Where Earth was one minute ago is a point in space that we will never return too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Rogue planets. Such objects have been ejected from the planetary system in which they were formed or have never been gravitationally bound to any star or brown dwarf. If a rogue planet invaded our Solar System, things could go very wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In about 150 billion years, intergalactic transportation and communication beyond our local supercluster will be impossible. In about two trillion years, galaxies outside of our local supercluster are no longer detectable due to redshift. Assuming the universe keeps expanding, then the universe’s final fate depends on whether or not protons decay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. More of a theory than a fact, but I find the Dark Forest theory pretty disturbing. Basically the idea that there are other civilizations out there but they are staying quiet for good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I truly don’t believe most of us are capable of comprehending the vastness of space and the distance between things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. There are voids in the universe that are so big that if you were teleported to the center with a spacesuit on, you would just see pitch darkness in all directions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In 2019, scientists at the Royal Institution of Australia (along with NASA and other international space agencies) completely missed a football-field-sized asteroid that came eerily close to Earths atmosphere and had apparently realized it only minutes before it passed Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The near impossibility of interstellar human travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. We still dont know exactly how it came into existence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. At 600KM above planet Earth the temperature fluctuates between +258 and -148 degrees Fahrenheit. There is nothing to carry sound. No air pressure. No oxygen. Life in space is impossible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I just learned about something called Angular Diameter Turnaround. Basically, things that are far away look smaller; but things that are really far away look bigger, because when their light was emitted, the universe was small and they were close to us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. How easy it would be to become completely and totally isolated out there. In space, technology is the only thing keeping us alive. The only reason we dont freeze suffocate or starve. Imagine the day when humans advance to traveling deeper into space. Imagine not having communication. Completely alone in the blackness of space. Or even worse, your engines die and youre just forced to sit, hoping and praying that somewhere in the vast universe someone comes across you. Thats scarier than any movie monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The images you see are galaxies not as they are but as they were, based on how many light-years away they are. This is fine for anything within the thousands but if we are talking millions or billions of light-years away then there is a good chance that none of those stars you see even technically exist right now. On the bright side though, if we can figure out how to move faster than light then we could see our own planet with a good enough telescope as it was in the past. We could observe any outside historical event or even dinosaurs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. We could literally get vaporized at any moment from a space death laser traveling at the speed of light, so we cant even detect it before were dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Time is not linear due to the constant expansion of space therefore time is expansive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210251.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Some Lesser Known Badasses From History  </a><br>
-
-<span style="font-size:4em">1. Simo Hayha. Finnish farmer. Got drafted. Killed 505 Russians in the Winter War, making him the deadliest sniper ever. Didnt use a scope. He also killed 200 more with his machine gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Im gonna go with Chinese pirate queen Ching Shih. Started as a prostitute, ended as the leader of a fleet of 300 ships and 20000 to 40000 pirates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Mary E. Walker - doctor, and first and only woman to have the Congressional Medal of Honor from actions in the US Civil War.She was the daughter of active abolitionists and the only woman to graduate with a medical degree when she attended Syracuse Hospital (and one of the first). When she was refused from medical military service, she started treating the wounded who were dragging themselves home. She eventually was allowed in the military in 1863 as an assistant surgeon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  The infantry she served with (Ohio 52nd) had lower casualty rates. Attended battle-ground wounded and crossed enemy lines to attend women and children and civilians injured. She was captured by the Confederates in 1864. She treated her fellow POWs while held, refusing to dress or act like a lady.She then worked in Tennessee at a woman’s and orphan asylum through outbreaks of tuberculosis, fever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> The hospital records of her service do not name her work, in favor of her male supervisors, but a medical award now is given in her name. Also campaigned, with risk of imprisonment, for womens right to vote. Respect for her service kept her from arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Ben L. Salomon. He was a front line surgeon in WW2. During the battle of Saipan he was in a surgical tent helping wounded soldiers, when he noticed a Japanese soldier bayoneting one of the injured men. He shot the Japanese soldier and then quickly dispatched several other Japanese soldiers who came into the tent. He then took control of a mounted machine gun and went to town. When they found his body, he was shot and stabbed 24 times and had killed 98 Japanese soldiers. He repositioned the machine gun 4 times due to him not being able to shoot over the mountains of bodies. He was given the Medal of Honor in 2002.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Hugh Glass: While on a fur trapping expedition, Hugh was attacked and mauled by a grizzly bear. He was able to kill the giant bear with some help, then passed out. His group left him thinking he would never survive the wounds or the journey which was 200 miles away from the nearest town. Glass regained consciousness only to find himself abandoned, without weapons or equipment. He was suffering from a broken leg, the cuts on his back were exposing bare ribs, and all his wounds were festering. So he cleaned his wounds with maggots, made a boat, fought off wolves and 6 weeks later made it back to civilization, crawling a large portion of the way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Miyamoto Musashi. He was undefeated in the 60 duels he fought, and he won one of them with a wooden sword.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Diogenes - a homeless Greek philosopher who lived in a barrel and m*sturbated in public. He also had an epic encounter with Alexander the Great. Wile Diogenes was relaxing in the sunlight in the morning, Alexander, thrilled to meet the famous philosopher, asked if there was any favor he might do for him. Diogenes replied, Yes, stand out of my sunlight. Alexander then declared, If I were not Alexander, then I should wish to be Diogenes, to which Diogenes replied, If I were not Diogenes, I should also wish to be Diogenes. In another account of the conversation, Alexander found the philosopher looking attentively at a pile of human bones. Diogenes explained, I am searching for the bones of your father but cannot distinguish them from those of a slave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. There is no way Stanislav Petrov isnt the most badass person ever. On September 26, 1983, Lt. Colonel Stanislav Petrov was in command at Serpukhov-15, a bunker where the Soviets monitored their satellite-based detection systems. Shortly after midnight, panic broke out when an alarm sounded signaling that the United States had fired five Intercontinental Ballistic Missiles, or ICBMs, toward Russia. The warning was a false alarm—one of the satellites had misinterpreted the glint of sunlight off clouds near Montana as a missile launch—but to the Soviets, it appeared the United States had started a nuclear war. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">Protocol demanded that Serpukhov-15 report any signs of a missile launch to the Soviet high command, but Petrov had a hunch the warning was an error. He knew the new satellite system was mistake-prone, and he also reasoned that any nuclear strike by the Americans would come in the form of hundreds of missiles, not just five. With only minutes to make a decision, Petrov chose to ignore the blaring warning alarms and reported the launch as a false alarm—a move that may have averted a nuclear holocaust. The incident remained classified until after the Cold War ended, but Petrov later received several humanitarian awards for his extraordinary actions, and was even honored by the United Nations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Michael Malloy. Malloy was a homeless alcoholic man. Five men took out life insurance policies on him and tried to get him to drink himself to death by giving him unlimited credit at a bar that one of them owned (so that they could collect the money from the insurance company). This wasnt working fast enough, so they started putting anti-freeze in his drink... then turpentine, then horse tranquilizer, and finally rat poison. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">None of them killed Malloy. The men then tried feeding him raw oysters with wood alcohol and poisoned, spoiled sardine sandwiches (filled with carpet nails). Again, none of this worked, so they waited for him to pass out drunk one night, then dragged his body out into the -26 °C night and left him there to sleep (pouring 20 liter of water on him for good measure). The next day, Malloy came into the bar and ordered another drink. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">The group then ran him over with a car at 70km/h. This hospitalized him for a few weeks, but again, didnt kill him. Eventually they succeeded by putting a gas pipe down his throat (after he passed out drunk of course) and pumping gas into him for an hour. The group were later convicted of murder (due, in no small part, to the fame of Malloys durability), with four of them receiving the death penalty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212644.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">25 Facts About Confucius</a><br>
-
-<span style="font-size:4em">1. In 1967, Red Guards ransacked the graves of Confucius and his family under the slogan, Annihilate the Kong Family Business.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The family tree of Confucius has been tracked for more than 2500 years, and with 80 generations, it is the longest known line of succession in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Analects, one of the most important scripture of Confucianism, which is a large collection of sayings and ideas attributed to the Chinese philosopher Confucius, literally starts with, Isnt it a pleasure to study and practice what you have learned?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Up until as recently as 2008, a descendant of Confucius held a cabinet-level position in the Taiwanese government, titled the Sacrificial Official to Confucius. The current holder is a 79th-generation descendant of the philosopher who died in 479 BC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Supreme Court building has sculpted representations of 18 people who impacted our concept of law, including Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. China has its own version of the Nobel Peace Prize called the Confucius Peace Prize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Confucius taught the Golden Rule (or law of reciprocity) 500 years before Jesus did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Confucius actual name was Kong Qiu. The name Confucius comes from the honorific Kong Fuzi, meaning Grand Master Kong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Chinese engravers snuck in hidden designs on banknotes as a way to protest Japanese occupation during World War II. The 1 yuan banknote of 1938 features Confucius with his fingers in an obscene gesture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Confucius used to work as a bookkeeper, before finally finding his true calling: becoming a cowherd. In later life, he also engaged in some teaching and philosophy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Jiroemon Kimura died at 116, being the current title holder for the longest life for a man. His secret he says is to eat until you are 80% full. It is a teaching of Confucius called Hara hachi bun me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Since 205 BC, 12 different Chinese emperors paid 20 personal visits to worship Confucius at his tomb in Qufu and 100 others sent their deputies for 196 official visits to pay their respects to him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. TIMEs Top 100 Most Significant Figures in History List ranks Aristotle at #8, the father of western philosophy, but Confucius whose ideas form the basis of Asian philosophy, is not ranked at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Gao Chai, a disciple of Confucius, served as a judge and once condemned a criminal to getting his foot cut off. When he was later fleeing the state, the same man saved his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Japan has a cult called Happy Science whose leader claims to channel the spirits of Muhammad, Christ, Buddha and Confucius (among many other beings) and claims to be the incarnation of the supreme spiritual being called El Cantare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Chopsticks originated during the Shang Dynasty as a substitute for knives. According to Confucius, knives were equated with acts of aggression and shouldnt be used at the table.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210380.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Confucius spent five days in jail because of an error of mistaken identity. He calmly played his lute until the error was resolved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Confucius never said, Before you embark on a journey of revenge, Dig two Graves. This was actually a Japanese Proverb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Confucius had a special place in his heart for unicorns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Confucius has a Dinosaur name after him; Confuciusornis sanctus, also known as the Holy Confucius Bird.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Harley Davidson hosted a Ride to Confucius in China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Confucius said there are three ways to achieve wisdom. First, by reflection, which is noblest; second, by imitation, which is easiest; and third by experience, which is the bitterest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Using toilet paper was first mentioned in the writings of the official Yan Zhitui (531–591) who said he dared not make use of paper from books by Confucius for his toilet usage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The locations of the bodies of various religious leaders are known - including Muhammad, Confucius, and a canine tooth of the Buddha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. William Hung is a 73rd Generation Descendant of Confucius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87210389.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">25 Things That'll Trigger Your Nostalgia</a><br>
-
-<span style="font-size:4em">1. That feeling when you are going as high as you can go on the swings. Power? Freedom? Hard to describe. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When youd watch a vhs and it would say and now your feature presentation. - Mickthemouse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Getting up in the morning on a day it snowed to watch the list of closed schools across the bottom of the news/weather channel hoping your school was closed. - cmokelley213</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Hot Wheels. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Nick nick nick na nick nick nick nickelodeon. -purpleblackgreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Those candy necklaces. - MrSmallMedium</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. You have died of dysentery. - fakeprofile21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. PEZ Dispensers. - LordD0nnie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Conjunction Junction. - HarlanCulpepper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Land Before Time. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Eating one of those plastic wrapped ice pop things after a long day of playing outside in your backyard with your friends. - onyourleft___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Scholastic book fairs. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The tingle of a skinned knee from drag on asphalt, and the dread of having it cleaned… - Cultural-Parsley-408</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The noise when picking up the phone when someone was surfing the web. - OhAces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. An eraser that looks and smells like a very fake strawberry. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Each sold separately. Batteries not included. - FifteenDoctorPeppers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Goosebumps series by R.L. Stine. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That feeling of limitless freedom on the first day of summer vacation. That feeling of dreaded anticipation on the last day of summer vacation. - _my_poor_brain_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. That sound of a door opening and shutting on AIM when your friend logs on. - Consistent-Candy6277</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Remember the warm, fuzzy static left on your tv screen after it was on for a while. Movies and video games on channel 3. - JK_NC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Collecting stickers. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Chinese finger traps. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Flintstones push pop ice creams. - Reveries25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Waking up super early on Saturday morning before the rest of the family to watch cartoons. - helltothenoyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Watching The Price Is Right when you were sick at home. - mayhemy11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210184.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">47 Relatable Memes Because We've All Been There</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211643.png" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211644.png" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87211645.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">20 Positive Facts That Are Also Disturbing</a><br>
-
-<span style="font-size:4em">1. A chicken lived without his head for 18 months.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. You did your best.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. One day youll never feel pain again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The most peaceful way to die is in your sleep, but you’ll go to sleep not knowing you’ll never see anything ever again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Either alien life exists, or we are totally alone in the universe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. People who are dying very often just have a sudden burst of energy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. While were losing a lot of forests in the tropics due to climate change, were actually gaining a lot of forest in the northern latitudes, and into formerly grassland areas, as more available CO2 allows them to grow in more arid regions. But habitat loss - like grasslands or tundra becoming forest - is arguably even harder on species than changes in weather patterns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. There are hundreds if not thousands of versions of you in the minds of other people, depending on how many people you have met in your life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There will be a point in time where humans go extinct. We wont experience it but our future generations will see the “end of the world.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Most people dont die of old age.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This too shall pass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. You’re statistically more likely to die in a car crash on the way to the airport than you are in a plane crash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. You never truly know what anyone really thinks about you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When youre sick, youre supposed to do drugs and stay out of school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. You might be just like your parents when you have kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. CPS is returning a child to their family. And it’s often by far the worst thing that could happen to that child</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Death isnt the worst thing that can happen to you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Who you are is not who others perceive you to be, since no one can ever truly know who you are and how you think, to the point that if you ever lost your memories, no one would be able to describe you fully to you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I was at a bbq yesterday and my uncle told me, “think about it, one day you went outside to play with your friends for the last time and didn’t even know it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The idea that who we are is not who we used to be, nor who we will be. Both literally and figuratively, considering our cells are constantly dying and recycling. Every 7ish years you have a new body and because our minds are ever expanding and learning new things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210336.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/08/034818/87211120/technicallythetruth32.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
