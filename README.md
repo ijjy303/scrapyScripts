@@ -1,67 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/13/2022-02:47:18
+Last updated: 07/13/2022-03:47:18
 <br>
-## <a href="#linky2" id="linky1">25 Wildlife Facts to Chew On</a><br>
-
-<span style="font-size:4em">1. Army Ants will create balls during high water floods. The ball will roll allowing every ant to get a breath. - H010CR0N </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There is a genus of frog called Mini. There are only three frogs in the genus, and their scientific names are all puns: Mini mum, Mini ature and Mini scule. - SwimmingOnMars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run! - generic-volume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The duck-billed platypus has no nipples to feed their offspring. Instead, milk oozes from the skin. - ChimpyChompies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Rabbits dont have pads on their paws. Only fur. So if you see a cartoon rabbit with pads on its paw, completely wrong. - FOTBWN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals. - Iron_Chic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kangaroos cannot jump backwards. - bsquirlz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them. It is thought that this might actually be helpful because a) their eyesight was shit anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey. Imagine something eating your eyeballs and it being an upgrade. - Fabled_Webs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater. - Yeeteth_thy_baby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cats have tiny whiskers on their ankles to help them hunt and be sneaky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Butterflies will drink blood given the option. - Semicolon7645</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her. - amishsheepherder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing. - Soulfighter56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A kangaroo will mate again one to three days after giving birth. The newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-If the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. So they can have an adolescent Joey, a nursing one, and one in stasis all at the same time. - themoonhasgone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Turkey vultures projectile vomit as a means of defense! - yourscottygirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider. - imachiknsamich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Axolotls are real life Frankensteins monsters. Not only do they have the ability to regenerate tissue if it gets damaged much like a starfish can grow a limb, but if you cut off their arm and (oh I dont know) ATTACH IT TO ITS BACK, their cells will form and fix between the back and the dismembered limb. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-After some time, the arm is completely attached and useful while attached to the back like some disgusting Mr Potato Head. Some people did a test where they completely severed the head of an Axolotl and just pasted it next to the head of another one to see if a head could do the same thing. It worked. The brain started thinking again, ate food after their esophagus attached, and became a fully functioning 2 headed axolotl. - WillyMcHilly489</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking. - powderabuser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210313.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Only sheep, whales, and humans go through menopause - FinishTheThing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. There are no male Mourning geckos. The entire species is female. - Moctor_Drignall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Western Lowland Gorillas scientific name is gorilla gorilla gorilla. - CorporalCrash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210316.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">Some Lesser Known Badasses From History  </a><br>
+## <a href="#linky2" id="linky1">Some Lesser Known Badasses From History  </a><br>
 
 <span style="font-size:4em">1. Simo Hayha. Finnish farmer. Got drafted. Killed 505 Russians in the Winter War, making him the deadliest sniper ever. Didnt use a scope. He also killed 200 more with his machine gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212630.jpg" style="width:100%"><br>
 
@@ -93,112 +33,139 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">People Reveal Secrets from Different Jobs They’ve Worked</a><br>
+## <a href="#linky3" id="linky2">41 Behind the Scenes Photos From Iconic Movies</a><br>
 
-<span style="font-size:4em">1. I work in organ donation. The general public doesn’t understand literally any of it. One notable thing is that when you register to be an organ donor, it’s a legally binding declaration about your wishes after death. It is akin to a will under gift law. - anonkraken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210201.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The Avengers</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122502/87213621/83050810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Laser printers basically shoot lasers at a rolled up Polaroid, magnetize tiny bits of chopped up crayons onto a belt in that pattern, blow it all onto a sheet of paper with electricity at an opposite voltage, and then melt it at a temperature hot enough to bake a chicken for a fraction of a second before handing the results to you. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210202.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The Godfather (Sonnys Death - Toll Booth Shooting Scene)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122559/87213628/84516783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210203.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Pirates of the Caribbean extras had to work in any weather. And ordinary shoe covers kept their shoes clean.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-This is a generalization, of course, but the fact that printers work at all is pretty much witchcraft. - Jazeraine-S</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210204.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122644/87213636/87106913.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Working for giant companies, it’s comical how many systems are raggedy messes of bare-bones functionality. All available money gets thrown at certain projects, leaving everything else to work on complete shoe-strings. - DontWorryImADr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210205.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. And this is how the Iron Man suit was created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Anesthetics - we only ask about your illicit drug use so we don’t kill you when we give you a general anesthetic and that you have appropriate pain relief. You’ll have a tolerance that we need to counter by giving you a variety of drugs and more of them. No judgement from us on your choices - just want to actually take care of your properly. - killingkirby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210206.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Godzilla</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122513/87213622/83578879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I work in IT support. Legit about 80% of all problems are solved by rebooting the computer/terminal/phone. If not, 20 percent is pure detective work. - Sarato88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210209.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Nightmare on Elm Street</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122524/87213623/83597745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Crisis hotline. Sometimes we get really disturbing prank calls. I always encourage people to call back if they are ever in crisis. A lot of times, they (the prank callers) do. - fieldsofjade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210207.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Karen Gillan had to spend hours in a makeup chair to turn into Nebula.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. That as a trucker, that space I left in front of me is so I don’t kill anybody, NOT your personal invitation to jump in front of my bumper because you forgot your exit or whatever reason. So many want to get in front of us and slow down and park in front my bumper. YSK: Don’t believe the billboards those ambulance chasing lawyers put up about big truck accidents mean big bucks. Only survivors get money, most likely not you. If you do survive, more than likely your quality of life is going to be miserable. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210208.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122633/87213634/87106857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210211.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Jaws</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122533/87213624/83171344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Also YSK: these trucks can weigh up to 80,000 pounds, 34,000 pounds empty and around 20,000 pounds without the trailer. How does that compare to your SUV or even your lifted pickup. Do us all a favor and give us some space, leave us room so that you can live and go home to your family. One final thought, NEVER assume the other driver sees you. - gfinchster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210212.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Django Unchained</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122538/87213625/84516769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I was a licensed Cremationist for 8 years. Regardless of how hard we tried, that wasn’t just grandma or grandpa in the urn…. - X_5456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210213.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Terminator</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122610/87213630/84516780.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Im a massage therapist. I dont care if you didnt shave. But please wash your feet. - Odd_Improvement578</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210214.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. E.T.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122545/87213626/84516771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Ex-security guard here. Were not there to protect you. Were there to observe and report. Dont assume that just because whatever building youre working in has security that youre safe. Especially if security is of the unarmed variety. - dragon_book_hoarder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210215.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Halloween</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122549/87213627/84319993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Radioactive contamination can often just be cleaned with Windex or even water. - riphitter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210210.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Lord of the Rings</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122602/87213629/84516785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I work at a large biotech/pharmaceutical manufacturing company. The drugs you take or buy from your local pharmacy are so insanely and meticulously regulated & inspected at every step of the journey - from petri dish to pharmacy shelf, that you could take a pill from a bottle and it can be traced back to the exact room it was made in, the exact equipment that was used, who was responsible for each step, and the time it was made down to the very second. Seriously, there are no missteps when it comes to GxP. - StaircaseRailing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210216.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Titanic</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122613/87213631/84516791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Most fossils in museums are plastic replicas. Not always the whole thing, but any full dinosaur you see more than likely has at least some plastic components. Theres only a handful of businesses in the world that make the replicas and, at least in the US, theyre pretty small operations. - Katy-L-Wood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210217.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Korg looked quite different from what we saw on the screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Brewing beer is mostly cleaning stuff and not drinking a bunch of beer. I’m a glorified beer custodian. - BrewerJosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210218.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122620/87213632/87106839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. When you call 911, please say your address before anything else. It doesn’t matter if someone is actively dying, say your address first. (I’m from a rural area so this might just be a problem where I’m from) but if you’re calling on a cell phone sometimes it can ping in a completely different spot then you are. If you call and don’t say where you are and we get disconnected, I might not have any clue where to send rescue/police/fire and therefore I cannot help you. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210219.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Psycho</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123236/87213640/83490361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210220.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. The Godfather</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123220/87213637/83490365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Say your address (if you don’t know then please give like a cross street or notable location) first, then preferably your name, THEN tell me what’s going on. A lot of people assume that we automatically have a precise location where they’re at, and the systems can be pretty accurate but you can’t always rely on them. If you say the address and we get disconnected I can at least send someone to the area to figure out what needs to be done. - imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210221.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Kill Bill</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123225/87213638/222facebook-template-thumbnail.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The vast majority of content on most business websites is not intended to be read by a human, its purely there to look interesting to Google so you can be pointed to the only thing that matters on the website: the Contact Us form. Which means that some truly sad people spend their lives writing hundreds of pages of garbage they dont even want to be read. This is probably the most bullsh*t of bullsh*t jobs - rocketmackenzie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210222.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Frankenstein</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123231/87213639/83965093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I work with recycling, I can assure you that recycling is WAY more dangerous than it looks like. People throw away loose razor blades, glass (sometimes even whole knives) theres also the problem with human excrement. If youre cut and get an infection from human fecal matter, youre f**ked. - Question-Stunning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210223.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. E.T.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123242/87213641/83965112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. In newswriting, if we like you we dont quote you exactly. If we dont like you, best believe youre getting a sic. - sergalahadabeer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210224.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Jurassic Park</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123246/87213642/83965125.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. I’m the spray tech at a golf course. We use green dye on our putting greens. The grass at Augusta national is sprayed green as well; Any grass you see on camera has been sprayed green.” - camefromxbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210225.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. To create the makeup for Bombshell, a model of Charlize Theron’s nose had to be created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211449.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">26. Emily Blunt and Lin-Manuel Miranda on the set of Mary Poppins Returns</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211448.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">19 Women Who Confirm the Phrase ‘America the Beautiful'</a><br>
+<span style="font-size:4em">27. Most of the scenes in 127 Hours were shot in a real canyon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213228.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Guardians of the Galaxy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213229.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. How the ending of Gravity was filmed:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213225.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Guy Ritchie explaining to the Aladdin cast what to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213230.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. Chris Pratt and Jennifer Lawrence on the set of Passengers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213227.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. The stars of Jumanji, Awkwafina and Karen Gillan, are making the rope bridge chase scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213231.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. Behind the scenes of Terminator — Mackenzie Davis is hovering over the car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213226.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. It was not an easy job for the cameramen of First Man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213243.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. Driving scenes in Mission: Impossible 7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213232.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. Green screens can do wonders — like turn Sean Gunn into Rocket Raccoon!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213234.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. Behind the scenes of His Dark Materials</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213233.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. Gal Gadot is making models for the Wonder Woman suit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213242.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. Nothing unusual, just Gillian Anderson and Olivia Colman goofing around on the set of The Crown...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213236.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122624/87213633/87106842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213241.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. From Captain America: The Winter Soldier — Scarlett Johansson, Samuel L. Jackson, and a helicopter prop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211473.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
+## <a href="#linky4" id="linky3">21 Cool Pics of Our Wonderful World</a><br>
+
+<span style="font-size:4em">1. Fireworks reflection off my car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095311/87213480/interesting1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Ancient banana in my girlfriend’s car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095357/87213488/interesting11.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. This tree was struck by lightening earlier and is now smoking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095312/87213481/interesting4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. This little guy is no longer plastic!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095324/87213483/interesting6.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. People trying to film Metallica on their flip phones and 0.3mp Nokias in 2007.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095408/87213490/interesting13.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. How high the Hoover Dam water used to be vs now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095322/87213482/interesting5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. This utility pole has had so many flyers stapled to it over the years that people just use tape now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095442/87213494/interesting18.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Pigeon flew right past my phone while taking a photo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095301/87213479/interesting2.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. The way you can see the truck through these pipes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095409/87213491/interesting14.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The last blockbuster in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095336/87213485/interesting8.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095345/87213486/interesting9.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. This apartment shows old memes while youre waiting in the elevator.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095348/87213487/interesting10.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. This stage has no backdrop.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095503/87213497/interesting20.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. I got a couple french fries that were completely hollow.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095358/87213489/interesting12.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Braille version of Playboy magazine from 1989.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095334/87213484/interesting7.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. In the Netherlands the farmers border their fields with a strip of flowers for biodiversity and there’s a QR code to pay for picking flowers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095420/87213492/interesting15.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Highlighter with no cap in drawer bled onto envelope over the course of a few weeks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095431/87213493/interesting17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. This car has been parked at the Denver airport for almost a year.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095626/87213498/interesting21.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095258/87213478/interesting3.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. One Dollar from from 1917 (bottom) vs one from today present day (top).  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095451/87213495/interesting16.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. My cousin’s Samurai sword shift knob.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095454/87213496/interesting19.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105825/87213512/87212911.jpg" style="width:100%"><br>
 
@@ -271,6 +238,70 @@ Say your address (if you don’t know then please give like a cross street or no
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105858/87213518/87212947.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105859/87213519/87212952.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213435.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -388,89 +419,45 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">41 Behind the Scenes Photos From Iconic Movies</a><br>
+## <a href="#linky9" id="linky8">19 Women Who Confirm the Phrase ‘America the Beautiful'</a><br>
 
-<span style="font-size:4em">1. The Avengers</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122502/87213621/83050810.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The Godfather (Sonnys Death - Toll Booth Shooting Scene)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122559/87213628/84516783.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213229.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Pirates of the Caribbean extras had to work in any weather. And ordinary shoe covers kept their shoes clean.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211468.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213225.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122644/87213636/87106913.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. And this is how the Iron Man suit was created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211474.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Godzilla</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122513/87213622/83578879.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Nightmare on Elm Street</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122524/87213623/83597745.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Karen Gillan had to spend hours in a makeup chair to turn into Nebula.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211460.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122633/87213634/87106857.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Jaws</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122533/87213624/83171344.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Django Unchained</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122538/87213625/84516769.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Terminator</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122610/87213630/84516780.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. E.T.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122545/87213626/84516771.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Halloween</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122549/87213627/84319993.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Lord of the Rings</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122602/87213629/84516785.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Titanic</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122613/87213631/84516791.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Korg looked quite different from what we saw on the screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211462.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122620/87213632/87106839.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Psycho</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123236/87213640/83490361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The Godfather</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123220/87213637/83490365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Kill Bill</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123225/87213638/222facebook-template-thumbnail.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Frankenstein</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123231/87213639/83965093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. E.T.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123242/87213641/83965112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Jurassic Park</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123246/87213642/83965125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. To create the makeup for Bombshell, a model of Charlize Theron’s nose had to be created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Emily Blunt and Lin-Manuel Miranda on the set of Mary Poppins Returns</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Most of the scenes in 127 Hours were shot in a real canyon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Guardians of the Galaxy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. How the ending of Gravity was filmed:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Guy Ritchie explaining to the Aladdin cast what to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Chris Pratt and Jennifer Lawrence on the set of Passengers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. The stars of Jumanji, Awkwafina and Karen Gillan, are making the rope bridge chase scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Behind the scenes of Terminator — Mackenzie Davis is hovering over the car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. It was not an easy job for the cameramen of First Man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Driving scenes in Mission: Impossible 7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. Green screens can do wonders — like turn Sean Gunn into Rocket Raccoon!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. Behind the scenes of His Dark Materials</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. Gal Gadot is making models for the Wonder Woman suit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. Nothing unusual, just Gillian Anderson and Olivia Colman goofing around on the set of The Crown...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122624/87213633/87106842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. From Captain America: The Winter Soldier — Scarlett Johansson, Samuel L. Jackson, and a helicopter prop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211473.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213241.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -558,113 +545,126 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">21 Cool Pics of Our Wonderful World</a><br>
+## <a href="#linky12" id="linky11">25 Wildlife Facts to Chew On</a><br>
 
-<span style="font-size:4em">1. Fireworks reflection off my car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095311/87213480/interesting1.png" style="width:100%"><br>
+<span style="font-size:4em">1. Army Ants will create balls during high water floods. The ball will roll allowing every ant to get a breath. - H010CR0N </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210292.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Ancient banana in my girlfriend’s car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095357/87213488/interesting11.png" style="width:100%"><br>
+<span style="font-size:4em">2. There is a genus of frog called Mini. There are only three frogs in the genus, and their scientific names are all puns: Mini mum, Mini ature and Mini scule. - SwimmingOnMars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This tree was struck by lightening earlier and is now smoking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095312/87213481/interesting4.png" style="width:100%"><br>
+<span style="font-size:4em">3. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run! - generic-volume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210294.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This little guy is no longer plastic!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095324/87213483/interesting6.png" style="width:100%"><br>
+<span style="font-size:4em">4. The duck-billed platypus has no nipples to feed their offspring. Instead, milk oozes from the skin. - ChimpyChompies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. People trying to film Metallica on their flip phones and 0.3mp Nokias in 2007.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095408/87213490/interesting13.png" style="width:100%"><br>
+<span style="font-size:4em">5. Rabbits dont have pads on their paws. Only fur. So if you see a cartoon rabbit with pads on its paw, completely wrong. - FOTBWN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. How high the Hoover Dam water used to be vs now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095322/87213482/interesting5.png" style="width:100%"><br>
+<span style="font-size:4em">6. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals. - Iron_Chic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This utility pole has had so many flyers stapled to it over the years that people just use tape now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095442/87213494/interesting18.png" style="width:100%"><br>
+<span style="font-size:4em">7. Kangaroos cannot jump backwards. - bsquirlz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210298.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Pigeon flew right past my phone while taking a photo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095301/87213479/interesting2.png" style="width:100%"><br>
+<span style="font-size:4em">8. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them. It is thought that this might actually be helpful because a) their eyesight was shit anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey. Imagine something eating your eyeballs and it being an upgrade. - Fabled_Webs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The way you can see the truck through these pipes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095409/87213491/interesting14.png" style="width:100%"><br>
+<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater. - Yeeteth_thy_baby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The last blockbuster in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095336/87213485/interesting8.png" style="width:100%"><br>
+<span style="font-size:4em">10. Cats have tiny whiskers on their ankles to help them hunt and be sneaky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210301.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095345/87213486/interesting9.png" style="width:100%"><br>
+<span style="font-size:4em">11. Butterflies will drink blood given the option. - Semicolon7645</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210302.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This apartment shows old memes while youre waiting in the elevator.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095348/87213487/interesting10.png" style="width:100%"><br>
+<span style="font-size:4em">12. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her. - amishsheepherder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This stage has no backdrop.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095503/87213497/interesting20.png" style="width:100%"><br>
+<span style="font-size:4em">13. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing. - Soulfighter56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210303.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I got a couple french fries that were completely hollow.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095358/87213489/interesting12.png" style="width:100%"><br>
+<span style="font-size:4em">14. A kangaroo will mate again one to three days after giving birth. The newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Braille version of Playboy magazine from 1989.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095334/87213484/interesting7.png" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210306.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. In the Netherlands the farmers border their fields with a strip of flowers for biodiversity and there’s a QR code to pay for picking flowers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095420/87213492/interesting15.png" style="width:100%"><br>
+<span style="font-size:4em">
+If the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. So they can have an adolescent Joey, a nursing one, and one in stasis all at the same time. - themoonhasgone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210307.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Highlighter with no cap in drawer bled onto envelope over the course of a few weeks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095431/87213493/interesting17.png" style="width:100%"><br>
+<span style="font-size:4em">15. Turkey vultures projectile vomit as a means of defense! - yourscottygirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210308.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. This car has been parked at the Denver airport for almost a year.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095626/87213498/interesting21.png" style="width:100%"><br>
+<span style="font-size:4em">16. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider. - imachiknsamich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210309.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095258/87213478/interesting3.png" style="width:100%"><br>
+<span style="font-size:4em">17. Axolotls are real life Frankensteins monsters. Not only do they have the ability to regenerate tissue if it gets damaged much like a starfish can grow a limb, but if you cut off their arm and (oh I dont know) ATTACH IT TO ITS BACK, their cells will form and fix between the back and the dismembered limb. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. One Dollar from from 1917 (bottom) vs one from today present day (top).  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095451/87213495/interesting16.png" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. My cousin’s Samurai sword shift knob.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095454/87213496/interesting19.png" style="width:100%"><br>
+<span style="font-size:4em">
+After some time, the arm is completely attached and useful while attached to the back like some disgusting Mr Potato Head. Some people did a test where they completely severed the head of an Axolotl and just pasted it next to the head of another one to see if a head could do the same thing. It worked. The brain started thinking again, ate food after their esophagus attached, and became a fully functioning 2 headed axolotl. - WillyMcHilly489</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking. - powderabuser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Only sheep, whales, and humans go through menopause - FinishTheThing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. There are no male Mourning geckos. The entire species is female. - Moctor_Drignall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Western Lowland Gorillas scientific name is gorilla gorilla gorilla. - CorporalCrash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210316.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
+## <a href="#linky13" id="linky12">People Reveal Secrets from Different Jobs They’ve Worked</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213422.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I work in organ donation. The general public doesn’t understand literally any of it. One notable thing is that when you register to be an organ donor, it’s a legally binding declaration about your wishes after death. It is akin to a will under gift law. - anonkraken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213417.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Laser printers basically shoot lasers at a rolled up Polaroid, magnetize tiny bits of chopped up crayons onto a belt in that pattern, blow it all onto a sheet of paper with electricity at an opposite voltage, and then melt it at a temperature hot enough to bake a chicken for a fraction of a second before handing the results to you. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213420.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213412.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+This is a generalization, of course, but the fact that printers work at all is pretty much witchcraft. - Jazeraine-S</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213410.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Working for giant companies, it’s comical how many systems are raggedy messes of bare-bones functionality. All available money gets thrown at certain projects, leaving everything else to work on complete shoe-strings. - DontWorryImADr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213430.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Anesthetics - we only ask about your illicit drug use so we don’t kill you when we give you a general anesthetic and that you have appropriate pain relief. You’ll have a tolerance that we need to counter by giving you a variety of drugs and more of them. No judgement from us on your choices - just want to actually take care of your properly. - killingkirby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213411.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I work in IT support. Legit about 80% of all problems are solved by rebooting the computer/terminal/phone. If not, 20 percent is pure detective work. - Sarato88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213409.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Crisis hotline. Sometimes we get really disturbing prank calls. I always encourage people to call back if they are ever in crisis. A lot of times, they (the prank callers) do. - fieldsofjade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213414.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. That as a trucker, that space I left in front of me is so I don’t kill anybody, NOT your personal invitation to jump in front of my bumper because you forgot your exit or whatever reason. So many want to get in front of us and slow down and park in front my bumper. YSK: Don’t believe the billboards those ambulance chasing lawyers put up about big truck accidents mean big bucks. Only survivors get money, most likely not you. If you do survive, more than likely your quality of life is going to be miserable. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213407.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213415.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Also YSK: these trucks can weigh up to 80,000 pounds, 34,000 pounds empty and around 20,000 pounds without the trailer. How does that compare to your SUV or even your lifted pickup. Do us all a favor and give us some space, leave us room so that you can live and go home to your family. One final thought, NEVER assume the other driver sees you. - gfinchster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213416.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I was a licensed Cremationist for 8 years. Regardless of how hard we tried, that wasn’t just grandma or grandpa in the urn…. - X_5456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213419.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Im a massage therapist. I dont care if you didnt shave. But please wash your feet. - Odd_Improvement578</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210214.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213406.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Ex-security guard here. Were not there to protect you. Were there to observe and report. Dont assume that just because whatever building youre working in has security that youre safe. Especially if security is of the unarmed variety. - dragon_book_hoarder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210215.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213418.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Radioactive contamination can often just be cleaned with Windex or even water. - riphitter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213431.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I work at a large biotech/pharmaceutical manufacturing company. The drugs you take or buy from your local pharmacy are so insanely and meticulously regulated & inspected at every step of the journey - from petri dish to pharmacy shelf, that you could take a pill from a bottle and it can be traced back to the exact room it was made in, the exact equipment that was used, who was responsible for each step, and the time it was made down to the very second. Seriously, there are no missteps when it comes to GxP. - StaircaseRailing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210216.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213433.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Most fossils in museums are plastic replicas. Not always the whole thing, but any full dinosaur you see more than likely has at least some plastic components. Theres only a handful of businesses in the world that make the replicas and, at least in the US, theyre pretty small operations. - Katy-L-Wood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213421.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Brewing beer is mostly cleaning stuff and not drinking a bunch of beer. I’m a glorified beer custodian. - BrewerJosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213413.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. When you call 911, please say your address before anything else. It doesn’t matter if someone is actively dying, say your address first. (I’m from a rural area so this might just be a problem where I’m from) but if you’re calling on a cell phone sometimes it can ping in a completely different spot then you are. If you call and don’t say where you are and we get disconnected, I might not have any clue where to send rescue/police/fire and therefore I cannot help you. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210219.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213423.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213424.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Say your address (if you don’t know then please give like a cross street or notable location) first, then preferably your name, THEN tell me what’s going on. A lot of people assume that we automatically have a precise location where they’re at, and the systems can be pretty accurate but you can’t always rely on them. If you say the address and we get disconnected I can at least send someone to the area to figure out what needs to be done. - imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213425.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The vast majority of content on most business websites is not intended to be read by a human, its purely there to look interesting to Google so you can be pointed to the only thing that matters on the website: the Contact Us form. Which means that some truly sad people spend their lives writing hundreds of pages of garbage they dont even want to be read. This is probably the most bullsh*t of bullsh*t jobs - rocketmackenzie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213426.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I work with recycling, I can assure you that recycling is WAY more dangerous than it looks like. People throw away loose razor blades, glass (sometimes even whole knives) theres also the problem with human excrement. If youre cut and get an infection from human fecal matter, youre f**ked. - Question-Stunning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210223.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213427.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. In newswriting, if we like you we dont quote you exactly. If we dont like you, best believe youre getting a sic. - sergalahadabeer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213435.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. I’m the spray tech at a golf course. We use green dye on our putting greens. The grass at Augusta national is sprayed green as well; Any grass you see on camera has been sprayed green.” - camefromxbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210225.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
