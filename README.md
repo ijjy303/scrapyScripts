@@ -1,115 +1,127 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/12/2022-19:47:18
+Last updated: 07/12/2022-20:47:18
 <br>
-## <a href="#linky2" id="linky1">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
+## <a href="#linky2" id="linky1">33 Photos That May Fascinate You.</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213422.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Men in Black (1997) – All the work that goes into capturing a shot of Will Smith sitting on a bench.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213417.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Glastonbury Festival 2022, 220,000 thousand attendees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213653.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213420.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Cool Design For A Handrail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213412.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. La cueva de las manos (Cave of hands) Artist unknown 8000 B.C.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213410.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Lake Mead 1983 vs 2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213430.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This is where queen Elizabeth II will be buried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213411.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Jeff Bezos riding Space Mountain alone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213409.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Gas Prices In Beverly Hills, CA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213414.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Swimmer being rescued by her coach after fainting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213407.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Identical twin brothers Josh and Jeremy married identical twin sisters Brittany and Briana. Both couples gave birth to male babies at the same time. Although technically they are cousins, children are genetically brothers. It gets weirder: both families live together in the same house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213415.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Anna Nicole Smith marrying her 89 year old husband in 1994, who would die the next year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213416.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Cloudflare has a wall full of lava lamps they feed into a camera as a way to generate randomness to create cryptographic keys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213419.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. MLM losses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213406.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Possum observing at my wife’s lab, Australia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213418.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Over $2 Million Dollars Worth Of Crypto Locked Inside A Celsius Account With No Way To Withdraw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213431.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “This newborn fawn was left by its mother next to my wife’s freshly bloomed peonies!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213433.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “A stranger noticed that my wife and I have a cat art wall and left us a new piece.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213421.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “This carpet is all alligators.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213413.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “All the different colors in gumtree leaves during the winter in Australia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213423.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “In that case, I won’t have 2 slices, I think I’ll just have 1 slice twice.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213424.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “My hotel room floor is made of eye floaters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213425.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “My cousin’s Samurai sword shift knob.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213426.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “I found a pink grasshopper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213427.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “The parking lines at this dentist’s office in Dublin are toothbrushes with some toothpaste.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213428.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “This rose flower grew inside out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213676.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213429.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. The state of the housing market in LA. A tent in someone’s backyard for $600/mo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213432.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. “The birds used zip ties to help build a nest.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213408.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. “My local pastry shop misspelled donut on their boxes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213434.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. “The way this railing’s shadow perfectly zigzags on the stairs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213435.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. “I’m in the ER at night and this oximeter is making my hand look like E.T.’s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “There was a peacock standing on the roof of my neighbor’s mini-van.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “My toothpaste has ‘love’ listed as an additional ingredient.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “The phenomenon known as the running tree in Bulgaria.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213683.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">22 Dank Memes to Obliterate Boredom</a><br>
+## <a href="#linky3" id="linky2">25 Things That'll Trigger Your Nostalgia</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212521.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. That feeling when you are going as high as you can go on the swings. Power? Freedom? Hard to describe. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212522.png" style="width:100%"><br>
+<span style="font-size:4em">2. When youd watch a vhs and it would say and now your feature presentation. - Mickthemouse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212523.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Getting up in the morning on a day it snowed to watch the list of closed schools across the bottom of the news/weather channel hoping your school was closed. - cmokelley213</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212524.png" style="width:100%"><br>
+<span style="font-size:4em">4. Hot Wheels. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212525.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Nick nick nick na nick nick nick nickelodeon. -purpleblackgreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212526.png" style="width:100%"><br>
+<span style="font-size:4em">6. Those candy necklaces. - MrSmallMedium</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212527.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. You have died of dysentery. - fakeprofile21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212528.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. PEZ Dispensers. - LordD0nnie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212529.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Conjunction Junction. - HarlanCulpepper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212531.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Land Before Time. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212532.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Eating one of those plastic wrapped ice pop things after a long day of playing outside in your backyard with your friends. - onyourleft___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212533.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Scholastic book fairs. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212534.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The tingle of a skinned knee from drag on asphalt, and the dread of having it cleaned… - Cultural-Parsley-408</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212535.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The noise when picking up the phone when someone was surfing the web. - OhAces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212536.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. An eraser that looks and smells like a very fake strawberry. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212537.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Each sold separately. Batteries not included. - FifteenDoctorPeppers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212538.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Goosebumps series by R.L. Stine. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212539.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. That feeling of limitless freedom on the first day of summer vacation. That feeling of dreaded anticipation on the last day of summer vacation. - _my_poor_brain_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212540.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. That sound of a door opening and shutting on AIM when your friend logs on. - Consistent-Candy6277</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212530.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Remember the warm, fuzzy static left on your tv screen after it was on for a while. Movies and video games on channel 3. - JK_NC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212541.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Collecting stickers. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212542.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Chinese finger traps. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Flintstones push pop ice creams. - Reveries25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Waking up super early on Saturday morning before the rest of the family to watch cartoons. - helltothenoyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Watching The Price Is Right when you were sick at home. - mayhemy11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210184.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -155,103 +167,81 @@ Last updated: 07/12/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">21 Cool Pics of Our Wonderful World</a><br>
+## <a href="#linky5" id="linky4">Employees Forced to Work July 4th Rewarded with $6K Office Party on Company’s Dime</a><br>
 
-<span style="font-size:4em">1. Fireworks reflection off my car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095311/87213480/interesting1.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025412/87212841/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Ancient banana in my girlfriend’s car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095357/87213488/interesting11.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025449/87212842/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This tree was struck by lightening earlier and is now smoking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095312/87213481/interesting4.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025513/87212843/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This little guy is no longer plastic!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095324/87213483/interesting6.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025550/87212844/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. People trying to film Metallica on their flip phones and 0.3mp Nokias in 2007.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095408/87213490/interesting13.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025626/87212845/five.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. How high the Hoover Dam water used to be vs now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095322/87213482/interesting5.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025651/87212846/six.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This utility pole has had so many flyers stapled to it over the years that people just use tape now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095442/87213494/interesting18.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025715/87212847/seven.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Pigeon flew right past my phone while taking a photo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095301/87213479/interesting2.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025747/87212848/eight.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The way you can see the truck through these pipes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095409/87213491/interesting14.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025808/87212849/nine.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The last blockbuster in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095336/87213485/interesting8.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025834/87212850/ten.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095345/87213486/interesting9.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025917/87212851/eleven.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This apartment shows old memes while youre waiting in the elevator.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095348/87213487/interesting10.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025942/87212852/twelve.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This stage has no backdrop.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095503/87213497/interesting20.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. I got a couple french fries that were completely hollow.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095358/87213489/interesting12.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Braille version of Playboy magazine from 1989.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095334/87213484/interesting7.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. In the Netherlands the farmers border their fields with a strip of flowers for biodiversity and there’s a QR code to pay for picking flowers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095420/87213492/interesting15.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Highlighter with no cap in drawer bled onto envelope over the course of a few weeks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095431/87213493/interesting17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. This car has been parked at the Denver airport for almost a year.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095626/87213498/interesting21.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095258/87213478/interesting3.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. One Dollar from from 1917 (bottom) vs one from today present day (top).  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095451/87213495/interesting16.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. My cousin’s Samurai sword shift knob.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095454/87213496/interesting19.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/030029/87212890/thirt.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Unsettling Facts About Our Universe</a><br>
+## <a href="#linky6" id="linky5">22 Dank Memes to Obliterate Boredom</a><br>
 
-<span style="font-size:4em">1. The farthest galaxy we can detect was 13.4 billion light years away when it emitted the light we see today. That light (not the galaxy, the light itself) is three times as old as the Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210227.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Two possibilities exist: either we are alone in the Universe or we are not. Both are equally terrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210248.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212522.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. There is a theory (Proton decay) that states that protons, one of the fundamental building blocks of matter, can just spontaneously evaporate. The amount of time this takes is astronomical, but current theories predict that all matter in the universe will decay away until there is nothing left but particles of light and empty space. The time it will take for this to happen is incomprehensible, but it is the most likely scenario for how our universe will end.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210245.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The fact that the Voyager 2 Space probe after over 40 years has not even hit a pebble.....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210231.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212524.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. If you gathered together all the matter in the universe we can observe right now ,and squished it together until it had the density of water, (1gm/cm^3) it would fit into a cube about 1 light year on each side. There are several disturbing things about this. A single light year is almost unimaginably huge. A cubic light year is a ridiculous volume of space. The observable universe is 33 orders of magnitude larger than that. It is almost entirely empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210232.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The largest black hole we have discovered has a diameter of 490.000.000.000 km. Earths diameter is roughly 13.000 km.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210233.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212526.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. There is no up or down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210234.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Time-lapses of the Future send me into an existential crisis every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210235.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Here’s one closer to home. The Kessler Effect is the theory that a single destructive event in low Earth orbit could create a cascade where satellites break up into tiny fragments taking out other satellites, breaking up into smaller fragments and so on, until the earth is completely surrounded by a massive cloud of tiny flying death shrapnel, which would make leaving this planet almost impossible. If you look up how much space debris there is already up there and how many satellites currently orbit, plus the continued growth of the commercial space industry... I think about it a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210236.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Somewhere, something incredible is waiting to be known.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210237.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. That we, as a planet, are literally flying through Space. I dont just mean around the Sun, because our Solar System is flying through space as well. Along with our Galaxy too. Where Earth was one minute ago is a point in space that we will never return too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210230.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Rogue planets. Such objects have been ejected from the planetary system in which they were formed or have never been gravitationally bound to any star or brown dwarf. If a rogue planet invaded our Solar System, things could go very wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210238.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In about 150 billion years, intergalactic transportation and communication beyond our local supercluster will be impossible. In about two trillion years, galaxies outside of our local supercluster are no longer detectable due to redshift. Assuming the universe keeps expanding, then the universe’s final fate depends on whether or not protons decay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210239.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. More of a theory than a fact, but I find the Dark Forest theory pretty disturbing. Basically the idea that there are other civilizations out there but they are staying quiet for good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210240.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I truly don’t believe most of us are capable of comprehending the vastness of space and the distance between things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210241.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. There are voids in the universe that are so big that if you were teleported to the center with a spacesuit on, you would just see pitch darkness in all directions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210228.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. In 2019, scientists at the Royal Institution of Australia (along with NASA and other international space agencies) completely missed a football-field-sized asteroid that came eerily close to Earths atmosphere and had apparently realized it only minutes before it passed Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210242.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. The near impossibility of interstellar human travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210243.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. We still dont know exactly how it came into existence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210244.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. At 600KM above planet Earth the temperature fluctuates between +258 and -148 degrees Fahrenheit. There is nothing to carry sound. No air pressure. No oxygen. Life in space is impossible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210246.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. I just learned about something called Angular Diameter Turnaround. Basically, things that are far away look smaller; but things that are really far away look bigger, because when their light was emitted, the universe was small and they were close to us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210247.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. How easy it would be to become completely and totally isolated out there. In space, technology is the only thing keeping us alive. The only reason we dont freeze suffocate or starve. Imagine the day when humans advance to traveling deeper into space. Imagine not having communication. Completely alone in the blackness of space. Or even worse, your engines die and youre just forced to sit, hoping and praying that somewhere in the vast universe someone comes across you. Thats scarier than any movie monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The images you see are galaxies not as they are but as they were, based on how many light-years away they are. This is fine for anything within the thousands but if we are talking millions or billions of light-years away then there is a good chance that none of those stars you see even technically exist right now. On the bright side though, if we can figure out how to move faster than light then we could see our own planet with a good enough telescope as it was in the past. We could observe any outside historical event or even dinosaurs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. We could literally get vaporized at any moment from a space death laser traveling at the speed of light, so we cant even detect it before were dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Time is not linear due to the constant expansion of space therefore time is expansive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210251.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87212542.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -318,151 +308,7 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Employees Forced to Work July 4th Rewarded with $6K Office Party on Company’s Dime</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025412/87212841/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025449/87212842/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025513/87212843/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025550/87212844/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025626/87212845/five.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025651/87212846/six.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025715/87212847/seven.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025747/87212848/eight.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025808/87212849/nine.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025834/87212850/ten.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025917/87212851/eleven.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025942/87212852/twelve.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/030029/87212890/thirt.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">25 Things That'll Trigger Your Nostalgia</a><br>
-
-<span style="font-size:4em">1. That feeling when you are going as high as you can go on the swings. Power? Freedom? Hard to describe. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When youd watch a vhs and it would say and now your feature presentation. - Mickthemouse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Getting up in the morning on a day it snowed to watch the list of closed schools across the bottom of the news/weather channel hoping your school was closed. - cmokelley213</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Hot Wheels. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Nick nick nick na nick nick nick nickelodeon. -purpleblackgreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Those candy necklaces. - MrSmallMedium</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. You have died of dysentery. - fakeprofile21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. PEZ Dispensers. - LordD0nnie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Conjunction Junction. - HarlanCulpepper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Land Before Time. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Eating one of those plastic wrapped ice pop things after a long day of playing outside in your backyard with your friends. - onyourleft___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Scholastic book fairs. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The tingle of a skinned knee from drag on asphalt, and the dread of having it cleaned… - Cultural-Parsley-408</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The noise when picking up the phone when someone was surfing the web. - OhAces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. An eraser that looks and smells like a very fake strawberry. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Each sold separately. Batteries not included. - FifteenDoctorPeppers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Goosebumps series by R.L. Stine. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That feeling of limitless freedom on the first day of summer vacation. That feeling of dreaded anticipation on the last day of summer vacation. - _my_poor_brain_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. That sound of a door opening and shutting on AIM when your friend logs on. - Consistent-Candy6277</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Remember the warm, fuzzy static left on your tv screen after it was on for a while. Movies and video games on channel 3. - JK_NC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Collecting stickers. - zazzlekdazzle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Chinese finger traps. - JbunnyThumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Flintstones push pop ice creams. - Reveries25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Waking up super early on Saturday morning before the rest of the family to watch cartoons. - helltothenoyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Watching The Price Is Right when you were sick at home. - mayhemy11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210184.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">25 Wildlife Facts to Chew On</a><br>
-
-<span style="font-size:4em">1. Army Ants will create balls during high water floods. The ball will roll allowing every ant to get a breath. - H010CR0N </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There is a genus of frog called Mini. There are only three frogs in the genus, and their scientific names are all puns: Mini mum, Mini ature and Mini scule. - SwimmingOnMars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run! - generic-volume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The duck-billed platypus has no nipples to feed their offspring. Instead, milk oozes from the skin. - ChimpyChompies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Rabbits dont have pads on their paws. Only fur. So if you see a cartoon rabbit with pads on its paw, completely wrong. - FOTBWN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals. - Iron_Chic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kangaroos cannot jump backwards. - bsquirlz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them. It is thought that this might actually be helpful because a) their eyesight was shit anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey. Imagine something eating your eyeballs and it being an upgrade. - Fabled_Webs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater. - Yeeteth_thy_baby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cats have tiny whiskers on their ankles to help them hunt and be sneaky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Butterflies will drink blood given the option. - Semicolon7645</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her. - amishsheepherder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing. - Soulfighter56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A kangaroo will mate again one to three days after giving birth. The newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-If the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. So they can have an adolescent Joey, a nursing one, and one in stasis all at the same time. - themoonhasgone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Turkey vultures projectile vomit as a means of defense! - yourscottygirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider. - imachiknsamich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Axolotls are real life Frankensteins monsters. Not only do they have the ability to regenerate tissue if it gets damaged much like a starfish can grow a limb, but if you cut off their arm and (oh I dont know) ATTACH IT TO ITS BACK, their cells will form and fix between the back and the dismembered limb. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-After some time, the arm is completely attached and useful while attached to the back like some disgusting Mr Potato Head. Some people did a test where they completely severed the head of an Axolotl and just pasted it next to the head of another one to see if a head could do the same thing. It worked. The brain started thinking again, ate food after their esophagus attached, and became a fully functioning 2 headed axolotl. - WillyMcHilly489</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking. - powderabuser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210313.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Only sheep, whales, and humans go through menopause - FinishTheThing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. There are no male Mourning geckos. The entire species is female. - Moctor_Drignall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Western Lowland Gorillas scientific name is gorilla gorilla gorilla. - CorporalCrash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210316.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Some Lesser Known Badasses From History  </a><br>
+## <a href="#linky8" id="linky7">Some Lesser Known Badasses From History  </a><br>
 
 <span style="font-size:4em">1. Simo Hayha. Finnish farmer. Got drafted. Killed 505 Russians in the Winter War, making him the deadliest sniper ever. Didnt use a scope. He also killed 200 more with his machine gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212630.jpg" style="width:100%"><br>
 
@@ -494,7 +340,117 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
+## <a href="#linky9" id="linky8">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213435.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">21 Cool Pics of Our Wonderful World</a><br>
+
+<span style="font-size:4em">1. Fireworks reflection off my car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095311/87213480/interesting1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Ancient banana in my girlfriend’s car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095357/87213488/interesting11.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. This tree was struck by lightening earlier and is now smoking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095312/87213481/interesting4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. This little guy is no longer plastic!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095324/87213483/interesting6.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. People trying to film Metallica on their flip phones and 0.3mp Nokias in 2007.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095408/87213490/interesting13.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. How high the Hoover Dam water used to be vs now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095322/87213482/interesting5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. This utility pole has had so many flyers stapled to it over the years that people just use tape now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095442/87213494/interesting18.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Pigeon flew right past my phone while taking a photo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095301/87213479/interesting2.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. The way you can see the truck through these pipes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095409/87213491/interesting14.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The last blockbuster in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095336/87213485/interesting8.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095345/87213486/interesting9.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. This apartment shows old memes while youre waiting in the elevator.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095348/87213487/interesting10.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. This stage has no backdrop.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095503/87213497/interesting20.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. I got a couple french fries that were completely hollow.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095358/87213489/interesting12.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Braille version of Playboy magazine from 1989.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095334/87213484/interesting7.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. In the Netherlands the farmers border their fields with a strip of flowers for biodiversity and there’s a QR code to pay for picking flowers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095420/87213492/interesting15.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Highlighter with no cap in drawer bled onto envelope over the course of a few weeks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095431/87213493/interesting17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. This car has been parked at the Denver airport for almost a year.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095626/87213498/interesting21.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095258/87213478/interesting3.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. One Dollar from from 1917 (bottom) vs one from today present day (top).  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095451/87213495/interesting16.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. My cousin’s Samurai sword shift knob.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095454/87213496/interesting19.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105825/87213512/87212911.jpg" style="width:100%"><br>
 
@@ -567,6 +523,120 @@ After some time, the arm is completely attached and useful while attached to the
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105858/87213518/87212947.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105859/87213519/87212952.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">25 Unsettling Facts About Our Universe</a><br>
+
+<span style="font-size:4em">1. The farthest galaxy we can detect was 13.4 billion light years away when it emitted the light we see today. That light (not the galaxy, the light itself) is three times as old as the Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Two possibilities exist: either we are alone in the Universe or we are not. Both are equally terrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. There is a theory (Proton decay) that states that protons, one of the fundamental building blocks of matter, can just spontaneously evaporate. The amount of time this takes is astronomical, but current theories predict that all matter in the universe will decay away until there is nothing left but particles of light and empty space. The time it will take for this to happen is incomprehensible, but it is the most likely scenario for how our universe will end.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The fact that the Voyager 2 Space probe after over 40 years has not even hit a pebble.....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you gathered together all the matter in the universe we can observe right now ,and squished it together until it had the density of water, (1gm/cm^3) it would fit into a cube about 1 light year on each side. There are several disturbing things about this. A single light year is almost unimaginably huge. A cubic light year is a ridiculous volume of space. The observable universe is 33 orders of magnitude larger than that. It is almost entirely empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The largest black hole we have discovered has a diameter of 490.000.000.000 km. Earths diameter is roughly 13.000 km.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. There is no up or down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Time-lapses of the Future send me into an existential crisis every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Here’s one closer to home. The Kessler Effect is the theory that a single destructive event in low Earth orbit could create a cascade where satellites break up into tiny fragments taking out other satellites, breaking up into smaller fragments and so on, until the earth is completely surrounded by a massive cloud of tiny flying death shrapnel, which would make leaving this planet almost impossible. If you look up how much space debris there is already up there and how many satellites currently orbit, plus the continued growth of the commercial space industry... I think about it a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Somewhere, something incredible is waiting to be known.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That we, as a planet, are literally flying through Space. I dont just mean around the Sun, because our Solar System is flying through space as well. Along with our Galaxy too. Where Earth was one minute ago is a point in space that we will never return too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Rogue planets. Such objects have been ejected from the planetary system in which they were formed or have never been gravitationally bound to any star or brown dwarf. If a rogue planet invaded our Solar System, things could go very wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In about 150 billion years, intergalactic transportation and communication beyond our local supercluster will be impossible. In about two trillion years, galaxies outside of our local supercluster are no longer detectable due to redshift. Assuming the universe keeps expanding, then the universe’s final fate depends on whether or not protons decay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. More of a theory than a fact, but I find the Dark Forest theory pretty disturbing. Basically the idea that there are other civilizations out there but they are staying quiet for good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I truly don’t believe most of us are capable of comprehending the vastness of space and the distance between things.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. There are voids in the universe that are so big that if you were teleported to the center with a spacesuit on, you would just see pitch darkness in all directions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In 2019, scientists at the Royal Institution of Australia (along with NASA and other international space agencies) completely missed a football-field-sized asteroid that came eerily close to Earths atmosphere and had apparently realized it only minutes before it passed Earth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The near impossibility of interstellar human travel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. We still dont know exactly how it came into existence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. At 600KM above planet Earth the temperature fluctuates between +258 and -148 degrees Fahrenheit. There is nothing to carry sound. No air pressure. No oxygen. Life in space is impossible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I just learned about something called Angular Diameter Turnaround. Basically, things that are far away look smaller; but things that are really far away look bigger, because when their light was emitted, the universe was small and they were close to us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. How easy it would be to become completely and totally isolated out there. In space, technology is the only thing keeping us alive. The only reason we dont freeze suffocate or starve. Imagine the day when humans advance to traveling deeper into space. Imagine not having communication. Completely alone in the blackness of space. Or even worse, your engines die and youre just forced to sit, hoping and praying that somewhere in the vast universe someone comes across you. Thats scarier than any movie monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The images you see are galaxies not as they are but as they were, based on how many light-years away they are. This is fine for anything within the thousands but if we are talking millions or billions of light-years away then there is a good chance that none of those stars you see even technically exist right now. On the bright side though, if we can figure out how to move faster than light then we could see our own planet with a good enough telescope as it was in the past. We could observe any outside historical event or even dinosaurs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. We could literally get vaporized at any moment from a space death laser traveling at the speed of light, so we cant even detect it before were dead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Time is not linear due to the constant expansion of space therefore time is expansive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210251.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">25 Wildlife Facts to Chew On</a><br>
+
+<span style="font-size:4em">1. Army Ants will create balls during high water floods. The ball will roll allowing every ant to get a breath. - H010CR0N </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There is a genus of frog called Mini. There are only three frogs in the genus, and their scientific names are all puns: Mini mum, Mini ature and Mini scule. - SwimmingOnMars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The chemical compound which is used to make fake banana flavour is the same compound honey bees use as an alarm pheromone. So never eat banana sweets near a beehive, and if you suddenly smell banana near a beehive, run! - generic-volume</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The duck-billed platypus has no nipples to feed their offspring. Instead, milk oozes from the skin. - ChimpyChompies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Rabbits dont have pads on their paws. Only fur. So if you see a cartoon rabbit with pads on its paw, completely wrong. - FOTBWN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Vultures urinate on their legs and feet to cool off on hot days, a process called urohydrosis. Their urine also helps kill any bacteria or parasites they’ve picked up from walking through carcasses or perching on dead animals. - Iron_Chic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Kangaroos cannot jump backwards. - bsquirlz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The vast majority of Greenland sharks are blind thanks to a special parasite that eats their eyes and replaces them. It is thought that this might actually be helpful because a) their eyesight was shit anyway, b) the parasites wave like lures and may have an anglerfish-like effect, and c) the sharks are super slow so that might be one of the few ways for them to catch live prey. Imagine something eating your eyeballs and it being an upgrade. - Fabled_Webs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Penguins have a gland above their eye that converts saltwater into freshwater. - Yeeteth_thy_baby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cats have tiny whiskers on their ankles to help them hunt and be sneaky.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Butterflies will drink blood given the option. - Semicolon7645</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Sloths are literally too lazy to go looking for a mate, so a female sloth will often sit in a tree and scream until a male hears her and decides to mate with her. - amishsheepherder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Roosters deafen themselves temporarily every time they crow, so that they don’t damage their own hearing. - Soulfighter56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A kangaroo will mate again one to three days after giving birth. The newborn will latch onto a teat in the pouch and as long as it thrives, the kangaroo can put its newly fertilized embryo in a state of dormancy and have a back up baby ready to go. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+If the newborn grows out of the pouch or dies, the kangaroos hormones will send signals to start the development of the egg. So they can have an adolescent Joey, a nursing one, and one in stasis all at the same time. - themoonhasgone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Turkey vultures projectile vomit as a means of defense! - yourscottygirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Bees have 5 eyes. 2 complex like a flys and 3 simple eyes like a spider. - imachiknsamich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Axolotls are real life Frankensteins monsters. Not only do they have the ability to regenerate tissue if it gets damaged much like a starfish can grow a limb, but if you cut off their arm and (oh I dont know) ATTACH IT TO ITS BACK, their cells will form and fix between the back and the dismembered limb. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+After some time, the arm is completely attached and useful while attached to the back like some disgusting Mr Potato Head. Some people did a test where they completely severed the head of an Axolotl and just pasted it next to the head of another one to see if a head could do the same thing. It worked. The brain started thinking again, ate food after their esophagus attached, and became a fully functioning 2 headed axolotl. - WillyMcHilly489</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Woodpecker tongues wrap around the back of their brains. This helps the brain stay protected during high speed pecking. - powderabuser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Only sheep, whales, and humans go through menopause - FinishTheThing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. There are no male Mourning geckos. The entire species is female. - Moctor_Drignall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Western Lowland Gorillas scientific name is gorilla gorilla gorilla. - CorporalCrash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210316.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
