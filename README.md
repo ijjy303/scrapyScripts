@@ -1,100 +1,93 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/13/2022-08:47:18
+Last updated: 07/13/2022-09:47:19
 <br>
-## <a href="#linky2" id="linky1">WTF Facts About R. Kelly You Don't Want to Know</a><br>
+## <a href="#linky2" id="linky1">20 People Reveal Crazy Things They Found in Their Spouse's Stuff</a><br>
 
-<span style="font-size:4em">1. R. Kelly is </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210067.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When my husband passed I found a garage door opener in his car. We don’t use one and neither did his work parking. I have no idea what garage it opens.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213603/spousefound1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">.   - u/AllieValley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210068.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A notebook full of beautiful sketches of trees, rivers, landscapes, animals, and people. He didnt tell me he was an artist, so I was a bit shocked to find out that he was so talented.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121806/87213602/spousefound5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Aaliyahs song Age Aint Nothing but a Number was written and produced by R. Kelly, who she met when she was 12 and married at 15 (he was 27). - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210070.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A collection of rare coins from his grandmother stashed inside a care bear tin.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213604/spousefound3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When asked in an interview if he likes teenage girls, R. Kelly answered how old are we talkin? - u/BenFerris1234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210071.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. He had a huge bag of womens underwear and shoes, and evidence that he was organizing a hookup with at least one guy. There was also a letter telling him not to worry and that shed taken care of it and had an abortion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121817/87213605/spousefound6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A Shaggy Defense is a legal strategy in which a defendant flatly denies guilt despite overwhelming evidence against them. The term is from the Shaggy song It Wasnt Me and was first used in 2008 by writer Josh Levin to describe R. Kellys defense strategy against child pornography charges. - u/EnoughPM2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210072.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Every single scorecard from the MechWarrior game he plays at DragonCon. There are hundreds of them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121901/87213612/spousefound13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. R. Kelly was once arrested for playing his own music too loud in his car. - u/antosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210073.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. My late wife’s wedding ring. A few weeks after her death I realized that our big king sized bed was making me depressed, so I got a queen sized bed and got rid of the king. When I took it apart, I found her engagement / wedding set lodged between the bed leg and the wall. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121828/87213607/spousefound8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. R Kelly received an Image Award from the NAACP in 2004 despite being under indictment for Child pornography charges - u/TheTrueLordHumungous</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210074.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. His sword collection. He also has this cool Armenian ceremonial dagger.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121838/87213608/spousefound10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Ironically R Kelly has a fear of flying, prefers to travel everywhere by bus. - u/PoisedbutHard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210075.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I found eight boxes of ranch dressing in the closet of her spare room.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121840/87213609/spousefound9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. There is a 33-chapter hip-hopera written, produced, and sung by R. Kelly that tells the story of how a one-night stand sets off an absurd chain of events, with corresponding videos for each chapter - u/boomerangutang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210066.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. An excel spreadsheet of all previous sexual partners with stats/scores for each based on different criteria. I had the top score, but still disturbing…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121849/87213610/spousefound12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In 1994, R&B singer R Kelly married fellow R&B singer Aaliyah when she was only 15 years old. The marriage was annulled later that year and they both agreed to never speak of it again. - u/strickland300</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210076.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. He’s hiding the Christmas gifts his parents sent us, even separate ones sent to each of us, and pretending they got us nothing. Not sure what that’s about.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121851/87213611/spousefound11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. You Are Not Alone Michael Jacksons 13th and last number-one hit song in the United States during his lifetime was written and produced by R. Kelly - u/sometimes_i_wish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210077.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I found a small thin rod that was attached to a plastic base when we were moving from our apartment to our house. For all the world it looked like some sort of sex toy. My wife has to take daily HGH injections and it turns out that what I thought was a sex toy was an agitator that was part of mixing her meds together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121937/87213619/spousefound20.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. R. Kelly Played Professional Basketball from 1997 to 1999 - u/dreadmonster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210078.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A short note I had written her on our 3rd date. This was from 15 years ago. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121755/87213601/spousefound4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. R Kelly sued Michael Jackson for using his song in a Documentary - u/Rumy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210080.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Six credit cards in my name I didnt apply for.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121925/87213617/spousefound18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I believe I can fly by R. Kelly was specifically written for the 1996 movie Space Jam - u/crandberrytea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210081.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Rare gameboy games.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121903/87213613/spousefound14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. At the height of his success in 1997, R. Kelly signed as a shooting guard for a pro basketball team in the USBL. He would also sing the national anthem before the game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210082.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. A rubber crab. My wife is freaked out by crabs. Apparently her mom has been hiding it in her stuff for years to scare her and has become a game between them of hiding it somewhere the other person will eventually find it. Occasionally I’ll be looking for something and stumble across it in a new place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121912/87213614/spousefound15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. His fake teeth. Had been together a year and lived together 2 months. He hadn’t told me, and was embarrassed, but it didn’t change the way I felt about him at all.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121914/87213615/spousefound16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. There was an old report that he had written in probably the third or fourth grade which would’ve been the early 90’s. It was about horses, and on the first page it said “wild stallions natural enemies are wolves and semi trucks.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121924/87213616/spousefound17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A credit card I didnt know about. She used it to spend money on other boyfriends.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121935/87213618/spousefound19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A notebook with a partially finished letter describing in detail how she cheated on me and how she wasnt happy in the relationship.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121827/87213606/spousefound7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A list of reasons why she should leave me and why the guy she was cheating with was better than me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123655/87213643/download.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">People Reveal Secrets from Different Jobs They’ve Worked</a><br>
+## <a href="#linky3" id="linky2">21 Cool Pics of Our Wonderful World</a><br>
 
-<span style="font-size:4em">1. I work in organ donation. The general public doesn’t understand literally any of it. One notable thing is that when you register to be an organ donor, it’s a legally binding declaration about your wishes after death. It is akin to a will under gift law. - anonkraken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210201.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Fireworks reflection off my car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095311/87213480/interesting1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Laser printers basically shoot lasers at a rolled up Polaroid, magnetize tiny bits of chopped up crayons onto a belt in that pattern, blow it all onto a sheet of paper with electricity at an opposite voltage, and then melt it at a temperature hot enough to bake a chicken for a fraction of a second before handing the results to you. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210202.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Ancient banana in my girlfriend’s car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095357/87213488/interesting11.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210203.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This tree was struck by lightening earlier and is now smoking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095312/87213481/interesting4.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-This is a generalization, of course, but the fact that printers work at all is pretty much witchcraft. - Jazeraine-S</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210204.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. This little guy is no longer plastic!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095324/87213483/interesting6.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Working for giant companies, it’s comical how many systems are raggedy messes of bare-bones functionality. All available money gets thrown at certain projects, leaving everything else to work on complete shoe-strings. - DontWorryImADr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210205.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. People trying to film Metallica on their flip phones and 0.3mp Nokias in 2007.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095408/87213490/interesting13.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Anesthetics - we only ask about your illicit drug use so we don’t kill you when we give you a general anesthetic and that you have appropriate pain relief. You’ll have a tolerance that we need to counter by giving you a variety of drugs and more of them. No judgement from us on your choices - just want to actually take care of your properly. - killingkirby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210206.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. How high the Hoover Dam water used to be vs now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095322/87213482/interesting5.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. I work in IT support. Legit about 80% of all problems are solved by rebooting the computer/terminal/phone. If not, 20 percent is pure detective work. - Sarato88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210209.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. This utility pole has had so many flyers stapled to it over the years that people just use tape now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095442/87213494/interesting18.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Crisis hotline. Sometimes we get really disturbing prank calls. I always encourage people to call back if they are ever in crisis. A lot of times, they (the prank callers) do. - fieldsofjade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210207.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Pigeon flew right past my phone while taking a photo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095301/87213479/interesting2.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. That as a trucker, that space I left in front of me is so I don’t kill anybody, NOT your personal invitation to jump in front of my bumper because you forgot your exit or whatever reason. So many want to get in front of us and slow down and park in front my bumper. YSK: Don’t believe the billboards those ambulance chasing lawyers put up about big truck accidents mean big bucks. Only survivors get money, most likely not you. If you do survive, more than likely your quality of life is going to be miserable. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210208.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The way you can see the truck through these pipes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095409/87213491/interesting14.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210211.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The last blockbuster in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095336/87213485/interesting8.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-Also YSK: these trucks can weigh up to 80,000 pounds, 34,000 pounds empty and around 20,000 pounds without the trailer. How does that compare to your SUV or even your lifted pickup. Do us all a favor and give us some space, leave us room so that you can live and go home to your family. One final thought, NEVER assume the other driver sees you. - gfinchster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210212.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095345/87213486/interesting9.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. I was a licensed Cremationist for 8 years. Regardless of how hard we tried, that wasn’t just grandma or grandpa in the urn…. - X_5456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210213.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. This apartment shows old memes while youre waiting in the elevator.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095348/87213487/interesting10.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Im a massage therapist. I dont care if you didnt shave. But please wash your feet. - Odd_Improvement578</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210214.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. This stage has no backdrop.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095503/87213497/interesting20.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Ex-security guard here. Were not there to protect you. Were there to observe and report. Dont assume that just because whatever building youre working in has security that youre safe. Especially if security is of the unarmed variety. - dragon_book_hoarder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210215.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. I got a couple french fries that were completely hollow.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095358/87213489/interesting12.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Radioactive contamination can often just be cleaned with Windex or even water. - riphitter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210210.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Braille version of Playboy magazine from 1989.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095334/87213484/interesting7.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. I work at a large biotech/pharmaceutical manufacturing company. The drugs you take or buy from your local pharmacy are so insanely and meticulously regulated & inspected at every step of the journey - from petri dish to pharmacy shelf, that you could take a pill from a bottle and it can be traced back to the exact room it was made in, the exact equipment that was used, who was responsible for each step, and the time it was made down to the very second. Seriously, there are no missteps when it comes to GxP. - StaircaseRailing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210216.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. In the Netherlands the farmers border their fields with a strip of flowers for biodiversity and there’s a QR code to pay for picking flowers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095420/87213492/interesting15.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Most fossils in museums are plastic replicas. Not always the whole thing, but any full dinosaur you see more than likely has at least some plastic components. Theres only a handful of businesses in the world that make the replicas and, at least in the US, theyre pretty small operations. - Katy-L-Wood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210217.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Highlighter with no cap in drawer bled onto envelope over the course of a few weeks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095431/87213493/interesting17.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Brewing beer is mostly cleaning stuff and not drinking a bunch of beer. I’m a glorified beer custodian. - BrewerJosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210218.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. This car has been parked at the Denver airport for almost a year.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095626/87213498/interesting21.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. When you call 911, please say your address before anything else. It doesn’t matter if someone is actively dying, say your address first. (I’m from a rural area so this might just be a problem where I’m from) but if you’re calling on a cell phone sometimes it can ping in a completely different spot then you are. If you call and don’t say where you are and we get disconnected, I might not have any clue where to send rescue/police/fire and therefore I cannot help you. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210219.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095258/87213478/interesting3.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210220.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. One Dollar from from 1917 (bottom) vs one from today present day (top).  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095451/87213495/interesting16.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-Say your address (if you don’t know then please give like a cross street or notable location) first, then preferably your name, THEN tell me what’s going on. A lot of people assume that we automatically have a precise location where they’re at, and the systems can be pretty accurate but you can’t always rely on them. If you say the address and we get disconnected I can at least send someone to the area to figure out what needs to be done. - imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The vast majority of content on most business websites is not intended to be read by a human, its purely there to look interesting to Google so you can be pointed to the only thing that matters on the website: the Contact Us form. Which means that some truly sad people spend their lives writing hundreds of pages of garbage they dont even want to be read. This is probably the most bullsh*t of bullsh*t jobs - rocketmackenzie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I work with recycling, I can assure you that recycling is WAY more dangerous than it looks like. People throw away loose razor blades, glass (sometimes even whole knives) theres also the problem with human excrement. If youre cut and get an infection from human fecal matter, youre f**ked. - Question-Stunning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In newswriting, if we like you we dont quote you exactly. If we dont like you, best believe youre getting a sic. - sergalahadabeer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I’m the spray tech at a golf course. We use green dye on our putting greens. The grass at Augusta national is sprayed green as well; Any grass you see on camera has been sprayed green.” - camefromxbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210225.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. My cousin’s Samurai sword shift knob.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095454/87213496/interesting19.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -168,47 +161,67 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky5" id="linky4">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213151.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213152.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213153.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213154.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213155.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213156.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213158.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213159.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213160.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213161.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213162.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213163.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213164.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213165.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213166.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213167.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213431.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213157.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213169.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213168.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213170.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213435.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -298,53 +311,33 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">25 Out of This World Facts About Space </a><br>
+## <a href="#linky7" id="linky6">Employees Forced to Work July 4th Rewarded with $6K Office Party on Company’s Dime</a><br>
 
-<span style="font-size:4em">1. The Pioneer 10 space probe passed the orbit of Neptune, the furthest planet away from the Sun at the time, on June 13, 1983. It was the first man-made object to leave the Solar System. - u/theID10T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200744.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025412/87212841/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. With flight director Gene Kranz, it took a $5 million campaign to restore the original Mission Control room at NASA Johnson Space Center in 2019, with thousands of backers from 25 countries. Flight control consoles were restored and wall displays were reactivated with Apollo-era projections - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200745.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025449/87212842/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Karman line is the border that separates the Earths atmosphere from outer space. It is defined as being 100 km above sea level by the Fédération Aéronautique Internationale. This is regarded as the starting point of outer space, i.e. where the atmosphere is too thin to support flight. - u/SunCloud-777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200746.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025513/87212843/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The first book featuring a ship going into outer space and meeting aliens was written in the 2nd century AD - u/nasandre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200747.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025550/87212844/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The curvature of space is (mostly) NOT what causes Earths gravity - its the curvature of the *time* component of space-time which pulls us toward the Earth - u/WpgMBNews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200748.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025626/87212845/five.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. On Mercury, Gemini, and Apollo missions, astronauts had to do everything in their seats beside their crewmates due to limited space, including eating, sleeping, and toilet - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200749.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025651/87212846/six.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Félicette, the first and only cat that was successfully launched into space - u/lemond4455</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200750.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025715/87212847/seven.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Oxygen candles, which release oxygen when burned. They are used as an emergency supply of oxygen in submarines, airplanes, and the space station. - u/Messier_82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200751.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025747/87212848/eight.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The space probe Voyager 2 looses about 4 watts of power annually due to natural decay of its nuclear fuel. - u/jammin320</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200752.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025808/87212849/nine.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Astronaut John Young smuggled a corned beef sandwich into space aboard the Gemini 3 mission. He hid the sandwich in his spacesuit pocket and shared it with the other crew members. NASA banned smuggled sandwiches from future missions. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200754.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025834/87212850/ten.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In space, theres only 9 to 12 seconds to be conscious outside the airlock and humans are totally rescuable for at least 30 seconds. - u/coffeenerd75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200755.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025917/87212851/eleven.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Coca-Cola and Pepsi created prototype soda cans for use by astronauts in space. - u/YEETAWAYLOL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200756.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025942/87212852/twelve.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Time passes slightly slower on the International Space Station relative to Earth. This means that for every 6 months on Earth, a clock on the ISS will read .007 seconds behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The space shuttle would orbit tail-first due to space debris, this allowed it to take a greater proportion of the debris load on the engines and rear cargo bay, which were not needed in orbit or during descent. - u/Garchy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Apollo astronauts did not have a space toilet. They had a plastic bag with an adhesive rim which they stuck to themselves. After relieving themselves, they had to add disinfectant to the bag and knead it by hand until thoroughly mixed. - u/jwhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Soviet Union captured the first images of the far side of the moon in 1959 using radiation-resistant film recovered from a downed US spy balloon. This technology was essential to protect the film from radiation in space, and the Soviets were unable to produce their own at the time. - u/I_Like_Your_Username</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. NASA has a DAM (Debris Avoidance Maneuver) process for the International Space Station due to all the space debris - approximately 23,000 objects - u/ForthWorldTraveler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. NASA and LEGO have a long history of collaboration, for example in 2010 LEGO released NASA-inspired products, together with NASA, developed innovative educational STEM-related activities and products. Several of the educational LEGO sets flew on board the International Space Station (ISS). - u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. We are in an interstellar space bubble where the density of gas is a lot less that the interstellar medium in the rest of the galaxy. - u/Mtbguy56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. NASA images the dark side of the moon only twice a year as the moon passes between Earth and the DSCOVR spacecraft. - u/AlmightyGoatGirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Hubble Space Telescope was engineered in part to reuse manufacturing technologies from pre-existing spy satellites. This includes choice of mirror size which permitted reuse of KH-11 mirror polishing equipment, and overall size & shape for shipping and launch. - u/alecmuffett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Suction cups and toilet bells dont work in space. - u/markidak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. On July 9, 1962 , a nuclear bomb called Starfish Prime was successfully detonated in outer space as a part of the program ‘Operation Fishbowl following two failures that resulted in radioactive material falling to earth from 35,000 feet. - u/siamesebengal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200767.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/030029/87212890/thirt.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -408,83 +401,198 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Employees Forced to Work July 4th Rewarded with $6K Office Party on Company’s Dime</a><br>
+## <a href="#linky9" id="linky8">20 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025412/87212841/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213151.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025449/87212842/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025513/87212843/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025550/87212844/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025626/87212845/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025651/87212846/six.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025715/87212847/seven.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025747/87212848/eight.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025808/87212849/nine.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025834/87212850/ten.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025917/87212851/eleven.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025942/87212852/twelve.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/030029/87212890/thirt.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213164.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213165.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">21 Cool Pics of Our Wonderful World</a><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Fireworks reflection off my car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095311/87213480/interesting1.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Ancient banana in my girlfriend’s car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095357/87213488/interesting11.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This tree was struck by lightening earlier and is now smoking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095312/87213481/interesting4.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This little guy is no longer plastic!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095324/87213483/interesting6.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. People trying to film Metallica on their flip phones and 0.3mp Nokias in 2007.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095408/87213490/interesting13.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. How high the Hoover Dam water used to be vs now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095322/87213482/interesting5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. This utility pole has had so many flyers stapled to it over the years that people just use tape now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095442/87213494/interesting18.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Pigeon flew right past my phone while taking a photo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095301/87213479/interesting2.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. The way you can see the truck through these pipes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095409/87213491/interesting14.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. The last blockbuster in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095336/87213485/interesting8.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095345/87213486/interesting9.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. This apartment shows old memes while youre waiting in the elevator.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095348/87213487/interesting10.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. This stage has no backdrop.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095503/87213497/interesting20.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. I got a couple french fries that were completely hollow.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095358/87213489/interesting12.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Braille version of Playboy magazine from 1989.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095334/87213484/interesting7.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. In the Netherlands the farmers border their fields with a strip of flowers for biodiversity and there’s a QR code to pay for picking flowers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095420/87213492/interesting15.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Highlighter with no cap in drawer bled onto envelope over the course of a few weeks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095431/87213493/interesting17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. This car has been parked at the Denver airport for almost a year.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095626/87213498/interesting21.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095258/87213478/interesting3.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. One Dollar from from 1917 (bottom) vs one from today present day (top).  </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095451/87213495/interesting16.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. My cousin’s Samurai sword shift knob.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/095454/87213496/interesting19.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213170.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">19 Women Who Confirm the Phrase ‘America the Beautiful'</a><br>
+## <a href="#linky10" id="linky9">WTF Facts About R. Kelly You Don't Want to Know</a><br>
+
+<span style="font-size:4em">1. R. Kelly is </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">.   - u/AllieValley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Aaliyahs song Age Aint Nothing but a Number was written and produced by R. Kelly, who she met when she was 12 and married at 15 (he was 27). - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When asked in an interview if he likes teenage girls, R. Kelly answered how old are we talkin? - u/BenFerris1234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. A Shaggy Defense is a legal strategy in which a defendant flatly denies guilt despite overwhelming evidence against them. The term is from the Shaggy song It Wasnt Me and was first used in 2008 by writer Josh Levin to describe R. Kellys defense strategy against child pornography charges. - u/EnoughPM2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. R. Kelly was once arrested for playing his own music too loud in his car. - u/antosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. R Kelly received an Image Award from the NAACP in 2004 despite being under indictment for Child pornography charges - u/TheTrueLordHumungous</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ironically R Kelly has a fear of flying, prefers to travel everywhere by bus. - u/PoisedbutHard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. There is a 33-chapter hip-hopera written, produced, and sung by R. Kelly that tells the story of how a one-night stand sets off an absurd chain of events, with corresponding videos for each chapter - u/boomerangutang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 1994, R&B singer R Kelly married fellow R&B singer Aaliyah when she was only 15 years old. The marriage was annulled later that year and they both agreed to never speak of it again. - u/strickland300</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. You Are Not Alone Michael Jacksons 13th and last number-one hit song in the United States during his lifetime was written and produced by R. Kelly - u/sometimes_i_wish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. R. Kelly Played Professional Basketball from 1997 to 1999 - u/dreadmonster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. R Kelly sued Michael Jackson for using his song in a Documentary - u/Rumy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I believe I can fly by R. Kelly was specifically written for the 1996 movie Space Jam - u/crandberrytea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. At the height of his success in 1997, R. Kelly signed as a shooting guard for a pro basketball team in the USBL. He would also sing the national anthem before the game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210082.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">25 Out of This World Facts About Space </a><br>
+
+<span style="font-size:4em">1. The Pioneer 10 space probe passed the orbit of Neptune, the furthest planet away from the Sun at the time, on June 13, 1983. It was the first man-made object to leave the Solar System. - u/theID10T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. With flight director Gene Kranz, it took a $5 million campaign to restore the original Mission Control room at NASA Johnson Space Center in 2019, with thousands of backers from 25 countries. Flight control consoles were restored and wall displays were reactivated with Apollo-era projections - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Karman line is the border that separates the Earths atmosphere from outer space. It is defined as being 100 km above sea level by the Fédération Aéronautique Internationale. This is regarded as the starting point of outer space, i.e. where the atmosphere is too thin to support flight. - u/SunCloud-777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The first book featuring a ship going into outer space and meeting aliens was written in the 2nd century AD - u/nasandre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The curvature of space is (mostly) NOT what causes Earths gravity - its the curvature of the *time* component of space-time which pulls us toward the Earth - u/WpgMBNews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. On Mercury, Gemini, and Apollo missions, astronauts had to do everything in their seats beside their crewmates due to limited space, including eating, sleeping, and toilet - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Félicette, the first and only cat that was successfully launched into space - u/lemond4455</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Oxygen candles, which release oxygen when burned. They are used as an emergency supply of oxygen in submarines, airplanes, and the space station. - u/Messier_82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The space probe Voyager 2 looses about 4 watts of power annually due to natural decay of its nuclear fuel. - u/jammin320</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Astronaut John Young smuggled a corned beef sandwich into space aboard the Gemini 3 mission. He hid the sandwich in his spacesuit pocket and shared it with the other crew members. NASA banned smuggled sandwiches from future missions. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In space, theres only 9 to 12 seconds to be conscious outside the airlock and humans are totally rescuable for at least 30 seconds. - u/coffeenerd75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Coca-Cola and Pepsi created prototype soda cans for use by astronauts in space. - u/YEETAWAYLOL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Time passes slightly slower on the International Space Station relative to Earth. This means that for every 6 months on Earth, a clock on the ISS will read .007 seconds behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The space shuttle would orbit tail-first due to space debris, this allowed it to take a greater proportion of the debris load on the engines and rear cargo bay, which were not needed in orbit or during descent. - u/Garchy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Apollo astronauts did not have a space toilet. They had a plastic bag with an adhesive rim which they stuck to themselves. After relieving themselves, they had to add disinfectant to the bag and knead it by hand until thoroughly mixed. - u/jwhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Soviet Union captured the first images of the far side of the moon in 1959 using radiation-resistant film recovered from a downed US spy balloon. This technology was essential to protect the film from radiation in space, and the Soviets were unable to produce their own at the time. - u/I_Like_Your_Username</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. NASA has a DAM (Debris Avoidance Maneuver) process for the International Space Station due to all the space debris - approximately 23,000 objects - u/ForthWorldTraveler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. NASA and LEGO have a long history of collaboration, for example in 2010 LEGO released NASA-inspired products, together with NASA, developed innovative educational STEM-related activities and products. Several of the educational LEGO sets flew on board the International Space Station (ISS). - u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. We are in an interstellar space bubble where the density of gas is a lot less that the interstellar medium in the rest of the galaxy. - u/Mtbguy56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. NASA images the dark side of the moon only twice a year as the moon passes between Earth and the DSCOVR spacecraft. - u/AlmightyGoatGirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Hubble Space Telescope was engineered in part to reuse manufacturing technologies from pre-existing spy satellites. This includes choice of mirror size which permitted reuse of KH-11 mirror polishing equipment, and overall size & shape for shipping and launch. - u/alecmuffett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Suction cups and toilet bells dont work in space. - u/markidak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. On July 9, 1962 , a nuclear bomb called Starfish Prime was successfully detonated in outer space as a part of the program ‘Operation Fishbowl following two failures that resulted in radioactive material falling to earth from 35,000 feet. - u/siamesebengal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200767.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">People Reveal Secrets from Different Jobs They’ve Worked</a><br>
+
+<span style="font-size:4em">1. I work in organ donation. The general public doesn’t understand literally any of it. One notable thing is that when you register to be an organ donor, it’s a legally binding declaration about your wishes after death. It is akin to a will under gift law. - anonkraken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Laser printers basically shoot lasers at a rolled up Polaroid, magnetize tiny bits of chopped up crayons onto a belt in that pattern, blow it all onto a sheet of paper with electricity at an opposite voltage, and then melt it at a temperature hot enough to bake a chicken for a fraction of a second before handing the results to you. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+This is a generalization, of course, but the fact that printers work at all is pretty much witchcraft. - Jazeraine-S</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Working for giant companies, it’s comical how many systems are raggedy messes of bare-bones functionality. All available money gets thrown at certain projects, leaving everything else to work on complete shoe-strings. - DontWorryImADr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Anesthetics - we only ask about your illicit drug use so we don’t kill you when we give you a general anesthetic and that you have appropriate pain relief. You’ll have a tolerance that we need to counter by giving you a variety of drugs and more of them. No judgement from us on your choices - just want to actually take care of your properly. - killingkirby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I work in IT support. Legit about 80% of all problems are solved by rebooting the computer/terminal/phone. If not, 20 percent is pure detective work. - Sarato88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Crisis hotline. Sometimes we get really disturbing prank calls. I always encourage people to call back if they are ever in crisis. A lot of times, they (the prank callers) do. - fieldsofjade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. That as a trucker, that space I left in front of me is so I don’t kill anybody, NOT your personal invitation to jump in front of my bumper because you forgot your exit or whatever reason. So many want to get in front of us and slow down and park in front my bumper. YSK: Don’t believe the billboards those ambulance chasing lawyers put up about big truck accidents mean big bucks. Only survivors get money, most likely not you. If you do survive, more than likely your quality of life is going to be miserable. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Also YSK: these trucks can weigh up to 80,000 pounds, 34,000 pounds empty and around 20,000 pounds without the trailer. How does that compare to your SUV or even your lifted pickup. Do us all a favor and give us some space, leave us room so that you can live and go home to your family. One final thought, NEVER assume the other driver sees you. - gfinchster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I was a licensed Cremationist for 8 years. Regardless of how hard we tried, that wasn’t just grandma or grandpa in the urn…. - X_5456</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Im a massage therapist. I dont care if you didnt shave. But please wash your feet. - Odd_Improvement578</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Ex-security guard here. Were not there to protect you. Were there to observe and report. Dont assume that just because whatever building youre working in has security that youre safe. Especially if security is of the unarmed variety. - dragon_book_hoarder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Radioactive contamination can often just be cleaned with Windex or even water. - riphitter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I work at a large biotech/pharmaceutical manufacturing company. The drugs you take or buy from your local pharmacy are so insanely and meticulously regulated & inspected at every step of the journey - from petri dish to pharmacy shelf, that you could take a pill from a bottle and it can be traced back to the exact room it was made in, the exact equipment that was used, who was responsible for each step, and the time it was made down to the very second. Seriously, there are no missteps when it comes to GxP. - StaircaseRailing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Most fossils in museums are plastic replicas. Not always the whole thing, but any full dinosaur you see more than likely has at least some plastic components. Theres only a handful of businesses in the world that make the replicas and, at least in the US, theyre pretty small operations. - Katy-L-Wood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Brewing beer is mostly cleaning stuff and not drinking a bunch of beer. I’m a glorified beer custodian. - BrewerJosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. When you call 911, please say your address before anything else. It doesn’t matter if someone is actively dying, say your address first. (I’m from a rural area so this might just be a problem where I’m from) but if you’re calling on a cell phone sometimes it can ping in a completely different spot then you are. If you call and don’t say where you are and we get disconnected, I might not have any clue where to send rescue/police/fire and therefore I cannot help you. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Say your address (if you don’t know then please give like a cross street or notable location) first, then preferably your name, THEN tell me what’s going on. A lot of people assume that we automatically have a precise location where they’re at, and the systems can be pretty accurate but you can’t always rely on them. If you say the address and we get disconnected I can at least send someone to the area to figure out what needs to be done. - imscaledandicy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The vast majority of content on most business websites is not intended to be read by a human, its purely there to look interesting to Google so you can be pointed to the only thing that matters on the website: the Contact Us form. Which means that some truly sad people spend their lives writing hundreds of pages of garbage they dont even want to be read. This is probably the most bullsh*t of bullsh*t jobs - rocketmackenzie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I work with recycling, I can assure you that recycling is WAY more dangerous than it looks like. People throw away loose razor blades, glass (sometimes even whole knives) theres also the problem with human excrement. If youre cut and get an infection from human fecal matter, youre f**ked. - Question-Stunning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In newswriting, if we like you we dont quote you exactly. If we dont like you, best believe youre getting a sic. - sergalahadabeer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I’m the spray tech at a golf course. We use green dye on our putting greens. The grass at Augusta national is sprayed green as well; Any grass you see on camera has been sprayed green.” - camefromxbox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210225.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">19 Women Who Confirm the Phrase ‘America the Beautiful'</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213228.jpg" style="width:100%"><br>
 
@@ -526,7 +634,7 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
+## <a href="#linky14" id="linky13">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105825/87213512/87212911.jpg" style="width:100%"><br>
 
@@ -599,70 +707,6 @@ Say your address (if you don’t know then please give like a cross street or no
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105858/87213518/87212947.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105859/87213519/87212952.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213435.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
