@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/13/2022-00:47:18
+Last updated: 07/13/2022-01:47:18
 <br>
 ## <a href="#linky2" id="linky1">25 Wildlife Facts to Chew On</a><br>
 
@@ -61,35 +61,45 @@ After some time, the arm is completely attached and useful while attached to the
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Some Lesser Known Badasses From History  </a><br>
+## <a href="#linky3" id="linky2">19 Women Who Confirm the Phrase ‘America the Beautiful'</a><br>
 
-<span style="font-size:4em">1. Simo Hayha. Finnish farmer. Got drafted. Killed 505 Russians in the Winter War, making him the deadliest sniper ever. Didnt use a scope. He also killed 200 more with his machine gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212630.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Im gonna go with Chinese pirate queen Ching Shih. Started as a prostitute, ended as the leader of a fleet of 300 ships and 20000 to 40000 pirates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212631.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213229.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Mary E. Walker - doctor, and first and only woman to have the Congressional Medal of Honor from actions in the US Civil War.She was the daughter of active abolitionists and the only woman to graduate with a medical degree when she attended Syracuse Hospital (and one of the first). When she was refused from medical military service, she started treating the wounded who were dragging themselves home. She eventually was allowed in the military in 1863 as an assistant surgeon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212629.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213225.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">  The infantry she served with (Ohio 52nd) had lower casualty rates. Attended battle-ground wounded and crossed enemy lines to attend women and children and civilians injured. She was captured by the Confederates in 1864. She treated her fellow POWs while held, refusing to dress or act like a lady.She then worked in Tennessee at a woman’s and orphan asylum through outbreaks of tuberculosis, fever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212634.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> The hospital records of her service do not name her work, in favor of her male supervisors, but a medical award now is given in her name. Also campaigned, with risk of imprisonment, for womens right to vote. Respect for her service kept her from arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212635.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Ben L. Salomon. He was a front line surgeon in WW2. During the battle of Saipan he was in a surgical tent helping wounded soldiers, when he noticed a Japanese soldier bayoneting one of the injured men. He shot the Japanese soldier and then quickly dispatched several other Japanese soldiers who came into the tent. He then took control of a mounted machine gun and went to town. When they found his body, he was shot and stabbed 24 times and had killed 98 Japanese soldiers. He repositioned the machine gun 4 times due to him not being able to shoot over the mountains of bodies. He was given the Medal of Honor in 2002.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212636.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hugh Glass: While on a fur trapping expedition, Hugh was attacked and mauled by a grizzly bear. He was able to kill the giant bear with some help, then passed out. His group left him thinking he would never survive the wounds or the journey which was 200 miles away from the nearest town. Glass regained consciousness only to find himself abandoned, without weapons or equipment. He was suffering from a broken leg, the cuts on his back were exposing bare ribs, and all his wounds were festering. So he cleaned his wounds with maggots, made a boat, fought off wolves and 6 weeks later made it back to civilization, crawling a large portion of the way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212637.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Miyamoto Musashi. He was undefeated in the 60 duels he fought, and he won one of them with a wooden sword.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212627.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Diogenes - a homeless Greek philosopher who lived in a barrel and m*sturbated in public. He also had an epic encounter with Alexander the Great. Wile Diogenes was relaxing in the sunlight in the morning, Alexander, thrilled to meet the famous philosopher, asked if there was any favor he might do for him. Diogenes replied, Yes, stand out of my sunlight. Alexander then declared, If I were not Alexander, then I should wish to be Diogenes, to which Diogenes replied, If I were not Diogenes, I should also wish to be Diogenes. In another account of the conversation, Alexander found the philosopher looking attentively at a pile of human bones. Diogenes explained, I am searching for the bones of your father but cannot distinguish them from those of a slave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212639.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. There is no way Stanislav Petrov isnt the most badass person ever. On September 26, 1983, Lt. Colonel Stanislav Petrov was in command at Serpukhov-15, a bunker where the Soviets monitored their satellite-based detection systems. Shortly after midnight, panic broke out when an alarm sounded signaling that the United States had fired five Intercontinental Ballistic Missiles, or ICBMs, toward Russia. The warning was a false alarm—one of the satellites had misinterpreted the glint of sunlight off clouds near Montana as a missile launch—but to the Soviets, it appeared the United States had started a nuclear war. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212632.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">Protocol demanded that Serpukhov-15 report any signs of a missile launch to the Soviet high command, but Petrov had a hunch the warning was an error. He knew the new satellite system was mistake-prone, and he also reasoned that any nuclear strike by the Americans would come in the form of hundreds of missiles, not just five. With only minutes to make a decision, Petrov chose to ignore the blaring warning alarms and reported the launch as a false alarm—a move that may have averted a nuclear holocaust. The incident remained classified until after the Cold War ended, but Petrov later received several humanitarian awards for his extraordinary actions, and was even honored by the United Nations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212641.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Michael Malloy. Malloy was a homeless alcoholic man. Five men took out life insurance policies on him and tried to get him to drink himself to death by giving him unlimited credit at a bar that one of them owned (so that they could collect the money from the insurance company). This wasnt working fast enough, so they started putting anti-freeze in his drink... then turpentine, then horse tranquilizer, and finally rat poison. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212642.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">None of them killed Malloy. The men then tried feeding him raw oysters with wood alcohol and poisoned, spoiled sardine sandwiches (filled with carpet nails). Again, none of this worked, so they waited for him to pass out drunk one night, then dragged his body out into the -26 °C night and left him there to sleep (pouring 20 liter of water on him for good measure). The next day, Malloy came into the bar and ordered another drink. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212643.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">The group then ran him over with a car at 70km/h. This hospitalized him for a few weeks, but again, didnt kill him. Eventually they succeeded by putting a gas pipe down his throat (after he passed out drunk of course) and pumping gas into him for an hour. The group were later convicted of murder (due, in no small part, to the fame of Malloys durability), with four of them receiving the death penalty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212644.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213241.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -202,37 +212,7 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Employees Forced to Work July 4th Rewarded with $6K Office Party on Company’s Dime</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025412/87212841/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025449/87212842/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025513/87212843/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025550/87212844/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025626/87212845/five.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025651/87212846/six.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025715/87212847/seven.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025747/87212848/eight.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025808/87212849/nine.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025834/87212850/ten.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025917/87212851/eleven.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025942/87212852/twelve.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/030029/87212890/thirt.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
+## <a href="#linky6" id="linky5">30 Neckbeard Posts That Should Be Burned in Fire</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213422.jpg" style="width:100%"><br>
 
@@ -296,7 +276,121 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
+## <a href="#linky7" id="linky6">33 Photos That May Fascinate You.</a><br>
+
+<span style="font-size:4em">1. Men in Black (1997) – All the work that goes into capturing a shot of Will Smith sitting on a bench.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Glastonbury Festival 2022, 220,000 thousand attendees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213653.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Cool Design For A Handrail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. La cueva de las manos (Cave of hands) Artist unknown 8000 B.C.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Lake Mead 1983 vs 2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This is where queen Elizabeth II will be buried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jeff Bezos riding Space Mountain alone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Gas Prices In Beverly Hills, CA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Swimmer being rescued by her coach after fainting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Identical twin brothers Josh and Jeremy married identical twin sisters Brittany and Briana. Both couples gave birth to male babies at the same time. Although technically they are cousins, children are genetically brothers. It gets weirder: both families live together in the same house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Anna Nicole Smith marrying her 89 year old husband in 1994, who would die the next year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Cloudflare has a wall full of lava lamps they feed into a camera as a way to generate randomness to create cryptographic keys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. MLM losses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Possum observing at my wife’s lab, Australia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Over $2 Million Dollars Worth Of Crypto Locked Inside A Celsius Account With No Way To Withdraw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “This newborn fawn was left by its mother next to my wife’s freshly bloomed peonies!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “A stranger noticed that my wife and I have a cat art wall and left us a new piece.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “This carpet is all alligators.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “All the different colors in gumtree leaves during the winter in Australia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “In that case, I won’t have 2 slices, I think I’ll just have 1 slice twice.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “My hotel room floor is made of eye floaters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “My cousin’s Samurai sword shift knob.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I found a pink grasshopper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “The parking lines at this dentist’s office in Dublin are toothbrushes with some toothpaste.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “This rose flower grew inside out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. The state of the housing market in LA. A tent in someone’s backyard for $600/mo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “The birds used zip ties to help build a nest.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “My local pastry shop misspelled donut on their boxes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “The way this railing’s shadow perfectly zigzags on the stairs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “I’m in the ER at night and this oximeter is making my hand look like E.T.’s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “There was a peacock standing on the roof of my neighbor’s mini-van.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “My toothpaste has ‘love’ listed as an additional ingredient.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “The phenomenon known as the running tree in Bulgaria.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213683.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">20 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213151.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213170.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">36 Interesting Pics and Fun Photos to Spice Up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105825/87213512/87212911.jpg" style="width:100%"><br>
 
@@ -369,50 +463,6 @@ Say your address (if you don’t know then please give like a cross street or no
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105858/87213518/87212947.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/105859/87213519/87212952.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">20 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213151.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213170.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -502,115 +552,65 @@ Say your address (if you don’t know then please give like a cross street or no
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">33 Photos That May Fascinate You.</a><br>
+## <a href="#linky11" id="linky10">Employees Forced to Work July 4th Rewarded with $6K Office Party on Company’s Dime</a><br>
 
-<span style="font-size:4em">1. Men in Black (1997) – All the work that goes into capturing a shot of Will Smith sitting on a bench.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213652.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025412/87212841/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Glastonbury Festival 2022, 220,000 thousand attendees</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213653.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025449/87212842/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Cool Design For A Handrail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213654.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025513/87212843/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. La cueva de las manos (Cave of hands) Artist unknown 8000 B.C.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213655.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025550/87212844/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Lake Mead 1983 vs 2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213656.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025626/87212845/five.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This is where queen Elizabeth II will be buried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213657.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025651/87212846/six.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Jeff Bezos riding Space Mountain alone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213658.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025715/87212847/seven.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Gas Prices In Beverly Hills, CA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213659.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025747/87212848/eight.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Swimmer being rescued by her coach after fainting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213660.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025808/87212849/nine.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Identical twin brothers Josh and Jeremy married identical twin sisters Brittany and Briana. Both couples gave birth to male babies at the same time. Although technically they are cousins, children are genetically brothers. It gets weirder: both families live together in the same house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213661.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025834/87212850/ten.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Anna Nicole Smith marrying her 89 year old husband in 1994, who would die the next year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213662.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025917/87212851/eleven.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cloudflare has a wall full of lava lamps they feed into a camera as a way to generate randomness to create cryptographic keys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213664.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/025942/87212852/twelve.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. MLM losses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Possum observing at my wife’s lab, Australia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Over $2 Million Dollars Worth Of Crypto Locked Inside A Celsius Account With No Way To Withdraw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “This newborn fawn was left by its mother next to my wife’s freshly bloomed peonies!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “A stranger noticed that my wife and I have a cat art wall and left us a new piece.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “This carpet is all alligators.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “All the different colors in gumtree leaves during the winter in Australia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “In that case, I won’t have 2 slices, I think I’ll just have 1 slice twice.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “My hotel room floor is made of eye floaters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “My cousin’s Samurai sword shift knob.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I found a pink grasshopper.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “The parking lines at this dentist’s office in Dublin are toothbrushes with some toothpaste.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “This rose flower grew inside out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. The state of the housing market in LA. A tent in someone’s backyard for $600/mo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “The birds used zip ties to help build a nest.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “My local pastry shop misspelled donut on their boxes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “The way this railing’s shadow perfectly zigzags on the stairs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “I’m in the ER at night and this oximeter is making my hand look like E.T.’s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “There was a peacock standing on the roof of my neighbor’s mini-van.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “My toothpaste has ‘love’ listed as an additional ingredient.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “The phenomenon known as the running tree in Bulgaria.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213683.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/11/030029/87212890/thirt.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">19 Women Who Confirm the Phrase ‘America the Beautiful'</a><br>
+## <a href="#linky12" id="linky11">Some Lesser Known Badasses From History  </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213228.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Simo Hayha. Finnish farmer. Got drafted. Killed 505 Russians in the Winter War, making him the deadliest sniper ever. Didnt use a scope. He also killed 200 more with his machine gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213229.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Im gonna go with Chinese pirate queen Ching Shih. Started as a prostitute, ended as the leader of a fleet of 300 ships and 20000 to 40000 pirates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213225.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Mary E. Walker - doctor, and first and only woman to have the Congressional Medal of Honor from actions in the US Civil War.She was the daughter of active abolitionists and the only woman to graduate with a medical degree when she attended Syracuse Hospital (and one of the first). When she was refused from medical military service, she started treating the wounded who were dragging themselves home. She eventually was allowed in the military in 1863 as an assistant surgeon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213230.jpg" style="width:100%"><br>
+<span style="font-size:4em">  The infantry she served with (Ohio 52nd) had lower casualty rates. Attended battle-ground wounded and crossed enemy lines to attend women and children and civilians injured. She was captured by the Confederates in 1864. She treated her fellow POWs while held, refusing to dress or act like a lady.She then worked in Tennessee at a woman’s and orphan asylum through outbreaks of tuberculosis, fever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213227.jpg" style="width:100%"><br>
+<span style="font-size:4em"> The hospital records of her service do not name her work, in favor of her male supervisors, but a medical award now is given in her name. Also campaigned, with risk of imprisonment, for womens right to vote. Respect for her service kept her from arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212635.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213231.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Ben L. Salomon. He was a front line surgeon in WW2. During the battle of Saipan he was in a surgical tent helping wounded soldiers, when he noticed a Japanese soldier bayoneting one of the injured men. He shot the Japanese soldier and then quickly dispatched several other Japanese soldiers who came into the tent. He then took control of a mounted machine gun and went to town. When they found his body, he was shot and stabbed 24 times and had killed 98 Japanese soldiers. He repositioned the machine gun 4 times due to him not being able to shoot over the mountains of bodies. He was given the Medal of Honor in 2002.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212636.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213226.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Hugh Glass: While on a fur trapping expedition, Hugh was attacked and mauled by a grizzly bear. He was able to kill the giant bear with some help, then passed out. His group left him thinking he would never survive the wounds or the journey which was 200 miles away from the nearest town. Glass regained consciousness only to find himself abandoned, without weapons or equipment. He was suffering from a broken leg, the cuts on his back were exposing bare ribs, and all his wounds were festering. So he cleaned his wounds with maggots, made a boat, fought off wolves and 6 weeks later made it back to civilization, crawling a large portion of the way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212637.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213243.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Miyamoto Musashi. He was undefeated in the 60 duels he fought, and he won one of them with a wooden sword.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213232.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Diogenes - a homeless Greek philosopher who lived in a barrel and m*sturbated in public. He also had an epic encounter with Alexander the Great. Wile Diogenes was relaxing in the sunlight in the morning, Alexander, thrilled to meet the famous philosopher, asked if there was any favor he might do for him. Diogenes replied, Yes, stand out of my sunlight. Alexander then declared, If I were not Alexander, then I should wish to be Diogenes, to which Diogenes replied, If I were not Diogenes, I should also wish to be Diogenes. In another account of the conversation, Alexander found the philosopher looking attentively at a pile of human bones. Diogenes explained, I am searching for the bones of your father but cannot distinguish them from those of a slave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212639.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213234.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. There is no way Stanislav Petrov isnt the most badass person ever. On September 26, 1983, Lt. Colonel Stanislav Petrov was in command at Serpukhov-15, a bunker where the Soviets monitored their satellite-based detection systems. Shortly after midnight, panic broke out when an alarm sounded signaling that the United States had fired five Intercontinental Ballistic Missiles, or ICBMs, toward Russia. The warning was a false alarm—one of the satellites had misinterpreted the glint of sunlight off clouds near Montana as a missile launch—but to the Soviets, it appeared the United States had started a nuclear war. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212632.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213233.jpg" style="width:100%"><br>
+<span style="font-size:4em">Protocol demanded that Serpukhov-15 report any signs of a missile launch to the Soviet high command, but Petrov had a hunch the warning was an error. He knew the new satellite system was mistake-prone, and he also reasoned that any nuclear strike by the Americans would come in the form of hundreds of missiles, not just five. With only minutes to make a decision, Petrov chose to ignore the blaring warning alarms and reported the launch as a false alarm—a move that may have averted a nuclear holocaust. The incident remained classified until after the Cold War ended, but Petrov later received several humanitarian awards for his extraordinary actions, and was even honored by the United Nations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213242.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Michael Malloy. Malloy was a homeless alcoholic man. Five men took out life insurance policies on him and tried to get him to drink himself to death by giving him unlimited credit at a bar that one of them owned (so that they could collect the money from the insurance company). This wasnt working fast enough, so they started putting anti-freeze in his drink... then turpentine, then horse tranquilizer, and finally rat poison. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213236.jpg" style="width:100%"><br>
+<span style="font-size:4em">None of them killed Malloy. The men then tried feeding him raw oysters with wood alcohol and poisoned, spoiled sardine sandwiches (filled with carpet nails). Again, none of this worked, so they waited for him to pass out drunk one night, then dragged his body out into the -26 °C night and left him there to sleep (pouring 20 liter of water on him for good measure). The next day, Malloy came into the bar and ordered another drink. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87213241.jpg" style="width:100%"><br>
+<span style="font-size:4em">The group then ran him over with a car at 70km/h. This hospitalized him for a few weeks, but again, didnt kill him. Eventually they succeeded by putting a gas pipe down his throat (after he passed out drunk of course) and pumping gas into him for an hour. The group were later convicted of murder (due, in no small part, to the fame of Malloys durability), with four of them receiving the death penalty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212644.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
