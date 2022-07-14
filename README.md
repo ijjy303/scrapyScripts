@@ -1,57 +1,47 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/14/2022-00:47:18
+Last updated: 07/14/2022-01:47:18
 <br>
-## <a href="#linky2" id="linky1">25 Burning NSFW Questions We'd Like the Mythbusters to Answer</a><br>
+## <a href="#linky2" id="linky1">20 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. I want them to purchase every pill they see on the internet that would make their d*ck bigger and see what happens. -u/tkepongo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204235.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213151.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. A five-second segment where Jamie points at a diagram and says, in complete deadpan, This is where the clitoris is. -u/TheFeelsGoodMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204236.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Does a person really stay conscious for a few moments after beheading? -u/SammyGotStache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204237.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Can you actually get an STD from a toilet seat? -u/BloodyChapel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204238.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Size correlates to what? Feet? Nose? So many theories. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204239.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Do people get more stupid (IQ, memory, etc) when they get horny? -u/Timebomb_42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204240.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. How deep underwater are you still able to cum? -u/Successful_Present39</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204241.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Ejaculation distance + vaginal ping pong distance. -u/ooo-ooo-oooyea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204242.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Is squirting just pee? -u/lafgenetics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204243.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Post orgasm clarity: How much better can you solve puzzles or remember something? -u/texanaftdy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204244.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. A take on the top ten OSHA violations list to see if they are as dangerous as they say. -u/Mariuxpunk007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204245.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. We investigate the statement Anything is a dildo if youre brave enough. -u/DavosLostFingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204246.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. If you nut in space, does it push you backward? -u/Faokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204247.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Can you sh*t out a hangover? -u/rongywrongerson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204248.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Statistically speaking, which sex position has the fastest rate for ejaculation? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204249.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. How many times can a man ejaculate in one 24-hour period and still produce fluid? -u/AtlasHugged17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204250.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. If you filled an auditorium with people who, when given the word, would start “clapping them cheeks”. Would the sound produced by the audience “clapping “ sound like actual applause? -u/Trentsexual</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204251.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. How large would a penis have to be to cause someone to pass out from getting an erection? -u/-eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204252.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Can a human really fit 2 fully grown raccoons up their butt? -u/Cannonfury</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204253.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Does my wife really have frequent headaches or am I just ugly? -u/kballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. How many people does it take to f*ck an ostrich? I hear the debate is between two and three. But it certainly takes more than one person to get it done. -u/Psychomadeye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Does ice cream come out as poop or pee? -u/JoeDaOrc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Statistically speaking, which handjob method or fingering style is likelier to produce a faster orgasm? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204257.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. Can a subwoofer cause an orgasm? -u/Space2345</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Does pineapple make your cum taste better? -u/TMNT4lyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204259.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213170.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -141,229 +131,51 @@ Last updated: 07/14/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">25 Out of This World Facts About Space </a><br>
+## <a href="#linky4" id="linky3">20 People Reveal Crazy Things They Found in Their Spouse's Stuff</a><br>
 
-<span style="font-size:4em">1. The Pioneer 10 space probe passed the orbit of Neptune, the furthest planet away from the Sun at the time, on June 13, 1983. It was the first man-made object to leave the Solar System. - u/theID10T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200744.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When my husband passed I found a garage door opener in his car. We don’t use one and neither did his work parking. I have no idea what garage it opens.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213603/spousefound1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. With flight director Gene Kranz, it took a $5 million campaign to restore the original Mission Control room at NASA Johnson Space Center in 2019, with thousands of backers from 25 countries. Flight control consoles were restored and wall displays were reactivated with Apollo-era projections - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200745.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A notebook full of beautiful sketches of trees, rivers, landscapes, animals, and people. He didnt tell me he was an artist, so I was a bit shocked to find out that he was so talented.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121806/87213602/spousefound5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Karman line is the border that separates the Earths atmosphere from outer space. It is defined as being 100 km above sea level by the Fédération Aéronautique Internationale. This is regarded as the starting point of outer space, i.e. where the atmosphere is too thin to support flight. - u/SunCloud-777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200746.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A collection of rare coins from his grandmother stashed inside a care bear tin.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213604/spousefound3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The first book featuring a ship going into outer space and meeting aliens was written in the 2nd century AD - u/nasandre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200747.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. He had a huge bag of womens underwear and shoes, and evidence that he was organizing a hookup with at least one guy. There was also a letter telling him not to worry and that shed taken care of it and had an abortion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121817/87213605/spousefound6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The curvature of space is (mostly) NOT what causes Earths gravity - its the curvature of the *time* component of space-time which pulls us toward the Earth - u/WpgMBNews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200748.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Every single scorecard from the MechWarrior game he plays at DragonCon. There are hundreds of them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121901/87213612/spousefound13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. On Mercury, Gemini, and Apollo missions, astronauts had to do everything in their seats beside their crewmates due to limited space, including eating, sleeping, and toilet - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200749.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. My late wife’s wedding ring. A few weeks after her death I realized that our big king sized bed was making me depressed, so I got a queen sized bed and got rid of the king. When I took it apart, I found her engagement / wedding set lodged between the bed leg and the wall. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121828/87213607/spousefound8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Félicette, the first and only cat that was successfully launched into space - u/lemond4455</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200750.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. His sword collection. He also has this cool Armenian ceremonial dagger.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121838/87213608/spousefound10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Oxygen candles, which release oxygen when burned. They are used as an emergency supply of oxygen in submarines, airplanes, and the space station. - u/Messier_82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200751.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I found eight boxes of ranch dressing in the closet of her spare room.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121840/87213609/spousefound9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The space probe Voyager 2 looses about 4 watts of power annually due to natural decay of its nuclear fuel. - u/jammin320</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200752.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. An excel spreadsheet of all previous sexual partners with stats/scores for each based on different criteria. I had the top score, but still disturbing…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121849/87213610/spousefound12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Astronaut John Young smuggled a corned beef sandwich into space aboard the Gemini 3 mission. He hid the sandwich in his spacesuit pocket and shared it with the other crew members. NASA banned smuggled sandwiches from future missions. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200754.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. He’s hiding the Christmas gifts his parents sent us, even separate ones sent to each of us, and pretending they got us nothing. Not sure what that’s about.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121851/87213611/spousefound11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In space, theres only 9 to 12 seconds to be conscious outside the airlock and humans are totally rescuable for at least 30 seconds. - u/coffeenerd75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200755.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I found a small thin rod that was attached to a plastic base when we were moving from our apartment to our house. For all the world it looked like some sort of sex toy. My wife has to take daily HGH injections and it turns out that what I thought was a sex toy was an agitator that was part of mixing her meds together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121937/87213619/spousefound20.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Coca-Cola and Pepsi created prototype soda cans for use by astronauts in space. - u/YEETAWAYLOL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200756.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A short note I had written her on our 3rd date. This was from 15 years ago. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121755/87213601/spousefound4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Time passes slightly slower on the International Space Station relative to Earth. This means that for every 6 months on Earth, a clock on the ISS will read .007 seconds behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200757.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Six credit cards in my name I didnt apply for.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121925/87213617/spousefound18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The space shuttle would orbit tail-first due to space debris, this allowed it to take a greater proportion of the debris load on the engines and rear cargo bay, which were not needed in orbit or during descent. - u/Garchy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200758.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Rare gameboy games.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121903/87213613/spousefound14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Apollo astronauts did not have a space toilet. They had a plastic bag with an adhesive rim which they stuck to themselves. After relieving themselves, they had to add disinfectant to the bag and knead it by hand until thoroughly mixed. - u/jwhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200759.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. A rubber crab. My wife is freaked out by crabs. Apparently her mom has been hiding it in her stuff for years to scare her and has become a game between them of hiding it somewhere the other person will eventually find it. Occasionally I’ll be looking for something and stumble across it in a new place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121912/87213614/spousefound15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The Soviet Union captured the first images of the far side of the moon in 1959 using radiation-resistant film recovered from a downed US spy balloon. This technology was essential to protect the film from radiation in space, and the Soviets were unable to produce their own at the time. - u/I_Like_Your_Username</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200760.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. His fake teeth. Had been together a year and lived together 2 months. He hadn’t told me, and was embarrassed, but it didn’t change the way I felt about him at all.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121914/87213615/spousefound16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. NASA has a DAM (Debris Avoidance Maneuver) process for the International Space Station due to all the space debris - approximately 23,000 objects - u/ForthWorldTraveler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200761.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. There was an old report that he had written in probably the third or fourth grade which would’ve been the early 90’s. It was about horses, and on the first page it said “wild stallions natural enemies are wolves and semi trucks.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121924/87213616/spousefound17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. NASA and LEGO have a long history of collaboration, for example in 2010 LEGO released NASA-inspired products, together with NASA, developed innovative educational STEM-related activities and products. Several of the educational LEGO sets flew on board the International Space Station (ISS). - u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200762.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. A credit card I didnt know about. She used it to spend money on other boyfriends.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121935/87213618/spousefound19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. We are in an interstellar space bubble where the density of gas is a lot less that the interstellar medium in the rest of the galaxy. - u/Mtbguy56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200763.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A notebook with a partially finished letter describing in detail how she cheated on me and how she wasnt happy in the relationship.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121827/87213606/spousefound7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. NASA images the dark side of the moon only twice a year as the moon passes between Earth and the DSCOVR spacecraft. - u/AlmightyGoatGirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Hubble Space Telescope was engineered in part to reuse manufacturing technologies from pre-existing spy satellites. This includes choice of mirror size which permitted reuse of KH-11 mirror polishing equipment, and overall size & shape for shipping and launch. - u/alecmuffett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Suction cups and toilet bells dont work in space. - u/markidak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. On July 9, 1962 , a nuclear bomb called Starfish Prime was successfully detonated in outer space as a part of the program ‘Operation Fishbowl following two failures that resulted in radioactive material falling to earth from 35,000 feet. - u/siamesebengal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200767.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. A list of reasons why she should leave me and why the guy she was cheating with was better than me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123655/87213643/download.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Historical Photos That Need a Bit of Explanation</a><br>
-
-<span style="font-size:4em">1. Back In 1956, Magician Robert Harbin Demonstrated One Of His Levitation Tricks On A Few Beachgoers. These Women Looked Pretty Impressed And At Ease, Especially The Woman ‘Levitating’ Over Rocks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A Young Woman Sand Surfing Near Seaside, Oregon [1941].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Air Conditioned Luxury Lawn Mower In The 1950’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Motormat Drive-In,i nvented By Kenneth C. Purdy ,where The Food Tray Was Sent Out On Rails (1948) Los Angeles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Philippe Halsman, The Versatile Jean Cocteau, 1949.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A British Chamberpot With A Built-In Small Bust Of Napoleon Bonaparte, Ca.1803-05.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Freckle Removal. A Complicated Apparatus Is Employed. Eyes Are Covered With A Special, Air-Tight Piece, And The Nostrils Filled In. Breathing Is Done Through A Special Tube. Sensitive Parts Of The Face Must Be Treated Separately, 1930.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Late Victorian Mountaineers, Including A Fully Dressed And Corseted Lady, Cross A Crevasse In The Alps (1900).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Unbroken Seal On King Tutankhamun’s Tomb, Which Stayed 3,245 Years Untouched Until The Excavation In 1922.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. From Circa 1975, An Ad For Men’s Business Attire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A Couple Gets Into Their Bmw Isetta, Through The Front Door, 1950.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A Disguised Secret Witness Testifies In A Courtroom On A Drug Case. Washington, 30 April 1952.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. 1939 Schlörwagen… Built By German Engineer Hans Schlör Von Westhofen Dirmstein To Resemble The Shape Of An Airplane Wing. This Car Was More Aerodynamicaly Efficient Than Most 21th Century Cars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Beauty Treatment For Women: 1941 The Glamour Bonnet Went Over A Woman’s Head, And The Attached Hose Was Supposed To Create Low Atmospheric Pressure Like A Vacuum To Improve Skin Complexion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Ge Walking Truck, 1969.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Pablo Picasso As Popeye. 1957. Photo By André Villers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Timberline Lodge Ski Resort, Which Is Located In Oregon (USA), Could Be Reached Along The Mountain Road By Your Own Car, By Bus, As Well As By An Unusual Bus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. 17-Year-Old Bianca Passarge From Hamburg Dances On Wine Bottles In A Cat Costume, 1958.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A Test Audience Reacting To The Chest Burster Scene In Alien, 1979.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Giant Studebaker. World’s Largest Vehicle Under Construction. Chicago, 1934.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. These Weird Trousers Were The Mad Rage In The 1920’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Cellophane Ad Poster 1950s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. To Promote His Movie ‘Frenzy’ Alfred Hitchcock Announced He Was Returning Home To London From Hollywood… By Floating A Lifelike Mannequin Of Himself In The Thames River 1972.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Department Store Wax Mannequins Melting During A Heatwave In 1929.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Luna Park, Melbourne. The Place Was (And Is) Amazing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Gas Mask For Babies, England, 1938.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. A Security Guard Walking Down Us Highway 101 Where There Are Towering Stacks Of Hollow Iron Floats From Which The Iron Antisubmarine Nets Were Suspended To Protect The Us Ports During The Last War, By Hank Walker, 1953,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Walking On Stilts Is Already Impressive Enough, But This Man Pushed It One Step Further And Skated On Stilts! Fritz Dietl, Who Was Better Known As The Stilt-Man, Was Photographed Practicing His Skills With Four-Year-Old Pat Kemp At The Empire Pool In Wembley. 1937.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Ford Unsuccessfully Tried To Reinvent The (Steering) Wheel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Ice Cube Face Mask By Max Factor, 1947.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211228.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">22 Savage Tweets That Hit The Spot </a><br>
-
-<span style="font-size:4em">1. If somehow you missed our investigation into this tweet, you can read about it, </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">. The sort is this. Twitter fact-checked this meme, claiming Bryce Dallas Howards butt wasnt photoshopped and that her wide load was due to her having a second child. And so we called bs on it because thats not how childbirth works. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. We hope this inst becoming a trend. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211237.gif" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Well, played Target, well played. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211233.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. We need to know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211236.gif" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211234.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211232.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">28 Cursed Comments and Clap Backs</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043344/87213785/cursedcomments2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043339/87213784/cursedcomments3.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043352/87213786/cursedcomments4.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043356/87213787/cursedcomments5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043403/87213788/cursedcomments6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043418/87213791/cursedcomments9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043407/87213789/cursedcomments7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043503/87213799/cursedcomments17.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043415/87213790/cursedcomments8.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043426/87213792/cursedcomments10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043431/87213793/cursedcomments11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043332/87213783/cursedcomments1.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043437/87213794/cursedcomments12.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043442/87213795/cursedcomments13.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043448/87213796/cursedcomments14.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043452/87213797/cursedcomments15.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043459/87213798/cursedcomments16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043510/87213800/cursedcomments18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043515/87213801/cursedcomments19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043521/87213802/cursedcomments20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043526/87213803/cursedcomments21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043539/87213805/cursedcomments23.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043532/87213804/cursedcomments22.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043543/87213806/cursedcomments24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043550/87213807/cursedcomments25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043555/87213808/cursedcomments26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043601/87213809/cursedcomments27.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043607/87213810/cursedcomments28.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">28 Badass Movie Themed Tattoos for Film Buffs and Movie Lovers</a><br>
+## <a href="#linky5" id="linky4">28 Badass Movie Themed Tattoos for Film Buffs and Movie Lovers</a><br>
 
 <span style="font-size:4em">1. Terminator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127687.jpg" style="width:100%"><br>
 
@@ -423,51 +235,169 @@ Last updated: 07/14/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">20 James Webb Memes From Another Universe</a><br>
+## <a href="#linky6" id="linky5">22 Savage Tweets That Hit The Spot </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012104/87214603/baby.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. If somehow you missed our investigation into this tweet, you can read about it, </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012115/87214604/bird.jpg" style="width:100%"><br>
+<span style="font-size:4em">. The sort is this. Twitter fact-checked this meme, claiming Bryce Dallas Howards butt wasnt photoshopped and that her wide load was due to her having a second child. And so we called bs on it because thats not how childbirth works. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012126/87214605/ball.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. We hope this inst becoming a trend. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211237.gif" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012137/87214606/glasses.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012146/87214607/bus.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012148/87214608/cry.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Well, played Target, well played. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012230/87214615/mario.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012157/87214609/gritty.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211233.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012159/87214610/guy.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. We need to know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012208/87214611/internet.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012210/87214612/jam.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012219/87214613/jimmy.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012221/87214614/kirby.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211236.gif" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012257/87214620/tomb.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012234/87214616/security.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012243/87214617/puzzle.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012245/87214618/simpson.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211234.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012254/87214619/spaceballs.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211247.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012305/87214621/ween.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/021716/87214626/tele.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211232.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">48 Pics and Images More Random Than Today’s Weather</a><br>
+## <a href="#linky7" id="linky6">25 Burning NSFW Questions We'd Like the Mythbusters to Answer</a><br>
+
+<span style="font-size:4em">1. I want them to purchase every pill they see on the internet that would make their d*ck bigger and see what happens. -u/tkepongo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A five-second segment where Jamie points at a diagram and says, in complete deadpan, This is where the clitoris is. -u/TheFeelsGoodMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Does a person really stay conscious for a few moments after beheading? -u/SammyGotStache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Can you actually get an STD from a toilet seat? -u/BloodyChapel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Size correlates to what? Feet? Nose? So many theories. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Do people get more stupid (IQ, memory, etc) when they get horny? -u/Timebomb_42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. How deep underwater are you still able to cum? -u/Successful_Present39</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Ejaculation distance + vaginal ping pong distance. -u/ooo-ooo-oooyea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Is squirting just pee? -u/lafgenetics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204243.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Post orgasm clarity: How much better can you solve puzzles or remember something? -u/texanaftdy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204244.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. A take on the top ten OSHA violations list to see if they are as dangerous as they say. -u/Mariuxpunk007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. We investigate the statement Anything is a dildo if youre brave enough. -u/DavosLostFingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. If you nut in space, does it push you backward? -u/Faokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Can you sh*t out a hangover? -u/rongywrongerson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Statistically speaking, which sex position has the fastest rate for ejaculation? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. How many times can a man ejaculate in one 24-hour period and still produce fluid? -u/AtlasHugged17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. If you filled an auditorium with people who, when given the word, would start “clapping them cheeks”. Would the sound produced by the audience “clapping “ sound like actual applause? -u/Trentsexual</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. How large would a penis have to be to cause someone to pass out from getting an erection? -u/-eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Can a human really fit 2 fully grown raccoons up their butt? -u/Cannonfury</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Does my wife really have frequent headaches or am I just ugly? -u/kballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. How many people does it take to f*ck an ostrich? I hear the debate is between two and three. But it certainly takes more than one person to get it done. -u/Psychomadeye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Does ice cream come out as poop or pee? -u/JoeDaOrc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Statistically speaking, which handjob method or fingering style is likelier to produce a faster orgasm? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204257.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. Can a subwoofer cause an orgasm? -u/Space2345</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Does pineapple make your cum taste better? -u/TMNT4lyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204259.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">28 Cursed Comments and Clap Backs</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043344/87213785/cursedcomments2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043339/87213784/cursedcomments3.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043352/87213786/cursedcomments4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043356/87213787/cursedcomments5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043403/87213788/cursedcomments6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043418/87213791/cursedcomments9.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043407/87213789/cursedcomments7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043503/87213799/cursedcomments17.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043415/87213790/cursedcomments8.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043426/87213792/cursedcomments10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043431/87213793/cursedcomments11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043332/87213783/cursedcomments1.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043437/87213794/cursedcomments12.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043442/87213795/cursedcomments13.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043448/87213796/cursedcomments14.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043452/87213797/cursedcomments15.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043459/87213798/cursedcomments16.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043510/87213800/cursedcomments18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043515/87213801/cursedcomments19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043521/87213802/cursedcomments20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043526/87213803/cursedcomments21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043539/87213805/cursedcomments23.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043532/87213804/cursedcomments22.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043543/87213806/cursedcomments24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043550/87213807/cursedcomments25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043555/87213808/cursedcomments26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043601/87213809/cursedcomments27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/043607/87213810/cursedcomments28.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">48 Pics and Images More Random Than Today’s Weather</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87214382.jpg" style="width:100%"><br>
 
@@ -567,7 +497,7 @@ Last updated: 07/14/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">37 Magical Memes to Help You Over the Hump</a><br>
+## <a href="#linky10" id="linky9">37 Magical Memes to Help You Over the Hump</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214051.jpg" style="width:100%"><br>
 
@@ -642,6 +572,50 @@ Last updated: 07/14/2022-00:47:18
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120551/87214449/87212331.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120553/87214450/87212338.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 James Webb Memes From Another Universe</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012104/87214603/baby.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012115/87214604/bird.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012126/87214605/ball.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012137/87214606/glasses.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012146/87214607/bus.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012148/87214608/cry.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012230/87214615/mario.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012157/87214609/gritty.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012159/87214610/guy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012208/87214611/internet.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012210/87214612/jam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012219/87214613/jimmy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012221/87214614/kirby.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012257/87214620/tomb.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012234/87214616/security.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012243/87214617/puzzle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012245/87214618/simpson.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012254/87214619/spaceballs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012305/87214621/ween.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/021716/87214626/tele.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -773,51 +747,7 @@ Last updated: 07/14/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">20 People Reveal Crazy Things They Found in Their Spouse's Stuff</a><br>
-
-<span style="font-size:4em">1. When my husband passed I found a garage door opener in his car. We don’t use one and neither did his work parking. I have no idea what garage it opens.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213603/spousefound1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A notebook full of beautiful sketches of trees, rivers, landscapes, animals, and people. He didnt tell me he was an artist, so I was a bit shocked to find out that he was so talented.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121806/87213602/spousefound5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A collection of rare coins from his grandmother stashed inside a care bear tin.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213604/spousefound3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. He had a huge bag of womens underwear and shoes, and evidence that he was organizing a hookup with at least one guy. There was also a letter telling him not to worry and that shed taken care of it and had an abortion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121817/87213605/spousefound6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Every single scorecard from the MechWarrior game he plays at DragonCon. There are hundreds of them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121901/87213612/spousefound13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My late wife’s wedding ring. A few weeks after her death I realized that our big king sized bed was making me depressed, so I got a queen sized bed and got rid of the king. When I took it apart, I found her engagement / wedding set lodged between the bed leg and the wall. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121828/87213607/spousefound8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. His sword collection. He also has this cool Armenian ceremonial dagger.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121838/87213608/spousefound10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I found eight boxes of ranch dressing in the closet of her spare room.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121840/87213609/spousefound9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An excel spreadsheet of all previous sexual partners with stats/scores for each based on different criteria. I had the top score, but still disturbing…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121849/87213610/spousefound12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. He’s hiding the Christmas gifts his parents sent us, even separate ones sent to each of us, and pretending they got us nothing. Not sure what that’s about.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121851/87213611/spousefound11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I found a small thin rod that was attached to a plastic base when we were moving from our apartment to our house. For all the world it looked like some sort of sex toy. My wife has to take daily HGH injections and it turns out that what I thought was a sex toy was an agitator that was part of mixing her meds together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121937/87213619/spousefound20.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. A short note I had written her on our 3rd date. This was from 15 years ago. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121755/87213601/spousefound4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Six credit cards in my name I didnt apply for.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121925/87213617/spousefound18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Rare gameboy games.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121903/87213613/spousefound14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A rubber crab. My wife is freaked out by crabs. Apparently her mom has been hiding it in her stuff for years to scare her and has become a game between them of hiding it somewhere the other person will eventually find it. Occasionally I’ll be looking for something and stumble across it in a new place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121912/87213614/spousefound15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. His fake teeth. Had been together a year and lived together 2 months. He hadn’t told me, and was embarrassed, but it didn’t change the way I felt about him at all.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121914/87213615/spousefound16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. There was an old report that he had written in probably the third or fourth grade which would’ve been the early 90’s. It was about horses, and on the first page it said “wild stallions natural enemies are wolves and semi trucks.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121924/87213616/spousefound17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A credit card I didnt know about. She used it to spend money on other boyfriends.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121935/87213618/spousefound19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A notebook with a partially finished letter describing in detail how she cheated on me and how she wasnt happy in the relationship.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121827/87213606/spousefound7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. A list of reasons why she should leave me and why the guy she was cheating with was better than me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123655/87213643/download.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">26 Celebrity Yearbook Photos Full of High School Cringe</a><br>
+## <a href="#linky14" id="linky13">26 Celebrity Yearbook Photos Full of High School Cringe</a><br>
 
 <span style="font-size:4em">1. Gwyneth Paltrow</span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/011644/87214596/yearbookphotos22.png" style="width:100%"><br>
 
@@ -873,41 +803,71 @@ Last updated: 07/14/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">WTF Facts About R. Kelly You Don't Want to Know</a><br>
+## <a href="#linky15" id="linky14">Historical Photos That Need a Bit of Explanation</a><br>
 
-<span style="font-size:4em">1. R. Kelly is </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210067.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Back In 1956, Magician Robert Harbin Demonstrated One Of His Levitation Tricks On A Few Beachgoers. These Women Looked Pretty Impressed And At Ease, Especially The Woman ‘Levitating’ Over Rocks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">.   - u/AllieValley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210068.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A Young Woman Sand Surfing Near Seaside, Oregon [1941].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Aaliyahs song Age Aint Nothing but a Number was written and produced by R. Kelly, who she met when she was 12 and married at 15 (he was 27). - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210070.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Air Conditioned Luxury Lawn Mower In The 1950’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When asked in an interview if he likes teenage girls, R. Kelly answered how old are we talkin? - u/BenFerris1234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210071.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The Motormat Drive-In,i nvented By Kenneth C. Purdy ,where The Food Tray Was Sent Out On Rails (1948) Los Angeles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A Shaggy Defense is a legal strategy in which a defendant flatly denies guilt despite overwhelming evidence against them. The term is from the Shaggy song It Wasnt Me and was first used in 2008 by writer Josh Levin to describe R. Kellys defense strategy against child pornography charges. - u/EnoughPM2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210072.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Philippe Halsman, The Versatile Jean Cocteau, 1949.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. R. Kelly was once arrested for playing his own music too loud in his car. - u/antosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210073.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. A British Chamberpot With A Built-In Small Bust Of Napoleon Bonaparte, Ca.1803-05.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. R Kelly received an Image Award from the NAACP in 2004 despite being under indictment for Child pornography charges - u/TheTrueLordHumungous</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210074.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Freckle Removal. A Complicated Apparatus Is Employed. Eyes Are Covered With A Special, Air-Tight Piece, And The Nostrils Filled In. Breathing Is Done Through A Special Tube. Sensitive Parts Of The Face Must Be Treated Separately, 1930.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Ironically R Kelly has a fear of flying, prefers to travel everywhere by bus. - u/PoisedbutHard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210075.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Late Victorian Mountaineers, Including A Fully Dressed And Corseted Lady, Cross A Crevasse In The Alps (1900).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. There is a 33-chapter hip-hopera written, produced, and sung by R. Kelly that tells the story of how a one-night stand sets off an absurd chain of events, with corresponding videos for each chapter - u/boomerangutang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210066.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The Unbroken Seal On King Tutankhamun’s Tomb, Which Stayed 3,245 Years Untouched Until The Excavation In 1922.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In 1994, R&B singer R Kelly married fellow R&B singer Aaliyah when she was only 15 years old. The marriage was annulled later that year and they both agreed to never speak of it again. - u/strickland300</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210076.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. From Circa 1975, An Ad For Men’s Business Attire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. You Are Not Alone Michael Jacksons 13th and last number-one hit song in the United States during his lifetime was written and produced by R. Kelly - u/sometimes_i_wish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210077.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. A Couple Gets Into Their Bmw Isetta, Through The Front Door, 1950.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. R. Kelly Played Professional Basketball from 1997 to 1999 - u/dreadmonster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210078.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A Disguised Secret Witness Testifies In A Courtroom On A Drug Case. Washington, 30 April 1952.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. R Kelly sued Michael Jackson for using his song in a Documentary - u/Rumy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210080.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. 1939 Schlörwagen… Built By German Engineer Hans Schlör Von Westhofen Dirmstein To Resemble The Shape Of An Airplane Wing. This Car Was More Aerodynamicaly Efficient Than Most 21th Century Cars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I believe I can fly by R. Kelly was specifically written for the 1996 movie Space Jam - u/crandberrytea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210081.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Beauty Treatment For Women: 1941 The Glamour Bonnet Went Over A Woman’s Head, And The Attached Hose Was Supposed To Create Low Atmospheric Pressure Like A Vacuum To Improve Skin Complexion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. At the height of his success in 1997, R. Kelly signed as a shooting guard for a pro basketball team in the USBL. He would also sing the national anthem before the game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210082.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Ge Walking Truck, 1969.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Pablo Picasso As Popeye. 1957. Photo By André Villers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Timberline Lodge Ski Resort, Which Is Located In Oregon (USA), Could Be Reached Along The Mountain Road By Your Own Car, By Bus, As Well As By An Unusual Bus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. 17-Year-Old Bianca Passarge From Hamburg Dances On Wine Bottles In A Cat Costume, 1958.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A Test Audience Reacting To The Chest Burster Scene In Alien, 1979.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Giant Studebaker. World’s Largest Vehicle Under Construction. Chicago, 1934.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. These Weird Trousers Were The Mad Rage In The 1920’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Cellophane Ad Poster 1950s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. To Promote His Movie ‘Frenzy’ Alfred Hitchcock Announced He Was Returning Home To London From Hollywood… By Floating A Lifelike Mannequin Of Himself In The Thames River 1972.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Department Store Wax Mannequins Melting During A Heatwave In 1929.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Luna Park, Melbourne. The Place Was (And Is) Amazing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Gas Mask For Babies, England, 1938.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. A Security Guard Walking Down Us Highway 101 Where There Are Towering Stacks Of Hollow Iron Floats From Which The Iron Antisubmarine Nets Were Suspended To Protect The Us Ports During The Last War, By Hank Walker, 1953,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Walking On Stilts Is Already Impressive Enough, But This Man Pushed It One Step Further And Skated On Stilts! Fritz Dietl, Who Was Better Known As The Stilt-Man, Was Photographed Practicing His Skills With Four-Year-Old Pat Kemp At The Empire Pool In Wembley. 1937.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Ford Unsuccessfully Tried To Reinvent The (Steering) Wheel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Ice Cube Face Mask By Max Factor, 1947.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211228.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">33 Photos That May Fascinate You.</a><br>
+## <a href="#linky16" id="linky15">33 Photos That May Fascinate You.</a><br>
 
 <span style="font-size:4em">1. Men in Black (1997) – All the work that goes into capturing a shot of Will Smith sitting on a bench.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213652.jpg" style="width:100%"><br>
 
@@ -977,47 +937,87 @@ Last updated: 07/14/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">20 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky17" id="linky16">WTF Facts About R. Kelly You Don't Want to Know</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213151.png" style="width:100%"><br>
+<span style="font-size:4em">1. R. Kelly is </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213152.jpg" style="width:100%"><br>
+<span style="font-size:4em">.   - u/AllieValley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213153.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Aaliyahs song Age Aint Nothing but a Number was written and produced by R. Kelly, who she met when she was 12 and married at 15 (he was 27). - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213154.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When asked in an interview if he likes teenage girls, R. Kelly answered how old are we talkin? - u/BenFerris1234</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213155.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. A Shaggy Defense is a legal strategy in which a defendant flatly denies guilt despite overwhelming evidence against them. The term is from the Shaggy song It Wasnt Me and was first used in 2008 by writer Josh Levin to describe R. Kellys defense strategy against child pornography charges. - u/EnoughPM2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213156.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. R. Kelly was once arrested for playing his own music too loud in his car. - u/antosh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213158.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. R Kelly received an Image Award from the NAACP in 2004 despite being under indictment for Child pornography charges - u/TheTrueLordHumungous</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213159.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Ironically R Kelly has a fear of flying, prefers to travel everywhere by bus. - u/PoisedbutHard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213160.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. There is a 33-chapter hip-hopera written, produced, and sung by R. Kelly that tells the story of how a one-night stand sets off an absurd chain of events, with corresponding videos for each chapter - u/boomerangutang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213161.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 1994, R&B singer R Kelly married fellow R&B singer Aaliyah when she was only 15 years old. The marriage was annulled later that year and they both agreed to never speak of it again. - u/strickland300</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213162.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. You Are Not Alone Michael Jacksons 13th and last number-one hit song in the United States during his lifetime was written and produced by R. Kelly - u/sometimes_i_wish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213163.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. R. Kelly Played Professional Basketball from 1997 to 1999 - u/dreadmonster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213164.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. R Kelly sued Michael Jackson for using his song in a Documentary - u/Rumy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213165.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I believe I can fly by R. Kelly was specifically written for the 1996 movie Space Jam - u/crandberrytea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213166.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. At the height of his success in 1997, R. Kelly signed as a shooting guard for a pro basketball team in the USBL. He would also sing the national anthem before the game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213167.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213157.jpg" style="width:100%"><br>
+## <a href="#linky18" id="linky17">25 Out of This World Facts About Space </a><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213169.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The Pioneer 10 space probe passed the orbit of Neptune, the furthest planet away from the Sun at the time, on June 13, 1983. It was the first man-made object to leave the Solar System. - u/theID10T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213168.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. With flight director Gene Kranz, it took a $5 million campaign to restore the original Mission Control room at NASA Johnson Space Center in 2019, with thousands of backers from 25 countries. Flight control consoles were restored and wall displays were reactivated with Apollo-era projections - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87213170.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Karman line is the border that separates the Earths atmosphere from outer space. It is defined as being 100 km above sea level by the Fédération Aéronautique Internationale. This is regarded as the starting point of outer space, i.e. where the atmosphere is too thin to support flight. - u/SunCloud-777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The first book featuring a ship going into outer space and meeting aliens was written in the 2nd century AD - u/nasandre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The curvature of space is (mostly) NOT what causes Earths gravity - its the curvature of the *time* component of space-time which pulls us toward the Earth - u/WpgMBNews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. On Mercury, Gemini, and Apollo missions, astronauts had to do everything in their seats beside their crewmates due to limited space, including eating, sleeping, and toilet - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Félicette, the first and only cat that was successfully launched into space - u/lemond4455</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Oxygen candles, which release oxygen when burned. They are used as an emergency supply of oxygen in submarines, airplanes, and the space station. - u/Messier_82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The space probe Voyager 2 looses about 4 watts of power annually due to natural decay of its nuclear fuel. - u/jammin320</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Astronaut John Young smuggled a corned beef sandwich into space aboard the Gemini 3 mission. He hid the sandwich in his spacesuit pocket and shared it with the other crew members. NASA banned smuggled sandwiches from future missions. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In space, theres only 9 to 12 seconds to be conscious outside the airlock and humans are totally rescuable for at least 30 seconds. - u/coffeenerd75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Coca-Cola and Pepsi created prototype soda cans for use by astronauts in space. - u/YEETAWAYLOL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Time passes slightly slower on the International Space Station relative to Earth. This means that for every 6 months on Earth, a clock on the ISS will read .007 seconds behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The space shuttle would orbit tail-first due to space debris, this allowed it to take a greater proportion of the debris load on the engines and rear cargo bay, which were not needed in orbit or during descent. - u/Garchy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Apollo astronauts did not have a space toilet. They had a plastic bag with an adhesive rim which they stuck to themselves. After relieving themselves, they had to add disinfectant to the bag and knead it by hand until thoroughly mixed. - u/jwhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Soviet Union captured the first images of the far side of the moon in 1959 using radiation-resistant film recovered from a downed US spy balloon. This technology was essential to protect the film from radiation in space, and the Soviets were unable to produce their own at the time. - u/I_Like_Your_Username</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. NASA has a DAM (Debris Avoidance Maneuver) process for the International Space Station due to all the space debris - approximately 23,000 objects - u/ForthWorldTraveler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. NASA and LEGO have a long history of collaboration, for example in 2010 LEGO released NASA-inspired products, together with NASA, developed innovative educational STEM-related activities and products. Several of the educational LEGO sets flew on board the International Space Station (ISS). - u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. We are in an interstellar space bubble where the density of gas is a lot less that the interstellar medium in the rest of the galaxy. - u/Mtbguy56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. NASA images the dark side of the moon only twice a year as the moon passes between Earth and the DSCOVR spacecraft. - u/AlmightyGoatGirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Hubble Space Telescope was engineered in part to reuse manufacturing technologies from pre-existing spy satellites. This includes choice of mirror size which permitted reuse of KH-11 mirror polishing equipment, and overall size & shape for shipping and launch. - u/alecmuffett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Suction cups and toilet bells dont work in space. - u/markidak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. On July 9, 1962 , a nuclear bomb called Starfish Prime was successfully detonated in outer space as a part of the program ‘Operation Fishbowl following two failures that resulted in radioactive material falling to earth from 35,000 feet. - u/siamesebengal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200767.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
