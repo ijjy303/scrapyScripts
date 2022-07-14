@@ -1,107 +1,111 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/14/2022-09:47:18
+Last updated: 07/14/2022-10:47:18
 <br>
-## <a href="#linky2" id="linky1">28 Badass Movie Themed Tattoos for Film Buffs and Movie Lovers</a><br>
+## <a href="#linky2" id="linky1">25 Funny Memes We Bought on Craigslist</a><br>
 
-<span style="font-size:4em">1. Terminator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127687.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213740.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Darth Vader - Star Wars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127689.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213751.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Alfred Hitchcocks Birds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127682.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045240/87213811/96br5wsz87b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Clockwork Orange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127683.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213744.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Godzilla vs. Mechagodzilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127684.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213756.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Monsters Inc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127685.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213737.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Django Unchained</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127686.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213738.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Pulp Fiction</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127698.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213739.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Kill Bill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127688.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213742.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The Royal Tenenbaums</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127680.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213743.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Dumb and Dumber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127681.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213745.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. LIttle Shop of Horrors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127690.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213746.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Uncut Gems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127691.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213747.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. There Will Be Blood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127692.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213748.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Jurassic Park</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127693.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213749.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Batman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127694.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213750.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Fight Club</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127695.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213752.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Edward Scissorhands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127696.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213753.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Scream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127697.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213741.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Forrest Gump</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127699.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213754.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Leon the Professional</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127700.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213755.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Lord of the Rings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127702.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213757.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The Fifth Element</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127703.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213758.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Elvira Mistress of the Dark</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127704.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045252/87213812/3g0edx3pj3b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. The Goonies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127705.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045304/87213813/vzgj3xsok5b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Don’t be A Menace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127707.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045310/87213814/3hw4ee7ve6b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. The Matrix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The Shining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127709.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045316/87213815/552m5zj126b91.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 People Reveal Crazy Things They Found in Their Spouse's Stuff</a><br>
+## <a href="#linky3" id="linky2">25 Out of This World Facts About Space </a><br>
 
-<span style="font-size:4em">1. When my husband passed I found a garage door opener in his car. We don’t use one and neither did his work parking. I have no idea what garage it opens.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213603/spousefound1.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The Pioneer 10 space probe passed the orbit of Neptune, the furthest planet away from the Sun at the time, on June 13, 1983. It was the first man-made object to leave the Solar System. - u/theID10T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A notebook full of beautiful sketches of trees, rivers, landscapes, animals, and people. He didnt tell me he was an artist, so I was a bit shocked to find out that he was so talented.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121806/87213602/spousefound5.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. With flight director Gene Kranz, it took a $5 million campaign to restore the original Mission Control room at NASA Johnson Space Center in 2019, with thousands of backers from 25 countries. Flight control consoles were restored and wall displays were reactivated with Apollo-era projections - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A collection of rare coins from his grandmother stashed inside a care bear tin.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213604/spousefound3.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Karman line is the border that separates the Earths atmosphere from outer space. It is defined as being 100 km above sea level by the Fédération Aéronautique Internationale. This is regarded as the starting point of outer space, i.e. where the atmosphere is too thin to support flight. - u/SunCloud-777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. He had a huge bag of womens underwear and shoes, and evidence that he was organizing a hookup with at least one guy. There was also a letter telling him not to worry and that shed taken care of it and had an abortion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121817/87213605/spousefound6.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The first book featuring a ship going into outer space and meeting aliens was written in the 2nd century AD - u/nasandre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Every single scorecard from the MechWarrior game he plays at DragonCon. There are hundreds of them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121901/87213612/spousefound13.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The curvature of space is (mostly) NOT what causes Earths gravity - its the curvature of the *time* component of space-time which pulls us toward the Earth - u/WpgMBNews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. My late wife’s wedding ring. A few weeks after her death I realized that our big king sized bed was making me depressed, so I got a queen sized bed and got rid of the king. When I took it apart, I found her engagement / wedding set lodged between the bed leg and the wall. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121828/87213607/spousefound8.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. On Mercury, Gemini, and Apollo missions, astronauts had to do everything in their seats beside their crewmates due to limited space, including eating, sleeping, and toilet - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. His sword collection. He also has this cool Armenian ceremonial dagger.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121838/87213608/spousefound10.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Félicette, the first and only cat that was successfully launched into space - u/lemond4455</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I found eight boxes of ranch dressing in the closet of her spare room.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121840/87213609/spousefound9.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Oxygen candles, which release oxygen when burned. They are used as an emergency supply of oxygen in submarines, airplanes, and the space station. - u/Messier_82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. An excel spreadsheet of all previous sexual partners with stats/scores for each based on different criteria. I had the top score, but still disturbing…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121849/87213610/spousefound12.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The space probe Voyager 2 looses about 4 watts of power annually due to natural decay of its nuclear fuel. - u/jammin320</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. He’s hiding the Christmas gifts his parents sent us, even separate ones sent to each of us, and pretending they got us nothing. Not sure what that’s about.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121851/87213611/spousefound11.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Astronaut John Young smuggled a corned beef sandwich into space aboard the Gemini 3 mission. He hid the sandwich in his spacesuit pocket and shared it with the other crew members. NASA banned smuggled sandwiches from future missions. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I found a small thin rod that was attached to a plastic base when we were moving from our apartment to our house. For all the world it looked like some sort of sex toy. My wife has to take daily HGH injections and it turns out that what I thought was a sex toy was an agitator that was part of mixing her meds together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121937/87213619/spousefound20.png" style="width:100%"><br>
+<span style="font-size:4em">11. In space, theres only 9 to 12 seconds to be conscious outside the airlock and humans are totally rescuable for at least 30 seconds. - u/coffeenerd75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A short note I had written her on our 3rd date. This was from 15 years ago. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121755/87213601/spousefound4.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Coca-Cola and Pepsi created prototype soda cans for use by astronauts in space. - u/YEETAWAYLOL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Six credit cards in my name I didnt apply for.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121925/87213617/spousefound18.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Time passes slightly slower on the International Space Station relative to Earth. This means that for every 6 months on Earth, a clock on the ISS will read .007 seconds behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Rare gameboy games.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121903/87213613/spousefound14.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The space shuttle would orbit tail-first due to space debris, this allowed it to take a greater proportion of the debris load on the engines and rear cargo bay, which were not needed in orbit or during descent. - u/Garchy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A rubber crab. My wife is freaked out by crabs. Apparently her mom has been hiding it in her stuff for years to scare her and has become a game between them of hiding it somewhere the other person will eventually find it. Occasionally I’ll be looking for something and stumble across it in a new place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121912/87213614/spousefound15.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Apollo astronauts did not have a space toilet. They had a plastic bag with an adhesive rim which they stuck to themselves. After relieving themselves, they had to add disinfectant to the bag and knead it by hand until thoroughly mixed. - u/jwhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. His fake teeth. Had been together a year and lived together 2 months. He hadn’t told me, and was embarrassed, but it didn’t change the way I felt about him at all.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121914/87213615/spousefound16.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The Soviet Union captured the first images of the far side of the moon in 1959 using radiation-resistant film recovered from a downed US spy balloon. This technology was essential to protect the film from radiation in space, and the Soviets were unable to produce their own at the time. - u/I_Like_Your_Username</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. There was an old report that he had written in probably the third or fourth grade which would’ve been the early 90’s. It was about horses, and on the first page it said “wild stallions natural enemies are wolves and semi trucks.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121924/87213616/spousefound17.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. NASA has a DAM (Debris Avoidance Maneuver) process for the International Space Station due to all the space debris - approximately 23,000 objects - u/ForthWorldTraveler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. A credit card I didnt know about. She used it to spend money on other boyfriends.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121935/87213618/spousefound19.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. NASA and LEGO have a long history of collaboration, for example in 2010 LEGO released NASA-inspired products, together with NASA, developed innovative educational STEM-related activities and products. Several of the educational LEGO sets flew on board the International Space Station (ISS). - u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. A notebook with a partially finished letter describing in detail how she cheated on me and how she wasnt happy in the relationship.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121827/87213606/spousefound7.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. We are in an interstellar space bubble where the density of gas is a lot less that the interstellar medium in the rest of the galaxy. - u/Mtbguy56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. A list of reasons why she should leave me and why the guy she was cheating with was better than me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123655/87213643/download.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. NASA images the dark side of the moon only twice a year as the moon passes between Earth and the DSCOVR spacecraft. - u/AlmightyGoatGirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Hubble Space Telescope was engineered in part to reuse manufacturing technologies from pre-existing spy satellites. This includes choice of mirror size which permitted reuse of KH-11 mirror polishing equipment, and overall size & shape for shipping and launch. - u/alecmuffett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Suction cups and toilet bells dont work in space. - u/markidak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. On July 9, 1962 , a nuclear bomb called Starfish Prime was successfully detonated in outer space as a part of the program ‘Operation Fishbowl following two failures that resulted in radioactive material falling to earth from 35,000 feet. - u/siamesebengal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200767.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -213,7 +217,129 @@ Last updated: 07/14/2022-09:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">48 Pics and Images More Random Than Today’s Weather</a><br>
+## <a href="#linky6" id="linky5">20 James Webb Memes From Another Universe</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012104/87214603/baby.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012115/87214604/bird.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012126/87214605/ball.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012137/87214606/glasses.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012146/87214607/bus.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012148/87214608/cry.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012230/87214615/mario.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012157/87214609/gritty.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012159/87214610/guy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012208/87214611/internet.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012210/87214612/jam.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012219/87214613/jimmy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012221/87214614/kirby.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012257/87214620/tomb.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012234/87214616/security.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012243/87214617/puzzle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012245/87214618/simpson.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012254/87214619/spaceballs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012305/87214621/ween.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/021716/87214626/tele.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">37 Magical Memes to Help You Over the Hump</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120531/87214446/87212325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120415/87214432/87206270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120418/87214433/87206266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120426/87214434/87206268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120430/87214435/87206274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120437/87214436/87206273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120441/87214437/87206278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120448/87214438/87206281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120453/87214439/87206292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120458/87214440/87206296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120504/87214441/87206301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120509/87214442/87208362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120515/87214443/87208376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120520/87214444/87208385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120527/87214445/87208386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120539/87214447/87212327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120542/87214448/87212329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120551/87214449/87212331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120553/87214450/87212338.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">48 Pics and Images More Random Than Today’s Weather</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87214382.jpg" style="width:100%"><br>
 
@@ -313,100 +439,6 @@ Last updated: 07/14/2022-09:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 James Webb Memes From Another Universe</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012104/87214603/baby.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012115/87214604/bird.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012126/87214605/ball.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012137/87214606/glasses.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012146/87214607/bus.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012148/87214608/cry.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012230/87214615/mario.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012157/87214609/gritty.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012159/87214610/guy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012208/87214611/internet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012210/87214612/jam.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012219/87214613/jimmy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012221/87214614/kirby.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012257/87214620/tomb.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012234/87214616/security.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012243/87214617/puzzle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012245/87214618/simpson.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012254/87214619/spaceballs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/012305/87214621/ween.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/021716/87214626/tele.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">25 Out of This World Facts About Space </a><br>
-
-<span style="font-size:4em">1. The Pioneer 10 space probe passed the orbit of Neptune, the furthest planet away from the Sun at the time, on June 13, 1983. It was the first man-made object to leave the Solar System. - u/theID10T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. With flight director Gene Kranz, it took a $5 million campaign to restore the original Mission Control room at NASA Johnson Space Center in 2019, with thousands of backers from 25 countries. Flight control consoles were restored and wall displays were reactivated with Apollo-era projections - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Karman line is the border that separates the Earths atmosphere from outer space. It is defined as being 100 km above sea level by the Fédération Aéronautique Internationale. This is regarded as the starting point of outer space, i.e. where the atmosphere is too thin to support flight. - u/SunCloud-777</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The first book featuring a ship going into outer space and meeting aliens was written in the 2nd century AD - u/nasandre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The curvature of space is (mostly) NOT what causes Earths gravity - its the curvature of the *time* component of space-time which pulls us toward the Earth - u/WpgMBNews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. On Mercury, Gemini, and Apollo missions, astronauts had to do everything in their seats beside their crewmates due to limited space, including eating, sleeping, and toilet - u/vancouver_reader</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Félicette, the first and only cat that was successfully launched into space - u/lemond4455</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Oxygen candles, which release oxygen when burned. They are used as an emergency supply of oxygen in submarines, airplanes, and the space station. - u/Messier_82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The space probe Voyager 2 looses about 4 watts of power annually due to natural decay of its nuclear fuel. - u/jammin320</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Astronaut John Young smuggled a corned beef sandwich into space aboard the Gemini 3 mission. He hid the sandwich in his spacesuit pocket and shared it with the other crew members. NASA banned smuggled sandwiches from future missions. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In space, theres only 9 to 12 seconds to be conscious outside the airlock and humans are totally rescuable for at least 30 seconds. - u/coffeenerd75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Coca-Cola and Pepsi created prototype soda cans for use by astronauts in space. - u/YEETAWAYLOL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Time passes slightly slower on the International Space Station relative to Earth. This means that for every 6 months on Earth, a clock on the ISS will read .007 seconds behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The space shuttle would orbit tail-first due to space debris, this allowed it to take a greater proportion of the debris load on the engines and rear cargo bay, which were not needed in orbit or during descent. - u/Garchy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Apollo astronauts did not have a space toilet. They had a plastic bag with an adhesive rim which they stuck to themselves. After relieving themselves, they had to add disinfectant to the bag and knead it by hand until thoroughly mixed. - u/jwhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Soviet Union captured the first images of the far side of the moon in 1959 using radiation-resistant film recovered from a downed US spy balloon. This technology was essential to protect the film from radiation in space, and the Soviets were unable to produce their own at the time. - u/I_Like_Your_Username</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. NASA has a DAM (Debris Avoidance Maneuver) process for the International Space Station due to all the space debris - approximately 23,000 objects - u/ForthWorldTraveler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. NASA and LEGO have a long history of collaboration, for example in 2010 LEGO released NASA-inspired products, together with NASA, developed innovative educational STEM-related activities and products. Several of the educational LEGO sets flew on board the International Space Station (ISS). - u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. We are in an interstellar space bubble where the density of gas is a lot less that the interstellar medium in the rest of the galaxy. - u/Mtbguy56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. NASA images the dark side of the moon only twice a year as the moon passes between Earth and the DSCOVR spacecraft. - u/AlmightyGoatGirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Hubble Space Telescope was engineered in part to reuse manufacturing technologies from pre-existing spy satellites. This includes choice of mirror size which permitted reuse of KH-11 mirror polishing equipment, and overall size & shape for shipping and launch. - u/alecmuffett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Suction cups and toilet bells dont work in space. - u/markidak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. On July 9, 1962 , a nuclear bomb called Starfish Prime was successfully detonated in outer space as a part of the program ‘Operation Fishbowl following two failures that resulted in radioactive material falling to earth from 35,000 feet. - u/siamesebengal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200767.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
 ## <a href="#linky9" id="linky8">26 Celebrity Yearbook Photos Full of High School Cringe</a><br>
 
 <span style="font-size:4em">1. Gwyneth Paltrow</span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/011644/87214596/yearbookphotos22.png" style="width:100%"><br>
@@ -463,7 +495,395 @@ Last updated: 07/14/2022-09:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">40 'The Boys' Memes to Wash Down the Temp V</a><br>
+## <a href="#linky10" id="linky9">20 Wild Facts about the Late Anthony Bourdain</a><br>
+
+<span style="font-size:4em">1. Anthony Bourdains show Parts Unknown composed their own music to fit the mood of the scene. - u/dwash714</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There is a heart-shaped red tomato named after Anthony Bourdain. - u/enginegeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Anthony Bourdain at times wouldnt name the places hed visit while filming. He did this sometimes to prevent tourists from turning a bar or restaurant into a tourist trap after filming there. - u/Barleynots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ever since he was a kid Anthony Bourdain wanted to write comics, and actually got a chance to do so for DC. - u/Two_Faced_Harvey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. An 86-year-old wrote an upbeat review for her local paper about a new Olive Garden. She was mercilessly mocked by the Internet. Anthony Bourdain thought she had a valuable POV on small town dining. So he published a book of her reviews. - u/dickfromaccounting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. When chef Anthony Bourdain visited a Government Authorized Bhang Shop in Rajasthan, India the proprietor described his strongest bhang lassi (cannabis drink) as full power, 24 hour, no toilet, no shower. - u/vabanque</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Anthony Bourdain got a parasite from eating a raw warthogs anus, which had just expelled feces. - u/firmkillernate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Anthony Bourdain trained and competed in Brazilian jiu-jitsu. - u/irvwash24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Bradley Cooper portrayed Anthony Bourdain in the 2005 series Kitchen Confidential based on the book by Bourdain, which had tips such as not ordering fish on Mondays. - u/TheDood715</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Anthony Bourdain loved the American Waffle House. - u/sconnie1046</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Queen of the Stone Ages Josh Homme and Mark Lanegan wrote the theme tune for Anthony Bourdain: Parts Unknown.  - u/ChainLadderGang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. On his show, celebrity chef Anthony Bourdain enjoyed a traditional Inuit meal consisting of raw seal meat, organs, eyeball, and blood. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Chef Anthony Bourdain had a kitchen knife custom-forged from a Meteorite. - u/sandcannon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Anthony Bourdain, Gordon Ramsay, and Andrew Zimmern have all been disgusted with the smell and/or taste of Hákarl (Icelandic fermented shark dish). - u/makemetwoeggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Anthony Bourdain was a heroin addict. - u/Predatormagnet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Anthony Bourdain claimed that the worst thing hed ever eaten was a Chicken McNugget. - u/vamosbravos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. On an episode of No Reservations in Haiti, Anthony Bourdain buys out an entire food stand to feed hungry onlookers which leads to a fight breaking out among the crowd. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Anthony Bourdains graphic novel is about a renegade sushi chef. - u/gorged_on_truffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Anthony Bourdain was trapped in Beirut for over a week during the 2006 Israeli-Lebanon War. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Anthony Bourdain had a role in the movie adaptation of the game Far Cry. - u/GoodGuyGregsCousin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200742.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Historical Photos That Need a Bit of Explanation</a><br>
+
+<span style="font-size:4em">1. Back In 1956, Magician Robert Harbin Demonstrated One Of His Levitation Tricks On A Few Beachgoers. These Women Looked Pretty Impressed And At Ease, Especially The Woman ‘Levitating’ Over Rocks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A Young Woman Sand Surfing Near Seaside, Oregon [1941].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Air Conditioned Luxury Lawn Mower In The 1950’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The Motormat Drive-In,i nvented By Kenneth C. Purdy ,where The Food Tray Was Sent Out On Rails (1948) Los Angeles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Philippe Halsman, The Versatile Jean Cocteau, 1949.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A British Chamberpot With A Built-In Small Bust Of Napoleon Bonaparte, Ca.1803-05.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Freckle Removal. A Complicated Apparatus Is Employed. Eyes Are Covered With A Special, Air-Tight Piece, And The Nostrils Filled In. Breathing Is Done Through A Special Tube. Sensitive Parts Of The Face Must Be Treated Separately, 1930.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Late Victorian Mountaineers, Including A Fully Dressed And Corseted Lady, Cross A Crevasse In The Alps (1900).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Unbroken Seal On King Tutankhamun’s Tomb, Which Stayed 3,245 Years Untouched Until The Excavation In 1922.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. From Circa 1975, An Ad For Men’s Business Attire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. A Couple Gets Into Their Bmw Isetta, Through The Front Door, 1950.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A Disguised Secret Witness Testifies In A Courtroom On A Drug Case. Washington, 30 April 1952.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. 1939 Schlörwagen… Built By German Engineer Hans Schlör Von Westhofen Dirmstein To Resemble The Shape Of An Airplane Wing. This Car Was More Aerodynamicaly Efficient Than Most 21th Century Cars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Beauty Treatment For Women: 1941 The Glamour Bonnet Went Over A Woman’s Head, And The Attached Hose Was Supposed To Create Low Atmospheric Pressure Like A Vacuum To Improve Skin Complexion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Ge Walking Truck, 1969.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Pablo Picasso As Popeye. 1957. Photo By André Villers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Timberline Lodge Ski Resort, Which Is Located In Oregon (USA), Could Be Reached Along The Mountain Road By Your Own Car, By Bus, As Well As By An Unusual Bus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. 17-Year-Old Bianca Passarge From Hamburg Dances On Wine Bottles In A Cat Costume, 1958.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A Test Audience Reacting To The Chest Burster Scene In Alien, 1979.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Giant Studebaker. World’s Largest Vehicle Under Construction. Chicago, 1934.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. These Weird Trousers Were The Mad Rage In The 1920’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Cellophane Ad Poster 1950s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. To Promote His Movie ‘Frenzy’ Alfred Hitchcock Announced He Was Returning Home To London From Hollywood… By Floating A Lifelike Mannequin Of Himself In The Thames River 1972.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Department Store Wax Mannequins Melting During A Heatwave In 1929.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Luna Park, Melbourne. The Place Was (And Is) Amazing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Gas Mask For Babies, England, 1938.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. A Security Guard Walking Down Us Highway 101 Where There Are Towering Stacks Of Hollow Iron Floats From Which The Iron Antisubmarine Nets Were Suspended To Protect The Us Ports During The Last War, By Hank Walker, 1953,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Walking On Stilts Is Already Impressive Enough, But This Man Pushed It One Step Further And Skated On Stilts! Fritz Dietl, Who Was Better Known As The Stilt-Man, Was Photographed Practicing His Skills With Four-Year-Old Pat Kemp At The Empire Pool In Wembley. 1937.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Ford Unsuccessfully Tried To Reinvent The (Steering) Wheel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Ice Cube Face Mask By Max Factor, 1947.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211228.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">26 Freaky Pics and Facts to Terrify Your Soul</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. abandoned summer camp closed due to a child drowning in the lake. sound familiar ?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The warning on nuclear waste disposal sites designed to be read hundreds of thousands of years into the future</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. This looks terrifying and claustrophobic to live in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Rare red sprites found in the sky usually above thunderstorms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The infamous message in lipstick left on Frances Brown’s flat wall, by The Lipstick Killer in 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Found this symbol under my doormat and I have no idea what it means</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213366.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">28 People Who Are Impressively Stupid  </a><br>
+
+<span style="font-size:4em">1. To her credit, this guy does go by the name Fake Drake and has made a name for himself as the most popular Drake imposter. So, take that with a grain of salt. Still, embarrassing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. He said, Michael Damien Nut cookies. Is this a joke? We hope so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. How about you dont put your finger in tight places, to begin with? Also, try soap or something slimy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Now, this is definitely a joke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This man has been the poster child for dumb decisions for almost five years now. We wish we knew how this one ended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lmao, I think Ill pass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Bro, he just said. It means, I dont even know. Some people are beyond help. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214262.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">50 Youtube Comments That Are Better Than The Video</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215165.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">The Funniest and Dankest Tweets of the Week </a><br>
+
+<span style="font-size:4em">1. Imagine if this was your recurring nightmare and every night you have to give penguins haircuts and each time you ruin them. Can you imagine the guilt youd feel? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This Tweet might be years too late but the sentiment remains as true as ever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This is a stereotype that we cant let go unchecked. Not a dorks smell bad. The slander needs to stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. This man really is living through his own recreation of, Good Luck Chuck. You hate to see it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I have to object to this. Talking on the phone is great and if you text me more than once a day I will block you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The amount of content that this single sheet has created is truly astonishing. One man cheated on his wife years ago and still, people use his welcome home sign as content. Brilliant. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214197.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214199.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214200.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214203.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214204.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214205.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214209.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214210.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214216.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214221.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">40 'The Boys' Memes to Wash Down the Temp V</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214500.jpeg" style="width:100%"><br>
 
@@ -547,51 +967,7 @@ Last updated: 07/14/2022-09:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">20 Wild Facts about the Late Anthony Bourdain</a><br>
-
-<span style="font-size:4em">1. Anthony Bourdains show Parts Unknown composed their own music to fit the mood of the scene. - u/dwash714</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There is a heart-shaped red tomato named after Anthony Bourdain. - u/enginegeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Anthony Bourdain at times wouldnt name the places hed visit while filming. He did this sometimes to prevent tourists from turning a bar or restaurant into a tourist trap after filming there. - u/Barleynots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Ever since he was a kid Anthony Bourdain wanted to write comics, and actually got a chance to do so for DC. - u/Two_Faced_Harvey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. An 86-year-old wrote an upbeat review for her local paper about a new Olive Garden. She was mercilessly mocked by the Internet. Anthony Bourdain thought she had a valuable POV on small town dining. So he published a book of her reviews. - u/dickfromaccounting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When chef Anthony Bourdain visited a Government Authorized Bhang Shop in Rajasthan, India the proprietor described his strongest bhang lassi (cannabis drink) as full power, 24 hour, no toilet, no shower. - u/vabanque</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Anthony Bourdain got a parasite from eating a raw warthogs anus, which had just expelled feces. - u/firmkillernate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Anthony Bourdain trained and competed in Brazilian jiu-jitsu. - u/irvwash24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Bradley Cooper portrayed Anthony Bourdain in the 2005 series Kitchen Confidential based on the book by Bourdain, which had tips such as not ordering fish on Mondays. - u/TheDood715</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Anthony Bourdain loved the American Waffle House. - u/sconnie1046</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Queen of the Stone Ages Josh Homme and Mark Lanegan wrote the theme tune for Anthony Bourdain: Parts Unknown.  - u/ChainLadderGang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. On his show, celebrity chef Anthony Bourdain enjoyed a traditional Inuit meal consisting of raw seal meat, organs, eyeball, and blood. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Chef Anthony Bourdain had a kitchen knife custom-forged from a Meteorite. - u/sandcannon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Anthony Bourdain, Gordon Ramsay, and Andrew Zimmern have all been disgusted with the smell and/or taste of Hákarl (Icelandic fermented shark dish). - u/makemetwoeggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Anthony Bourdain was a heroin addict. - u/Predatormagnet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Anthony Bourdain claimed that the worst thing hed ever eaten was a Chicken McNugget. - u/vamosbravos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. On an episode of No Reservations in Haiti, Anthony Bourdain buys out an entire food stand to feed hungry onlookers which leads to a fight breaking out among the crowd. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Anthony Bourdains graphic novel is about a renegade sushi chef. - u/gorged_on_truffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Anthony Bourdain was trapped in Beirut for over a week during the 2006 Israeli-Lebanon War. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Anthony Bourdain had a role in the movie adaptation of the game Far Cry. - u/GoodGuyGregsCousin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200742.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">25 Burning NSFW Questions We'd Like the Mythbusters to Answer</a><br>
+## <a href="#linky17" id="linky16">25 Burning NSFW Questions We'd Like the Mythbusters to Answer</a><br>
 
 <span style="font-size:4em">1. I want them to purchase every pill they see on the internet that would make their d*ck bigger and see what happens. -u/tkepongo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204235.jpg" style="width:100%"><br>
 
@@ -645,475 +1021,107 @@ Last updated: 07/14/2022-09:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">26 Freaky Pics and Facts to Terrify Your Soul</a><br>
+## <a href="#linky18" id="linky17">20 People Reveal Crazy Things They Found in Their Spouse's Stuff</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213347.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When my husband passed I found a garage door opener in his car. We don’t use one and neither did his work parking. I have no idea what garage it opens.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213603/spousefound1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. abandoned summer camp closed due to a child drowning in the lake. sound familiar ?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213342.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A notebook full of beautiful sketches of trees, rivers, landscapes, animals, and people. He didnt tell me he was an artist, so I was a bit shocked to find out that he was so talented.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121806/87213602/spousefound5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213343.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A collection of rare coins from his grandmother stashed inside a care bear tin.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121815/87213604/spousefound3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The warning on nuclear waste disposal sites designed to be read hundreds of thousands of years into the future</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213345.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. He had a huge bag of womens underwear and shoes, and evidence that he was organizing a hookup with at least one guy. There was also a letter telling him not to worry and that shed taken care of it and had an abortion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121817/87213605/spousefound6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213341.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Every single scorecard from the MechWarrior game he plays at DragonCon. There are hundreds of them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121901/87213612/spousefound13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213346.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. My late wife’s wedding ring. A few weeks after her death I realized that our big king sized bed was making me depressed, so I got a queen sized bed and got rid of the king. When I took it apart, I found her engagement / wedding set lodged between the bed leg and the wall. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121828/87213607/spousefound8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213348.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. His sword collection. He also has this cool Armenian ceremonial dagger.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121838/87213608/spousefound10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213349.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I found eight boxes of ranch dressing in the closet of her spare room.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121840/87213609/spousefound9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213350.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. An excel spreadsheet of all previous sexual partners with stats/scores for each based on different criteria. I had the top score, but still disturbing…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121849/87213610/spousefound12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213351.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. He’s hiding the Christmas gifts his parents sent us, even separate ones sent to each of us, and pretending they got us nothing. Not sure what that’s about.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121851/87213611/spousefound11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213352.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I found a small thin rod that was attached to a plastic base when we were moving from our apartment to our house. For all the world it looked like some sort of sex toy. My wife has to take daily HGH injections and it turns out that what I thought was a sex toy was an agitator that was part of mixing her meds together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121937/87213619/spousefound20.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213353.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A short note I had written her on our 3rd date. This was from 15 years ago. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121755/87213601/spousefound4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213355.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Six credit cards in my name I didnt apply for.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121925/87213617/spousefound18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. This looks terrifying and claustrophobic to live in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213344.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Rare gameboy games.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121903/87213613/spousefound14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213356.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. A rubber crab. My wife is freaked out by crabs. Apparently her mom has been hiding it in her stuff for years to scare her and has become a game between them of hiding it somewhere the other person will eventually find it. Occasionally I’ll be looking for something and stumble across it in a new place.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121912/87213614/spousefound15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213357.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. His fake teeth. Had been together a year and lived together 2 months. He hadn’t told me, and was embarrassed, but it didn’t change the way I felt about him at all.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121914/87213615/spousefound16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213358.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. There was an old report that he had written in probably the third or fourth grade which would’ve been the early 90’s. It was about horses, and on the first page it said “wild stallions natural enemies are wolves and semi trucks.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121924/87213616/spousefound17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Rare red sprites found in the sky usually above thunderstorms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213359.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. A credit card I didnt know about. She used it to spend money on other boyfriends.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121935/87213618/spousefound19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213360.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A notebook with a partially finished letter describing in detail how she cheated on me and how she wasnt happy in the relationship.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/121827/87213606/spousefound7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The infamous message in lipstick left on Frances Brown’s flat wall, by The Lipstick Killer in 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Found this symbol under my doormat and I have no idea what it means</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213366.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. A list of reasons why she should leave me and why the guy she was cheating with was better than me.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123655/87213643/download.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">28 People Who Are Impressively Stupid  </a><br>
+## <a href="#linky19" id="linky18">28 Badass Movie Themed Tattoos for Film Buffs and Movie Lovers</a><br>
 
-<span style="font-size:4em">1. To her credit, this guy does go by the name Fake Drake and has made a name for himself as the most popular Drake imposter. So, take that with a grain of salt. Still, embarrassing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214239.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Terminator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. He said, Michael Damien Nut cookies. Is this a joke? We hope so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214246.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Darth Vader - Star Wars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. How about you dont put your finger in tight places, to begin with? Also, try soap or something slimy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214254.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Alfred Hitchcocks Birds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Now, this is definitely a joke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214263.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Clockwork Orange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This man has been the poster child for dumb decisions for almost five years now. We wish we knew how this one ended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214260.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Godzilla vs. Mechagodzilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Lmao, I think Ill pass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214236.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Monsters Inc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Bro, he just said. It means, I dont even know. Some people are beyond help. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214237.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Django Unchained</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214238.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Pulp Fiction</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214240.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Kill Bill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214241.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Royal Tenenbaums</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214242.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Dumb and Dumber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214243.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. LIttle Shop of Horrors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214244.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Uncut Gems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214245.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. There Will Be Blood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214247.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Jurassic Park</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214248.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Batman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214249.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Fight Club</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214250.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Edward Scissorhands</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127696.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214251.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Scream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127697.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214252.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Forrest Gump</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127699.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214253.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Leon the Professional</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214255.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Lord of the Rings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214256.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The Fifth Element</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214257.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Elvira Mistress of the Dark</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127704.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214258.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. The Goonies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127705.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214259.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Don’t be A Menace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214261.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. The Matrix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127708.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214262.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">35 Cool and Unusual Things People Spotted</a><br>
-
-<span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Cool pizza cutter.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091848/87215223/87214571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “A plant I saw on my walk has pleasant geometry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My cat has achieved ultimate power and transformed into Nyan Cat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091750/87215212/87211492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Awesome throne carved into an old tree stump.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091707/87215206/87210945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This rick and morty house.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091719/87215207/87210944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Made a ball of binder clips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091726/87215208/87210941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Owls have really long legs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091837/87215221/87212517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Our family photo taken with a disposable camera on July 4th, 2001 in Bishop, CA. We’ll never get a better Christmas card.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This soap looks like jellyfish.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091730/87215209/87210946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This caterpillar looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091741/87215211/87211479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This crazy looking all black lizzard.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091752/87215213/87211003.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Ice Cream Cone styled Pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091802/87215214/87211504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The reflection of fireworks on this car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091813/87215216/87212488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Old piece of metal looks like a painting of a nuclear explosion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091814/87215217/87212495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Two headed snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091823/87215218/87212501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The coolest looking moth ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091826/87215219/87212506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Giant tomato is ripening in stages.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091834/87215220/87212510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Coffee table made out of an old engine block and piping.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091845/87215222/87214540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Take your fashion game to the next level with these cool shoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091858/87215224/87214572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091859/87215225/87214563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Lightning striking a tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215004.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Anonychia is the partial or total absence of one or more nails on the fingers or toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214998.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. “The image created when holding a cube prism over a rainbow already created by another prism.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215015.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. “These urinals let you look out to the street. The windows aren’t tinted at all, so you can also see in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215001.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Little lady next to a giant dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215002.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This pic I took of a vine growing up a palm tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215007.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. “The Egyptian Octagon, as seen from an airplane”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215008.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. Swole cat is swole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091738/87215210/87211000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “These upside-down charger sockets on a train table that prevent cable damage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215013.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. “This bicolor tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215014.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Lost my wedding ring a month ago, bought a new one today. Also, today...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. This Muscovy duck has a flying duck on its feathers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091656/87215205/87210920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “A bee flew toward the camera at the exact moment we took a picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. . “At my local Fresh Field.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215011.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">The Funniest and Dankest Tweets of the Week </a><br>
-
-<span style="font-size:4em">1. Imagine if this was your recurring nightmare and every night you have to give penguins haircuts and each time you ruin them. Can you imagine the guilt youd feel? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This Tweet might be years too late but the sentiment remains as true as ever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This is a stereotype that we cant let go unchecked. Not a dorks smell bad. The slander needs to stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. This man really is living through his own recreation of, Good Luck Chuck. You hate to see it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I have to object to this. Talking on the phone is great and if you text me more than once a day I will block you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The amount of content that this single sheet has created is truly astonishing. One man cheated on his wife years ago and still, people use his welcome home sign as content. Brilliant. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214197.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214199.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214200.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214203.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214204.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214205.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214209.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214210.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214216.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214221.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky17" id="linky16">41 Behind the Scenes Photos From Iconic Movies</a><br>
-
-<span style="font-size:4em">1. The Avengers</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122502/87213621/83050810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The Godfather (Sonnys Death - Toll Booth Shooting Scene)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122559/87213628/84516783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Pirates of the Caribbean extras had to work in any weather. And ordinary shoe covers kept their shoes clean.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122644/87213636/87106913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And this is how the Iron Man suit was created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Godzilla</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122513/87213622/83578879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Nightmare on Elm Street</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122524/87213623/83597745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Karen Gillan had to spend hours in a makeup chair to turn into Nebula.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122633/87213634/87106857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Jaws</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122533/87213624/83171344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Django Unchained</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122538/87213625/84516769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Terminator</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122610/87213630/84516780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. E.T.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122545/87213626/84516771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Halloween</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122549/87213627/84319993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Lord of the Rings</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122602/87213629/84516785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Titanic</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122613/87213631/84516791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Korg looked quite different from what we saw on the screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122620/87213632/87106839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Psycho</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123236/87213640/83490361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The Godfather</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123220/87213637/83490365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Kill Bill</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123225/87213638/222facebook-template-thumbnail.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Frankenstein</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123231/87213639/83965093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. E.T.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123242/87213641/83965112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Jurassic Park</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/123246/87213642/83965125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. To create the makeup for Bombshell, a model of Charlize Theron’s nose had to be created.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Emily Blunt and Lin-Manuel Miranda on the set of Mary Poppins Returns</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Most of the scenes in 127 Hours were shot in a real canyon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Guardians of the Galaxy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. How the ending of Gravity was filmed:</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Guy Ritchie explaining to the Aladdin cast what to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Chris Pratt and Jennifer Lawrence on the set of Passengers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. The stars of Jumanji, Awkwafina and Karen Gillan, are making the rope bridge chase scene.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Behind the scenes of Terminator — Mackenzie Davis is hovering over the car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. It was not an easy job for the cameramen of First Man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Driving scenes in Mission: Impossible 7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. Green screens can do wonders — like turn Sean Gunn into Rocket Raccoon!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. Behind the scenes of His Dark Materials</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. Gal Gadot is making models for the Wonder Woman suit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. Nothing unusual, just Gillian Anderson and Olivia Colman goofing around on the set of The Crown...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. Star Wars</span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/122624/87213633/87106842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. From Captain America: The Winter Soldier — Scarlett Johansson, Samuel L. Jackson, and a helicopter prop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211473.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky18" id="linky17">37 Magical Memes to Help You Over the Hump</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120531/87214446/87212325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/87214087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120415/87214432/87206270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120418/87214433/87206266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120426/87214434/87206268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120430/87214435/87206274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120437/87214436/87206273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120441/87214437/87206278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120448/87214438/87206281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120453/87214439/87206292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120458/87214440/87206296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120504/87214441/87206301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120509/87214442/87208362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120515/87214443/87208376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120520/87214444/87208385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120527/87214445/87208386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120539/87214447/87212327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120542/87214448/87212329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120551/87214449/87212331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/120553/87214450/87212338.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky19" id="linky18">25 Funny Memes We Bought on Craigslist</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213740.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213751.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045240/87213811/96br5wsz87b91.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213744.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213756.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213737.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213738.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213739.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213742.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213743.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213745.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213746.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213747.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213748.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213749.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213750.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213752.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213753.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213741.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213754.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213755.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213757.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213758.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045252/87213812/3g0edx3pj3b91.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045304/87213813/vzgj3xsok5b91.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045310/87213814/3hw4ee7ve6b91.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045316/87213815/552m5zj126b91.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. The Shining</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127709.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -1148,70 +1156,6 @@ Last updated: 07/14/2022-09:47:18
 <span style="font-size:4em">13. I believe I can fly by R. Kelly was specifically written for the 1996 movie Space Jam - u/crandberrytea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210081.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">14. At the height of his success in 1997, R. Kelly signed as a shooting guard for a pro basketball team in the USBL. He would also sing the national anthem before the game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87210082.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky21" id="linky20">Historical Photos That Need a Bit of Explanation</a><br>
-
-<span style="font-size:4em">1. Back In 1956, Magician Robert Harbin Demonstrated One Of His Levitation Tricks On A Few Beachgoers. These Women Looked Pretty Impressed And At Ease, Especially The Woman ‘Levitating’ Over Rocks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A Young Woman Sand Surfing Near Seaside, Oregon [1941].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Air Conditioned Luxury Lawn Mower In The 1950’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Motormat Drive-In,i nvented By Kenneth C. Purdy ,where The Food Tray Was Sent Out On Rails (1948) Los Angeles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Philippe Halsman, The Versatile Jean Cocteau, 1949.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A British Chamberpot With A Built-In Small Bust Of Napoleon Bonaparte, Ca.1803-05.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Freckle Removal. A Complicated Apparatus Is Employed. Eyes Are Covered With A Special, Air-Tight Piece, And The Nostrils Filled In. Breathing Is Done Through A Special Tube. Sensitive Parts Of The Face Must Be Treated Separately, 1930.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Late Victorian Mountaineers, Including A Fully Dressed And Corseted Lady, Cross A Crevasse In The Alps (1900).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Unbroken Seal On King Tutankhamun’s Tomb, Which Stayed 3,245 Years Untouched Until The Excavation In 1922.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. From Circa 1975, An Ad For Men’s Business Attire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A Couple Gets Into Their Bmw Isetta, Through The Front Door, 1950.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A Disguised Secret Witness Testifies In A Courtroom On A Drug Case. Washington, 30 April 1952.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. 1939 Schlörwagen… Built By German Engineer Hans Schlör Von Westhofen Dirmstein To Resemble The Shape Of An Airplane Wing. This Car Was More Aerodynamicaly Efficient Than Most 21th Century Cars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Beauty Treatment For Women: 1941 The Glamour Bonnet Went Over A Woman’s Head, And The Attached Hose Was Supposed To Create Low Atmospheric Pressure Like A Vacuum To Improve Skin Complexion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Ge Walking Truck, 1969.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Pablo Picasso As Popeye. 1957. Photo By André Villers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Timberline Lodge Ski Resort, Which Is Located In Oregon (USA), Could Be Reached Along The Mountain Road By Your Own Car, By Bus, As Well As By An Unusual Bus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. 17-Year-Old Bianca Passarge From Hamburg Dances On Wine Bottles In A Cat Costume, 1958.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A Test Audience Reacting To The Chest Burster Scene In Alien, 1979.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Giant Studebaker. World’s Largest Vehicle Under Construction. Chicago, 1934.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. These Weird Trousers Were The Mad Rage In The 1920’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Cellophane Ad Poster 1950s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. To Promote His Movie ‘Frenzy’ Alfred Hitchcock Announced He Was Returning Home To London From Hollywood… By Floating A Lifelike Mannequin Of Himself In The Thames River 1972.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Department Store Wax Mannequins Melting During A Heatwave In 1929.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Luna Park, Melbourne. The Place Was (And Is) Amazing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Gas Mask For Babies, England, 1938.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. A Security Guard Walking Down Us Highway 101 Where There Are Towering Stacks Of Hollow Iron Floats From Which The Iron Antisubmarine Nets Were Suspended To Protect The Us Ports During The Last War, By Hank Walker, 1953,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Walking On Stilts Is Already Impressive Enough, But This Man Pushed It One Step Further And Skated On Stilts! Fritz Dietl, Who Was Better Known As The Stilt-Man, Was Photographed Practicing His Skills With Four-Year-Old Pat Kemp At The Empire Pool In Wembley. 1937.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Ford Unsuccessfully Tried To Reinvent The (Steering) Wheel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Ice Cube Face Mask By Max Factor, 1947.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211228.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
