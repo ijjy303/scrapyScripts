@@ -1,105 +1,51 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/15/2022-16:47:17
+Last updated: 07/15/2022-17:47:17
 <br>
-## <a href="#linky2" id="linky1">30 Disturbing Facts About The Ocean</a><br>
+## <a href="#linky2" id="linky1">22 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe.
-It’s from fishing nets and fishing gear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215169.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Only 5% of the entire ocean in the world has been discovered, that means that there is still 95% unmapped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215170.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. When a whale dies, it creates a whole new ecosystem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215168.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hot tub of despair is a lake under the ocean, in the gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215171.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I’m a scuba diver and one thing that really scared me when I first started off diving, you hear SO MUCH more underwater then you ever will above on the surface, I’m not even talking about like the shifting or just the water itself moving, your hear things like fish clicking and other things like that, cuz underwater sounds move and travel a lot more so you hear a lot more and much quicker, was pretty out of nowhere when I first went under</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215172.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215173.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The largest biomass migration takes place every night when deep sea animals come up to feed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215174.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood.
-
-Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215175.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention.
-
-I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215176.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source.
-
-The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215177.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Ocean Acidification.
-
-Increasing concentrations of atmospheric carbon dioxide (CO2) lead to higher concentrations of dissolved CO2 in surface seawater. This results in ocean acidification, which may affect the growth of the photosynthetic phytoplankton that form the basis of marine food webs.
-
-So, total marine ecosystem collapse due to greenhouse emissions, the ocean produces more than half of the oxygen on earth, so that doesnt bode well for us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215178.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. We dont really know whats it in I can say that for thousands of years we drew sea monsters beliving they lived in it. Surprising alot of stuff we found in those pictures were in the ocean. (Giant Squid recently ). Just makes you think what else is actually down there that we dont know about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215180.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. There are parts of the ocean which are dead no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215181.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. There are more viruses in the ocean than there are stars in the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215182.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. 94% of the Earths oceans are just pitch black darkness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215183.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The Mauna Kea Volcano in Hawaii is the both the tallest Undersea mountain and the tallest volcano Hawaii. It sits 6000 meters below the surface of the ocean and stands a staggering 4000m above. Giving it an overall height from ocean floor to peak of 10,000m.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215184.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. If you commit suicide by jumping off a ship in deep water you will never be found, happens often enough on cruise ships, in those warm waters youll be nibbled away before you gain buoyancy and return to the surface</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215185.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Point Nemo is the most isolated place in the world. Its in the middle of the South Pacific gyre, which is a massive rotating current that basically keeps any nutrients rich water from ever getting in. So there is no sea life anywhere to be found except for a few crabs and bacteria that live near some thermal vents on the ocean floor. Its so far away from any land that if you sailed there the closest people would be on the international space station. This is the location HP Lovecraft was describing when he provided the location of R’Lyeh where Cthulu and the other old ones love, although Lovecrafts coordinates were slightly off.
-
-And in 1997 the loudest unidentified underwater sound ever recorded, known as the bloop, originated near there. It was loud enough that it was recorded from multiple sensors 5000 miles apart and lasted for over a minute.
-
-The prevailing theory is that it was ice cracking off the south pole but we dont actually know what caused it for sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215186.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215187.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b***h who couldnt care less whether I live or die.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215167.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The fact that scientists think we have discovered more of outer space than we have of the oceans just scares me considering we don’t even know how big our universe is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Dolphins will r*pe almost any living thing, including humans.
-
-They do thus so much to the point where sharks are scared to go near them.
-
-Also Whales dont die of old age
-
-Rather, as they become older, their muscles become weaker causing them to not be able to swim and, as a result, drown, meaning that its almost impossible for a whale to die of old age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Each ocean is a mass gravesite and we all go swimming in it and some of us end up in it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Its well known but I feel like people just disregard how much stuff weve lost in the ocean.
-
-Like important pieces of history, military ships, planes, PEOPLE.
-
-And its not just recent history? Like we still are finding ancient ships and mechanical things, skeletal remains and so on.
-
-
-That and all the statues and cities and things weve found sunk is incredibly terrifying. Because we just didnt know they were there?
-
-Like not including the things we havent explored in the ocean thats native to the ocean, we have so much stuff to find in there.
-
-Like we still *technically* dont know what happened to Amelia Earhart. We think we found what mightve been her remains on an island but we dont know if that was her or not. And wheres her plane?
-
-Not to mention that while we have no clue how common it is people dump bodies in the ocean.
-
-Like. The ocean is a massive graveyard for bodies, vehicles and history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. 90%of the sea-biomass is located in the deepsea, and 60% of the deep sea biomass is only lantern fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Blue Whales cum 20 liters of sperm each time they ejaculate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move.
-
-He specifically mentioned how he had to get used to having large things bump into him in the pitch black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215196.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -147,75 +93,77 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Dude Cheats on GF after She Saves His Life</a><br>
+## <a href="#linky4" id="linky3">22 Americana Pics That Scream ‘Freedom'</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042129/87215443/boat.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042140/87215444/bike.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042149/87215445/bud.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042152/87215446/bong.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042201/87215447/car.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042206/87215448/cool.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042242/87215453/gun.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042211/87215449/dog.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042220/87215450/dudes.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042225/87215451/fish.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042253/87215455/kids.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042232/87215452/flag.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042128/87215442/babes.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042244/87215454/hunt.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042334/87215462/three.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042304/87215457/paint.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042311/87215458/pool.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042317/87215459/skates.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042323/87215460/ski.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042259/87215456/milf.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042329/87215461/surf.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042340/87215463/wed.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">27 Charts Filled With Random Knowledge</a><br>
+## <a href="#linky5" id="linky4">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214698.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214700.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214701.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214702.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214703.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214704.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214708.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214705.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214706.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214707.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214697.gif" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214723.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -323,161 +271,21 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky7" id="linky6">Dude Cheats on GF after She Saves His Life</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">20 Extremely Disturbing Facts About The Kardashians</a><br>
-
-<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">20 Modern Trends That Need to End ASAP</a><br>
-
-<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">24 Depressing Facts We Finally Made Peace With</a><br>
+## <a href="#linky8" id="linky7">24 Depressing Facts We Finally Made Peace With</a><br>
 
 <span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
 
@@ -529,33 +337,7 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">35 Cool and Unusual Things People Spotted</a><br>
+## <a href="#linky9" id="linky8">35 Cool and Unusual Things People Spotted</a><br>
 
 <span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
 
@@ -629,7 +411,95 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">30 People Share Secrets Now That Their NDAs Have Expired</a><br>
+## <a href="#linky10" id="linky9">20 Extremely Disturbing Facts About The Kardashians</a><br>
+
+<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Modern Trends That Need to End ASAP</a><br>
+
+<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">30 People Share Secrets Now That Their NDAs Have Expired</a><br>
 
 <span style="font-size:4em">1. YouTube is the most unethical platform on earth.If you are a high value account, most of the policies of YouTube wont touch you. For example, there was a Brazilian kid twerking, with his small sister that was dressed very provocatively. Normally YouTube would take down this video for minor sexualisation but because the account had some millions of followers, not only it remained live on the platform, but also had a safety net, in case a stupid agent tried to take it down.2) everyday there are thousands upon thousands of very horrible videos being uploaded on YouTube, and its up to a human being to go through them and take an action.As you can understand, a lot of agents develop depression, anxiety, PTSD, and other mental problems due to the nature of the videos they are watching</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214274.jpg" style="width:100%"><br>
 
@@ -693,51 +563,229 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">22 Americana Pics That Scream ‘Freedom'</a><br>
+## <a href="#linky13" id="linky12">30 Disturbing Facts About The Ocean</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042129/87215443/boat.png" style="width:100%"><br>
+<span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042140/87215444/bike.png" style="width:100%"><br>
+<span style="font-size:4em">2. Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe.
+It’s from fishing nets and fishing gear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042149/87215445/bud.png" style="width:100%"><br>
+<span style="font-size:4em">3. Only 5% of the entire ocean in the world has been discovered, that means that there is still 95% unmapped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042152/87215446/bong.png" style="width:100%"><br>
+<span style="font-size:4em">4. When a whale dies, it creates a whole new ecosystem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042201/87215447/car.png" style="width:100%"><br>
+<span style="font-size:4em">5. Hot tub of despair is a lake under the ocean, in the gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042206/87215448/cool.png" style="width:100%"><br>
+<span style="font-size:4em">6. I’m a scuba diver and one thing that really scared me when I first started off diving, you hear SO MUCH more underwater then you ever will above on the surface, I’m not even talking about like the shifting or just the water itself moving, your hear things like fish clicking and other things like that, cuz underwater sounds move and travel a lot more so you hear a lot more and much quicker, was pretty out of nowhere when I first went under</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042242/87215453/gun.png" style="width:100%"><br>
+<span style="font-size:4em">7. Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042211/87215449/dog.png" style="width:100%"><br>
+<span style="font-size:4em">8. The largest biomass migration takes place every night when deep sea animals come up to feed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042220/87215450/dudes.png" style="width:100%"><br>
+<span style="font-size:4em">9. There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood.
+
+Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042225/87215451/fish.png" style="width:100%"><br>
+<span style="font-size:4em">10. I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention.
+
+I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042253/87215455/kids.png" style="width:100%"><br>
+<span style="font-size:4em">11. The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source.
+
+The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042232/87215452/flag.png" style="width:100%"><br>
+<span style="font-size:4em">12. Ocean Acidification.
+
+Increasing concentrations of atmospheric carbon dioxide (CO2) lead to higher concentrations of dissolved CO2 in surface seawater. This results in ocean acidification, which may affect the growth of the photosynthetic phytoplankton that form the basis of marine food webs.
+
+So, total marine ecosystem collapse due to greenhouse emissions, the ocean produces more than half of the oxygen on earth, so that doesnt bode well for us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042128/87215442/babes.png" style="width:100%"><br>
+<span style="font-size:4em">13. We dont really know whats it in I can say that for thousands of years we drew sea monsters beliving they lived in it. Surprising alot of stuff we found in those pictures were in the ocean. (Giant Squid recently ). Just makes you think what else is actually down there that we dont know about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042244/87215454/hunt.png" style="width:100%"><br>
+<span style="font-size:4em">14. There are parts of the ocean which are dead no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042334/87215462/three.png" style="width:100%"><br>
+<span style="font-size:4em">15. There are more viruses in the ocean than there are stars in the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042304/87215457/paint.png" style="width:100%"><br>
+<span style="font-size:4em">16. 94% of the Earths oceans are just pitch black darkness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042311/87215458/pool.png" style="width:100%"><br>
+<span style="font-size:4em">17. The Mauna Kea Volcano in Hawaii is the both the tallest Undersea mountain and the tallest volcano Hawaii. It sits 6000 meters below the surface of the ocean and stands a staggering 4000m above. Giving it an overall height from ocean floor to peak of 10,000m.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042317/87215459/skates.png" style="width:100%"><br>
+<span style="font-size:4em">18. If you commit suicide by jumping off a ship in deep water you will never be found, happens often enough on cruise ships, in those warm waters youll be nibbled away before you gain buoyancy and return to the surface</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042323/87215460/ski.png" style="width:100%"><br>
+<span style="font-size:4em">19. Point Nemo is the most isolated place in the world. Its in the middle of the South Pacific gyre, which is a massive rotating current that basically keeps any nutrients rich water from ever getting in. So there is no sea life anywhere to be found except for a few crabs and bacteria that live near some thermal vents on the ocean floor. Its so far away from any land that if you sailed there the closest people would be on the international space station. This is the location HP Lovecraft was describing when he provided the location of R’Lyeh where Cthulu and the other old ones love, although Lovecrafts coordinates were slightly off.
+
+And in 1997 the loudest unidentified underwater sound ever recorded, known as the bloop, originated near there. It was loud enough that it was recorded from multiple sensors 5000 miles apart and lasted for over a minute.
+
+The prevailing theory is that it was ice cracking off the south pole but we dont actually know what caused it for sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042259/87215456/milf.png" style="width:100%"><br>
+<span style="font-size:4em">20. When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042329/87215461/surf.png" style="width:100%"><br>
+<span style="font-size:4em">21. It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b***h who couldnt care less whether I live or die.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042340/87215463/wed.png" style="width:100%"><br>
+<span style="font-size:4em">22. The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The fact that scientists think we have discovered more of outer space than we have of the oceans just scares me considering we don’t even know how big our universe is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Dolphins will r*pe almost any living thing, including humans.
+
+They do thus so much to the point where sharks are scared to go near them.
+
+Also Whales dont die of old age
+
+Rather, as they become older, their muscles become weaker causing them to not be able to swim and, as a result, drown, meaning that its almost impossible for a whale to die of old age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Each ocean is a mass gravesite and we all go swimming in it and some of us end up in it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Its well known but I feel like people just disregard how much stuff weve lost in the ocean.
+
+Like important pieces of history, military ships, planes, PEOPLE.
+
+And its not just recent history? Like we still are finding ancient ships and mechanical things, skeletal remains and so on.
+
+
+That and all the statues and cities and things weve found sunk is incredibly terrifying. Because we just didnt know they were there?
+
+Like not including the things we havent explored in the ocean thats native to the ocean, we have so much stuff to find in there.
+
+Like we still *technically* dont know what happened to Amelia Earhart. We think we found what mightve been her remains on an island but we dont know if that was her or not. And wheres her plane?
+
+Not to mention that while we have no clue how common it is people dump bodies in the ocean.
+
+Like. The ocean is a massive graveyard for bodies, vehicles and history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. 90%of the sea-biomass is located in the deepsea, and 60% of the deep sea biomass is only lantern fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Blue Whales cum 20 liters of sperm each time they ejaculate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move.
+
+He specifically mentioned how he had to get used to having large things bump into him in the pitch black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215196.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">27 Charts Filled With Random Knowledge</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214697.gif" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214723.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
