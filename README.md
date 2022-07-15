@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/15/2022-05:47:19
+Last updated: 07/15/2022-06:47:18
 <br>
 ## <a href="#linky2" id="linky1">22 Americana Pics That Scream ‘Freedom'</a><br>
 
@@ -49,125 +49,115 @@ Last updated: 07/15/2022-05:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">The Funniest and Dankest Tweets of the Week </a><br>
+## <a href="#linky3" id="linky2">25 Burning NSFW Questions We'd Like the Mythbusters to Answer</a><br>
 
-<span style="font-size:4em">1. Imagine if this was your recurring nightmare and every night you have to give penguins haircuts and each time you ruin them. Can you imagine the guilt youd feel? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214192.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I want them to purchase every pill they see on the internet that would make their d*ck bigger and see what happens. -u/tkepongo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This Tweet might be years too late but the sentiment remains as true as ever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214193.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A five-second segment where Jamie points at a diagram and says, in complete deadpan, This is where the clitoris is. -u/TheFeelsGoodMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This is a stereotype that we cant let go unchecked. Not a dorks smell bad. The slander needs to stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214194.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Does a person really stay conscious for a few moments after beheading? -u/SammyGotStache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This man really is living through his own recreation of, Good Luck Chuck. You hate to see it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214195.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Can you actually get an STD from a toilet seat? -u/BloodyChapel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I have to object to this. Talking on the phone is great and if you text me more than once a day I will block you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214196.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Size correlates to what? Feet? Nose? So many theories. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The amount of content that this single sheet has created is truly astonishing. One man cheated on his wife years ago and still, people use his welcome home sign as content. Brilliant. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214197.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Do people get more stupid (IQ, memory, etc) when they get horny? -u/Timebomb_42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214198.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. How deep underwater are you still able to cum? -u/Successful_Present39</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214199.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Ejaculation distance + vaginal ping pong distance. -u/ooo-ooo-oooyea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214200.png" style="width:100%"><br>
+<span style="font-size:4em">9. Is squirting just pee? -u/lafgenetics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204243.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214201.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Post orgasm clarity: How much better can you solve puzzles or remember something? -u/texanaftdy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204244.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214203.png" style="width:100%"><br>
+<span style="font-size:4em">11. A take on the top ten OSHA violations list to see if they are as dangerous as they say. -u/Mariuxpunk007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214204.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. We investigate the statement Anything is a dildo if youre brave enough. -u/DavosLostFingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214205.png" style="width:100%"><br>
+<span style="font-size:4em">13. If you nut in space, does it push you backward? -u/Faokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204247.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214206.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Can you sh*t out a hangover? -u/rongywrongerson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214207.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Statistically speaking, which sex position has the fastest rate for ejaculation? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204249.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214208.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. How many times can a man ejaculate in one 24-hour period and still produce fluid? -u/AtlasHugged17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214209.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. If you filled an auditorium with people who, when given the word, would start “clapping them cheeks”. Would the sound produced by the audience “clapping “ sound like actual applause? -u/Trentsexual</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214210.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. How large would a penis have to be to cause someone to pass out from getting an erection? -u/-eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214211.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Can a human really fit 2 fully grown raccoons up their butt? -u/Cannonfury</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204253.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214212.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Does my wife really have frequent headaches or am I just ugly? -u/kballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214213.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. How many people does it take to f*ck an ostrich? I hear the debate is between two and three. But it certainly takes more than one person to get it done. -u/Psychomadeye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214214.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Does ice cream come out as poop or pee? -u/JoeDaOrc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214215.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Statistically speaking, which handjob method or fingering style is likelier to produce a faster orgasm? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204257.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214216.png" style="width:100%"><br>
+<span style="font-size:4em">24. Can a subwoofer cause an orgasm? -u/Space2345</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214221.png" style="width:100%"><br>
+<span style="font-size:4em">25. Does pineapple make your cum taste better? -u/TMNT4lyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204259.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">28 People Who Are Impressively Stupid  </a><br>
+## <a href="#linky4" id="linky3">25 Funny Memes We Bought on Craigslist</a><br>
 
-<span style="font-size:4em">1. To her credit, this guy does go by the name Fake Drake and has made a name for himself as the most popular Drake imposter. So, take that with a grain of salt. Still, embarrassing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214239.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213740.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. He said, Michael Damien Nut cookies. Is this a joke? We hope so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214246.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213751.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. How about you dont put your finger in tight places, to begin with? Also, try soap or something slimy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214254.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045240/87213811/96br5wsz87b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Now, this is definitely a joke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214263.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213744.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This man has been the poster child for dumb decisions for almost five years now. We wish we knew how this one ended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214260.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213756.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Lmao, I think Ill pass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214236.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213737.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Bro, he just said. It means, I dont even know. Some people are beyond help. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214237.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213738.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214238.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213739.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214240.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213742.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214241.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213743.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214242.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213745.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214243.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213746.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214244.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213747.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214245.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213748.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214247.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213749.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214248.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213750.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214249.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213752.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214250.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213753.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214251.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213741.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214252.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213754.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214253.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213755.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214255.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213757.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214256.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213758.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214257.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045252/87213812/3g0edx3pj3b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214258.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045304/87213813/vzgj3xsok5b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214259.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045310/87213814/3hw4ee7ve6b91.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214262.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045316/87213815/552m5zj126b91.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -547,7 +537,51 @@ Spoiler, didnt f****n happen.</span><br><img src="https://cdn.ebaumsworld.com/me
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">35 Cool and Unusual Things People Spotted</a><br>
+## <a href="#linky9" id="linky8">20 Wild Facts about the Late Anthony Bourdain</a><br>
+
+<span style="font-size:4em">1. Anthony Bourdains show Parts Unknown composed their own music to fit the mood of the scene. - u/dwash714</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There is a heart-shaped red tomato named after Anthony Bourdain. - u/enginegeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Anthony Bourdain at times wouldnt name the places hed visit while filming. He did this sometimes to prevent tourists from turning a bar or restaurant into a tourist trap after filming there. - u/Barleynots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ever since he was a kid Anthony Bourdain wanted to write comics, and actually got a chance to do so for DC. - u/Two_Faced_Harvey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. An 86-year-old wrote an upbeat review for her local paper about a new Olive Garden. She was mercilessly mocked by the Internet. Anthony Bourdain thought she had a valuable POV on small town dining. So he published a book of her reviews. - u/dickfromaccounting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. When chef Anthony Bourdain visited a Government Authorized Bhang Shop in Rajasthan, India the proprietor described his strongest bhang lassi (cannabis drink) as full power, 24 hour, no toilet, no shower. - u/vabanque</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Anthony Bourdain got a parasite from eating a raw warthogs anus, which had just expelled feces. - u/firmkillernate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Anthony Bourdain trained and competed in Brazilian jiu-jitsu. - u/irvwash24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Bradley Cooper portrayed Anthony Bourdain in the 2005 series Kitchen Confidential based on the book by Bourdain, which had tips such as not ordering fish on Mondays. - u/TheDood715</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Anthony Bourdain loved the American Waffle House. - u/sconnie1046</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Queen of the Stone Ages Josh Homme and Mark Lanegan wrote the theme tune for Anthony Bourdain: Parts Unknown.  - u/ChainLadderGang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. On his show, celebrity chef Anthony Bourdain enjoyed a traditional Inuit meal consisting of raw seal meat, organs, eyeball, and blood. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Chef Anthony Bourdain had a kitchen knife custom-forged from a Meteorite. - u/sandcannon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Anthony Bourdain, Gordon Ramsay, and Andrew Zimmern have all been disgusted with the smell and/or taste of Hákarl (Icelandic fermented shark dish). - u/makemetwoeggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Anthony Bourdain was a heroin addict. - u/Predatormagnet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Anthony Bourdain claimed that the worst thing hed ever eaten was a Chicken McNugget. - u/vamosbravos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. On an episode of No Reservations in Haiti, Anthony Bourdain buys out an entire food stand to feed hungry onlookers which leads to a fight breaking out among the crowd. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Anthony Bourdains graphic novel is about a renegade sushi chef. - u/gorged_on_truffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Anthony Bourdain was trapped in Beirut for over a week during the 2006 Israeli-Lebanon War. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Anthony Bourdain had a role in the movie adaptation of the game Far Cry. - u/GoodGuyGregsCousin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200742.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">35 Cool and Unusual Things People Spotted</a><br>
 
 <span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
 
@@ -621,163 +655,67 @@ Spoiler, didnt f****n happen.</span><br><img src="https://cdn.ebaumsworld.com/me
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Funny Memes We Bought on Craigslist</a><br>
+## <a href="#linky11" id="linky10">28 People Who Are Impressively Stupid  </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213740.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. To her credit, this guy does go by the name Fake Drake and has made a name for himself as the most popular Drake imposter. So, take that with a grain of salt. Still, embarrassing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213751.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. He said, Michael Damien Nut cookies. Is this a joke? We hope so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045240/87213811/96br5wsz87b91.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. How about you dont put your finger in tight places, to begin with? Also, try soap or something slimy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213744.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Now, this is definitely a joke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213756.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. This man has been the poster child for dumb decisions for almost five years now. We wish we knew how this one ended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214260.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213737.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Lmao, I think Ill pass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213738.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Bro, he just said. It means, I dont even know. Some people are beyond help. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213739.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213742.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213743.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213745.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213746.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213747.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213748.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213749.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214247.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213750.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213752.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214249.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213753.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213741.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213754.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213755.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214253.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213757.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87213758.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045252/87213812/3g0edx3pj3b91.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214257.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045304/87213813/vzgj3xsok5b91.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045310/87213814/3hw4ee7ve6b91.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214259.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/12/045316/87213815/552m5zj126b91.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214261.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">26 Freaky Pics and Facts to Terrify Your Soul</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. abandoned summer camp closed due to a child drowning in the lake. sound familiar ?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The warning on nuclear waste disposal sites designed to be read hundreds of thousands of years into the future</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. This looks terrifying and claustrophobic to live in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Rare red sprites found in the sky usually above thunderstorms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The infamous message in lipstick left on Frances Brown’s flat wall, by The Lipstick Killer in 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Found this symbol under my doormat and I have no idea what it means</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213366.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214262.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">20 Wild Facts about the Late Anthony Bourdain</a><br>
-
-<span style="font-size:4em">1. Anthony Bourdains show Parts Unknown composed their own music to fit the mood of the scene. - u/dwash714</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There is a heart-shaped red tomato named after Anthony Bourdain. - u/enginegeek</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Anthony Bourdain at times wouldnt name the places hed visit while filming. He did this sometimes to prevent tourists from turning a bar or restaurant into a tourist trap after filming there. - u/Barleynots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Ever since he was a kid Anthony Bourdain wanted to write comics, and actually got a chance to do so for DC. - u/Two_Faced_Harvey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. An 86-year-old wrote an upbeat review for her local paper about a new Olive Garden. She was mercilessly mocked by the Internet. Anthony Bourdain thought she had a valuable POV on small town dining. So he published a book of her reviews. - u/dickfromaccounting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When chef Anthony Bourdain visited a Government Authorized Bhang Shop in Rajasthan, India the proprietor described his strongest bhang lassi (cannabis drink) as full power, 24 hour, no toilet, no shower. - u/vabanque</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Anthony Bourdain got a parasite from eating a raw warthogs anus, which had just expelled feces. - u/firmkillernate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Anthony Bourdain trained and competed in Brazilian jiu-jitsu. - u/irvwash24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Bradley Cooper portrayed Anthony Bourdain in the 2005 series Kitchen Confidential based on the book by Bourdain, which had tips such as not ordering fish on Mondays. - u/TheDood715</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Anthony Bourdain loved the American Waffle House. - u/sconnie1046</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Queen of the Stone Ages Josh Homme and Mark Lanegan wrote the theme tune for Anthony Bourdain: Parts Unknown.  - u/ChainLadderGang</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. On his show, celebrity chef Anthony Bourdain enjoyed a traditional Inuit meal consisting of raw seal meat, organs, eyeball, and blood. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Chef Anthony Bourdain had a kitchen knife custom-forged from a Meteorite. - u/sandcannon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Anthony Bourdain, Gordon Ramsay, and Andrew Zimmern have all been disgusted with the smell and/or taste of Hákarl (Icelandic fermented shark dish). - u/makemetwoeggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Anthony Bourdain was a heroin addict. - u/Predatormagnet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Anthony Bourdain claimed that the worst thing hed ever eaten was a Chicken McNugget. - u/vamosbravos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. On an episode of No Reservations in Haiti, Anthony Bourdain buys out an entire food stand to feed hungry onlookers which leads to a fight breaking out among the crowd. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Anthony Bourdains graphic novel is about a renegade sushi chef. - u/gorged_on_truffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Anthony Bourdain was trapped in Beirut for over a week during the 2006 Israeli-Lebanon War. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Anthony Bourdain had a role in the movie adaptation of the game Far Cry. - u/GoodGuyGregsCousin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200742.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">The Freshest and Dankest Memes of the Week </a><br>
+## <a href="#linky12" id="linky11">The Freshest and Dankest Memes of the Week </a><br>
 
 <span style="font-size:4em">1. Life is slowly morphing into a real-life GTA server, and some of us arent prepared for the implication that is soon to follow. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214016.jpg" style="width:100%"><br>
 
@@ -837,57 +775,119 @@ Spoiler, didnt f****n happen.</span><br><img src="https://cdn.ebaumsworld.com/me
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">25 Burning NSFW Questions We'd Like the Mythbusters to Answer</a><br>
+## <a href="#linky13" id="linky12">26 Freaky Pics and Facts to Terrify Your Soul</a><br>
 
-<span style="font-size:4em">1. I want them to purchase every pill they see on the internet that would make their d*ck bigger and see what happens. -u/tkepongo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204235.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A five-second segment where Jamie points at a diagram and says, in complete deadpan, This is where the clitoris is. -u/TheFeelsGoodMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204236.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. abandoned summer camp closed due to a child drowning in the lake. sound familiar ?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213342.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Does a person really stay conscious for a few moments after beheading? -u/SammyGotStache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204237.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Can you actually get an STD from a toilet seat? -u/BloodyChapel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204238.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The warning on nuclear waste disposal sites designed to be read hundreds of thousands of years into the future</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Size correlates to what? Feet? Nose? So many theories. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204239.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213341.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Do people get more stupid (IQ, memory, etc) when they get horny? -u/Timebomb_42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204240.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. How deep underwater are you still able to cum? -u/Successful_Present39</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204241.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Ejaculation distance + vaginal ping pong distance. -u/ooo-ooo-oooyea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204242.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Is squirting just pee? -u/lafgenetics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204243.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Post orgasm clarity: How much better can you solve puzzles or remember something? -u/texanaftdy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204244.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. A take on the top ten OSHA violations list to see if they are as dangerous as they say. -u/Mariuxpunk007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204245.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. We investigate the statement Anything is a dildo if youre brave enough. -u/DavosLostFingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204246.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. If you nut in space, does it push you backward? -u/Faokes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204247.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Can you sh*t out a hangover? -u/rongywrongerson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204248.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. This looks terrifying and claustrophobic to live in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Statistically speaking, which sex position has the fastest rate for ejaculation? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204249.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. How many times can a man ejaculate in one 24-hour period and still produce fluid? -u/AtlasHugged17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204250.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. If you filled an auditorium with people who, when given the word, would start “clapping them cheeks”. Would the sound produced by the audience “clapping “ sound like actual applause? -u/Trentsexual</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204251.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. How large would a penis have to be to cause someone to pass out from getting an erection? -u/-eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204252.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Rare red sprites found in the sky usually above thunderstorms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Can a human really fit 2 fully grown raccoons up their butt? -u/Cannonfury</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204253.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Does my wife really have frequent headaches or am I just ugly? -u/kballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204254.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. How many people does it take to f*ck an ostrich? I hear the debate is between two and three. But it certainly takes more than one person to get it done. -u/Psychomadeye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204255.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Does ice cream come out as poop or pee? -u/JoeDaOrc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204256.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Statistically speaking, which handjob method or fingering style is likelier to produce a faster orgasm? -u/PepeTheFRQG</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204257.png" style="width:100%"><br>
+<span style="font-size:4em">23. The infamous message in lipstick left on Frances Brown’s flat wall, by The Lipstick Killer in 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Can a subwoofer cause an orgasm? -u/Space2345</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204258.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Does pineapple make your cum taste better? -u/TMNT4lyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87204259.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Found this symbol under my doormat and I have no idea what it means</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213366.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">The Funniest and Dankest Tweets of the Week </a><br>
+
+<span style="font-size:4em">1. Imagine if this was your recurring nightmare and every night you have to give penguins haircuts and each time you ruin them. Can you imagine the guilt youd feel? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This Tweet might be years too late but the sentiment remains as true as ever. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This is a stereotype that we cant let go unchecked. Not a dorks smell bad. The slander needs to stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. This man really is living through his own recreation of, Good Luck Chuck. You hate to see it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I have to object to this. Talking on the phone is great and if you text me more than once a day I will block you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The amount of content that this single sheet has created is truly astonishing. One man cheated on his wife years ago and still, people use his welcome home sign as content. Brilliant. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214197.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214199.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214200.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214203.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214204.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214205.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214209.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214210.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214216.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214221.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
