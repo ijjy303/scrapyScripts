@@ -1,7 +1,91 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/15/2022-01:47:18
+Last updated: 07/15/2022-02:47:18
 <br>
-## <a href="#linky2" id="linky1">22 Americana Pics That Scream ‘Freedom'</a><br>
+## <a href="#linky2" id="linky1">40 'The Boys' Memes to Wash Down the Temp V</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214500.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Antony Starr has to have the most sinister shark-smile in all of television. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. As cool as the underground KGB laboratory motif is, you gotta admit thats a pretty big facepalm.  A little too big, some could argue. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Im still not sure about what her powers are, exactly. Their sound effect is cool though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214517.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214501.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In case him splattering a person like a literal train in episode one didnt tell you, A-Trains kind of a sh*tty person. But then again, who knows how good youd be when you grew up with literal superpowers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214519.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Fans are pretty upset with some of the choices made in the finale. Clearly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214502.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214505.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214504.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Does The Deep really count as a whole supe? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214523.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214506.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214509.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Getting hit by Soldier Boys stomach-nuke was the best thing that ever happened to me!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214513.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214515.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Starr was also great in a lesser-known show by the name of Banshee if youre interested. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214518.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214521.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214524.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Thats... thats a really good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214527.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214528.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Maybe Homelander and The Deep have something to chat about when Homelander isnt making him eat his friends. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214529.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214530.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214531.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214532.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214533.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214534.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">37. It is rather interesting that nobody seemed to mind that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214535.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214537.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/023025/87214629/7s5b16cd1ta91.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">22 Americana Pics That Scream ‘Freedom'</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042129/87215443/boat.png" style="width:100%"><br>
 
@@ -46,66 +130,6 @@ Last updated: 07/15/2022-01:47:18
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042329/87215461/surf.png" style="width:100%"><br>
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042340/87215463/wed.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">28 People Who Are Impressively Stupid  </a><br>
-
-<span style="font-size:4em">1. To her credit, this guy does go by the name Fake Drake and has made a name for himself as the most popular Drake imposter. So, take that with a grain of salt. Still, embarrassing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. He said, Michael Damien Nut cookies. Is this a joke? We hope so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. How about you dont put your finger in tight places, to begin with? Also, try soap or something slimy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Now, this is definitely a joke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. This man has been the poster child for dumb decisions for almost five years now. We wish we knew how this one ended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lmao, I think Ill pass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bro, he just said. It means, I dont even know. Some people are beyond help. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214262.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -231,61 +255,7 @@ Last updated: 07/15/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">26 Freaky Pics and Facts to Terrify Your Soul</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. abandoned summer camp closed due to a child drowning in the lake. sound familiar ?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The warning on nuclear waste disposal sites designed to be read hundreds of thousands of years into the future</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. This looks terrifying and claustrophobic to live in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Rare red sprites found in the sky usually above thunderstorms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The infamous message in lipstick left on Frances Brown’s flat wall, by The Lipstick Killer in 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Found this symbol under my doormat and I have no idea what it means</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213366.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">27 Charts Filled With Random Knowledge</a><br>
+## <a href="#linky6" id="linky5">27 Charts Filled With Random Knowledge</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214698.jpg" style="width:100%"><br>
 
@@ -340,6 +310,176 @@ Last updated: 07/15/2022-01:47:18
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214722.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214723.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">30 People Share Secrets Now That Their NDAs Have Expired</a><br>
+
+<span style="font-size:4em">1. 1) YouTube is the most unethical platform on earth.
+If you are a high value account, most of the policies of YouTube wont touch you. For example, there was a Brazilian kid twerking, with his small sister that was dressed very provocatively. Normally YouTube would take down this video for minor sexualisation but because the account had some millions of followers, not only it remained live on the platform, but also had a safety net, in case a stupid agent tried to take it down.
+
+2) everyday there are thousands upon thousands of very horrible videos being uploaded on YouTube, and its up to a human being to go through them and take an action.
+As you can understand, a lot of agents develop depression, anxiety, PTSD, and other mental problems due to the nature of the videos they are watching</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I walked in on my boss having sex with another employee on the table in his office. He was married and it was a family owned business so his boss was also his mom. After he offered to promote me and give me a few raises to be quiet, his mom ended up offering me money to leave and not say anything. I took it and left. All my friends think I just found a better job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I work for a moving company and we work with a women’s shelter often enough. Typically women escaping abuse will have the shelter hire us to go in and get their belongings (sometimes with police company) and all the movers sign NDA’s to protect the women from letting their new addresses slip. I can’t disclose anything that interesting but I want to take the opportunity to say, those people who jump at the slightest sound, the littlest surprise, be nice to them because you don’t know whether they are just jumpy naturally or if there’s a reason they are like that now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. There are powerline transformers that predate ww1 still up and running in the US and the utility companies arent a 100% sure where most of them are. They only find out when one finally dies.
+
+Someone over 100 years ago put up a transform that powered telegrams all the way to Twitter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Amazon is probably here but Im saying it anyway.
+
+The reason why people p**s in bottles is that they are fighting against TOT(time off task). If in a week you accumulate a combined total of 15 minutes of non working, not break away from your station you a reprimanded or more likely fired. So walking away to pee, TOT. Slightly late to station due to high foot traffic, ToT. Stop at you station for a breather because its hot, your tired or sick, TOT.
+
+The above plus the strict metrics and constant oversight of the lead staff makes working there feel like you are a machine.
+
+It reminds me of film representations from the twenties about the the sadness of the futures poor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I worked for a mall pretzel stand about 25 years ago and had to sign an NDA about the secret pretzel ingredient. It was baking soda.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Tesla has failed six attempts to get their cars licensed for racing by the FIA. I cant say anything past that, but if you feel like checking the registry youll find theyre still not licensed.
+
+I didnt enjoy the battery melting under me when we pushed the car to the limits. Not did I enjoy the threat of a lawsuit if I didnt change my report. f**k Tesla
+
+Its a real shame though because I love electric cars. Theyre 100% the future of motorsports and I really wish there were more batteries capable of emptying at the rate needed without breaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I signed an NDA for a prominent American show where they take a certain type of business on the brink of failure and transform it to save the business. When the producers of the show found out my wife and I both worked there, they tried to fish through our relationship for tv drama. When they found out we have a solid relationship, they tried to convince us to fake our drama with scripted conflict.
+
+Long story short, we got fed up and quit during shooting. We were cut from the show. Oh well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Used to work in a warehouse where we made feminine hygiene products. The pads came out of one machine into several different branded boxes. Both the nickel gas station pads and the 10 dollar a box pads.
+
+Also we had one product of pads where we imported them from china, then repackaged them into our own boxes. I didnt have a problem with that. The problem I had was the box had an emblem saying made in America
+
+Wouldve been ok if it said assembled in America. But no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. When I was tech before I was a vet, I worked in a lab that mostly tested animal meds on animals. Flea products, heartworm meds, etc.
+
+We had one product in testing for human medication though, which was an injection that supposedly was going to shorten the need to wear retainers after having braces.
+
+Of course, to test that, we needed animals that had worn braces long enough to replicate the changes that happen to human mouths that have had braces.
+
+What Im getting at, was that some days it was my job to brush the mouths of like 50 beagles that all had braces and make sure the wires and brackets were in place and not causing any trauma to the lips or gingiva.
+
+The image of dozens of goofy little dogs clack clack clacking around me in circles around the lab super excited to see me, doing their ridiculous beagle howls and flashing their braces as they did so will never leave my brain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Used to be an au pair for a famous couples children. NDA was there to protect the family - I wasnt allowed to take pictures of the kids on any of my devices, the photos i did take were not allowed to include their faces and the rest were just general rules about not sharing their private information. Even to this day i wont sell that information even though the NDA has expired, probably some of the nicest people i have ever worked for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A recently hired employee trapped a secretary in a bathroom at the company Christmas party and r@ped her. He was caught in the act, sentenced, and will serve a long jail term. All the employees who knew about the details were forced to sign strong NDA and ordered **not to talk** to any other employees. No one was told why the guy didnt show up for work ever again. The victim was offered a generous payout and never came back to work. HR put out a story that she was taking time off for personal reasons and her coworkers were never told why. Everything was hushed up as much as it could be. The company changed from open bar to drink tickets for all future company events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Not sure if I’m no longer bound or not or how common knowledge it is, but living in NYC I was paid to be a fan at a major red carpet movie premiere for a popular film franchise. 100% of the people there were paid to act excited as famous actors and a VERY famous director walked out and said hello and did interviews. We were under strict instructions not to let anyone know we were hired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. From a secondary source, but trustworthy
+
+John Travolta is gay. His partner was sick in the hospital, he came to visit him many times, whole floor was emptied and everyone in the floor had to sign an nda
+
+But yeah, those rumors are true. Weird how they started way back then</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Not my own but from a family friend.
+
+Coca Cola and Pepsi regularily settle disputes behind closed doors on things like employees trying to quit and join the competitor. Their employment contracts have entire clauses stating you cannot be employed by the competing companies even after you quit so to protect company intel and confidentiality.
+
+For example, a Coca Cola employee feels like he is being mistreated by the company so he quits and tries to work for Pepsi. So Pepsis legal team will inform Coca Cola as soon as they find out and Coca Cola will sue the guy for breach of contract and in return Pepsi will pay them. This is done so Pepsi and Coca Cola dont sue each others into bankrupcy for breach of laws regarding industrial competition and market regulations.
+
+Basically a peace treaty of sorts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My NDA is still in effect, but Ive covered my liability. A few years, with a previous insurance company I worked for, we fired an employee who had a nasty personality (imagine a toxic gamer working in a call center and that would be this guy).
+
+He had been the son (or grandson) of one of the board members so he was untouchable. When his relative on the board got voted out, it was finally time for this little troll to be fired.
+
+His supervisor took him to a conference room to let him know he was fired and he was escorted from the building by security. As the HR manager, I was tasked with clearing his desk and separating his property from company property.
+
+That was when I found a heavily used 5 X 8 notepad on his desk that had a list of names. Next to each name was a mailing addresses and details about how this ex-employee planned to harm these people. I did some digging and found they were all current or former clients of the company and that they all had filed complaints against this monster.
+
+It was a hit list.
+
+I notified the board **AFTER** I notified the police. The s**t was arrested on unrelated drug and assault charges. The prosecutor now had to consider charging this guy for his hit list. Since she couldnt convince a judge there was a strong enough case, the prosecutor decided to empanel a grand jury.
+
+Since I was the individual who found the notepad, I was subpoenaed to confirm its provenance. Considering any other employee could have walked by and deposited this list on this a*****es desk, the grand jury decided to not move ahead to a trial. For the drug and assault charges, the former employee was sentenced to 16 years in prison.
+
+As a witness, I wasnt issued a gag order regarding the grand jury investigation. However, my work did order me to sign an NDA to protect the clients who were on that hit list (it was really just to cover up that they were in any danger). I signed and then quit as soon as I got a job offer with another company. Those bastards on the board cared more about their profit margin and public image than they did about peoples lives.
+
+If they figure out Im violating that NDA, theres not much they can do. They know antagonizing me with a lawsuit would only lead to me telling the media, naming the company and ruining their public image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. As Security Chief, I found that my boss, the Region Security manager, was stealing.
+
+At that time, I thought to keep things in the family; imagine the scandal that, in the security branch of a nationwide mobile phone company, one of the people in charge of security was caught doing what he was supposed to prevent. Naive me.
+
+So I reported directly to the CSO who, after getting a confession, ask the culprit to resign.
+
+After that, he placed his 24yo niece (or something, family related) in the Region management, then, after 2 months fired me.
+
+A year later, I found out that the first boss was indeed the CSO cousin who ordered his niece to fire me in retaliation.
+
+
+
+Wiser me knows now to bring those things directly to HR.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. You know those Jackbox party games? They have a database full of about a hundred jackbox games that were pitched but not used, since rejected games often get featured in later party packs.
+
+Notably, one of those jackbox games is called Poop Cake. Won’t detail how it works in case it does get released, but there is a rejected jackbox game called Poop Cake that exists and is officially documented for potential future use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I have been apart of a focus group program for over 10 years now. Its mostly opinion chat sessions but there were occasional times where I would test or try out some new product that Id have to sign an NDA for.
+
+You remember when HP started that line of mini laptops?
+
+Yup. Beta tested those.
+
+Some other things now on the market Ive tested before release were: Gillettes Fusion, Facebook Dating, Xbox Project X Cloud!
+
+And yes they pay wonderfully.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I signed a NDA with EA games in order to pitch them a game idea that myself and 2 friends had developed. They turned us down due to there being a similar title already being in production. That was 10 years ago and theres still never been a game in even remotely the same vein as the one we pitched. Frustrating to say the least.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The sequel trilogy had a plan. You can even see the narrative coming over the hill for the final stretch in the closing moments of The Last Jedi.
+
+Kylo Ren was supposed to die evil. He was literally supposed to be an embodiment of the antithesis of the hero’s journey. Like if Luke Skywalker was born evil and had to resist the light to become ultimate evil. It would be Rey’s one great failure: she could not save him. It was supposed to be a message to young girls that just because you want to fix someone doesn’t mean you’ll always succeed.
+
+However TPTB (*coughKATHLEENcough*) chickened out when they saw how huge the Reylo fandom was and scrapped their plans for 9 and hired JJ to c**p out whatever the hell Rise of Skywalker was.
+
+I can not wait for the tell all’s to be written about the making of that trilogy.
+
+I have tons more details about what went down too, like Driver only being down for the role if the ending stayed the same and how pissed he was when it changed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Uber was planning to make their own Google Street view for use in the app to better help drivers find riders and to map the world for driverless car technology . But they were going to use Uber drivers to capture the images for the streetview. The plan was to mail out inexpensive GoPro like devices that magnetically attached to the roof of the drivers cars. Each would have SD cards that could be mailed back to Uber. Routes would be generated and the drivers could accept them in the app and get paid. This plan fell through quickly and uber eventually sources this data from third parties and ultimately abandoned their in-house driverless car ambitions.
+
+Also Microsoft developed a really cool backpack mounted camera that was going to be used for something like Google Street view. The plan was to take it into pedestrian only areas so you could get imagery indoors like malls and in walking spots. The United States military snatched up the entire project for their own use and that product was never released or even announced to consumers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I got into a super small alpha test of a game in... 2014? It was a new survival game, one of those where you build during the day and try to survive the night, and let me tell you, the game was so, so meh. I played in a small server for about 4 hours and was so bored I just stopped playing for the rest of my access time.
+
+There were all kinds of issues, not with the tech, but just glaring flaws in how the game worked. Some resources were way too abundant, some were really rare, there was practically no music, and the guns were dull. We also completely broke the enemy AI by building a jump pad to get up to a floating platform that required using your air control, so the zombies couldnt get up to us.
+
+The game was Fortnite. The feedback on that alpha we played was so bad they basically took the whole game back into development until the version you know came out. What we were playing was a pretty early version of Save the World, except it was more like a typical Survival game. No BR back then, as you might expect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Your leather car interior is likely to shrink in the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I dont actually know if it expires, but Im not in the service anymore, so i dont care.
+
+At the end of Navy basic training in the u.s., you go through an exercise called Battle Stations. Yes, they actually make you sign an NDA for just this.
+
+Its a 12 hour simulation of life on a ship, in a huge mockup made by universal studios, which tells you how realistic it actually is. Among other things, the p-ways are at least twice as wide as reality.
+
+It takes place overnight, so youre running on zero sleep. You get split into groups of maybe six or eight people, with a supervisor who just just battle stations at the training camp. You do a bunch of scripted scenarios throughout the night, starting with loading cargo and casting off, then doing some basic tasks like watch monitoring. I remember one took place is the water purification plant, and we needed serious hearing protection.
+
+Partway through the ship comes under attack by some enemy, and the scenarios become damage control oriented. Fighting a fire, crawling through wreckage to find injured people and getting them to safety, moving ammo racks to a different compartment to avoid flooding.
+
+The scenarios themselves were fun, but the real challenge is staying awake. Between each one you go back to a shared compartment and wait around for every other team to finish their thing. No sleeping, no sitting, no leaning. Boring as shit when youre not actually doing something.
+
+After it ends you get to exchange your Recruit cap for a Navy one. They also play an inspirational video which happened to have one of our RDCs in it. Then basic training is over, except youre still living there for at least a couple days of nothing until you can leave for A school. Also, no sleep until the next night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Your phone company doesnt always comply with FCC regulations involving the recording of phone calls. A lot more may be recorded and insecurely stored than you realize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. dont buy fine art except from a real dealer in a working gallery or a specific specialist, never just anywhere... the carribean/cruise industry is so full of vanity galleieries, its a scandal waiting to happen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. We used the B2 in the gulf war in 1990, 6 months after its official first flight and continued using it under different call signs throughout the early and mid 90s. We did night mid air refueling missions with it to keep people from seeing it in use. It wouldnt officially enter service until 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. They tried bringing WoW to Xbox.
+
+Spoiler, didnt f****n happen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Jimmy Johns puts soy sauce in their tuna.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214297.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -565,173 +705,63 @@ Last updated: 07/15/2022-01:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">30 People Share Secrets Now That Their NDAs Have Expired</a><br>
+## <a href="#linky11" id="linky10">28 People Who Are Impressively Stupid  </a><br>
 
-<span style="font-size:4em">1. 1) YouTube is the most unethical platform on earth.
-If you are a high value account, most of the policies of YouTube wont touch you. For example, there was a Brazilian kid twerking, with his small sister that was dressed very provocatively. Normally YouTube would take down this video for minor sexualisation but because the account had some millions of followers, not only it remained live on the platform, but also had a safety net, in case a stupid agent tried to take it down.
-
-2) everyday there are thousands upon thousands of very horrible videos being uploaded on YouTube, and its up to a human being to go through them and take an action.
-As you can understand, a lot of agents develop depression, anxiety, PTSD, and other mental problems due to the nature of the videos they are watching</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214274.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. To her credit, this guy does go by the name Fake Drake and has made a name for himself as the most popular Drake imposter. So, take that with a grain of salt. Still, embarrassing. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I walked in on my boss having sex with another employee on the table in his office. He was married and it was a family owned business so his boss was also his mom. After he offered to promote me and give me a few raises to be quiet, his mom ended up offering me money to leave and not say anything. I took it and left. All my friends think I just found a better job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214273.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. He said, Michael Damien Nut cookies. Is this a joke? We hope so. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I work for a moving company and we work with a women’s shelter often enough. Typically women escaping abuse will have the shelter hire us to go in and get their belongings (sometimes with police company) and all the movers sign NDA’s to protect the women from letting their new addresses slip. I can’t disclose anything that interesting but I want to take the opportunity to say, those people who jump at the slightest sound, the littlest surprise, be nice to them because you don’t know whether they are just jumpy naturally or if there’s a reason they are like that now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214267.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. How about you dont put your finger in tight places, to begin with? Also, try soap or something slimy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. There are powerline transformers that predate ww1 still up and running in the US and the utility companies arent a 100% sure where most of them are. They only find out when one finally dies.
-
-Someone over 100 years ago put up a transform that powered telegrams all the way to Twitter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214269.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Now, this is definitely a joke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Amazon is probably here but Im saying it anyway.
-
-The reason why people p**s in bottles is that they are fighting against TOT(time off task). If in a week you accumulate a combined total of 15 minutes of non working, not break away from your station you a reprimanded or more likely fired. So walking away to pee, TOT. Slightly late to station due to high foot traffic, ToT. Stop at you station for a breather because its hot, your tired or sick, TOT.
-
-The above plus the strict metrics and constant oversight of the lead staff makes working there feel like you are a machine.
-
-It reminds me of film representations from the twenties about the the sadness of the futures poor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214270.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This man has been the poster child for dumb decisions for almost five years now. We wish we knew how this one ended. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214260.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I worked for a mall pretzel stand about 25 years ago and had to sign an NDA about the secret pretzel ingredient. It was baking soda.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214271.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Lmao, I think Ill pass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Tesla has failed six attempts to get their cars licensed for racing by the FIA. I cant say anything past that, but if you feel like checking the registry youll find theyre still not licensed.
-
-I didnt enjoy the battery melting under me when we pushed the car to the limits. Not did I enjoy the threat of a lawsuit if I didnt change my report. f**k Tesla
-
-Its a real shame though because I love electric cars. Theyre 100% the future of motorsports and I really wish there were more batteries capable of emptying at the rate needed without breaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214272.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Bro, he just said. It means, I dont even know. Some people are beyond help. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I signed an NDA for a prominent American show where they take a certain type of business on the brink of failure and transform it to save the business. When the producers of the show found out my wife and I both worked there, they tried to fish through our relationship for tv drama. When they found out we have a solid relationship, they tried to convince us to fake our drama with scripted conflict.
-
-Long story short, we got fed up and quit during shooting. We were cut from the show. Oh well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214275.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Used to work in a warehouse where we made feminine hygiene products. The pads came out of one machine into several different branded boxes. Both the nickel gas station pads and the 10 dollar a box pads.
-
-Also we had one product of pads where we imported them from china, then repackaged them into our own boxes. I didnt have a problem with that. The problem I had was the box had an emblem saying made in America
-
-Wouldve been ok if it said assembled in America. But no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214276.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. When I was tech before I was a vet, I worked in a lab that mostly tested animal meds on animals. Flea products, heartworm meds, etc.
-
-We had one product in testing for human medication though, which was an injection that supposedly was going to shorten the need to wear retainers after having braces.
-
-Of course, to test that, we needed animals that had worn braces long enough to replicate the changes that happen to human mouths that have had braces.
-
-What Im getting at, was that some days it was my job to brush the mouths of like 50 beagles that all had braces and make sure the wires and brackets were in place and not causing any trauma to the lips or gingiva.
-
-The image of dozens of goofy little dogs clack clack clacking around me in circles around the lab super excited to see me, doing their ridiculous beagle howls and flashing their braces as they did so will never leave my brain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214277.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Used to be an au pair for a famous couples children. NDA was there to protect the family - I wasnt allowed to take pictures of the kids on any of my devices, the photos i did take were not allowed to include their faces and the rest were just general rules about not sharing their private information. Even to this day i wont sell that information even though the NDA has expired, probably some of the nicest people i have ever worked for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214278.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A recently hired employee trapped a secretary in a bathroom at the company Christmas party and r@ped her. He was caught in the act, sentenced, and will serve a long jail term. All the employees who knew about the details were forced to sign strong NDA and ordered **not to talk** to any other employees. No one was told why the guy didnt show up for work ever again. The victim was offered a generous payout and never came back to work. HR put out a story that she was taking time off for personal reasons and her coworkers were never told why. Everything was hushed up as much as it could be. The company changed from open bar to drink tickets for all future company events.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214279.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Not sure if I’m no longer bound or not or how common knowledge it is, but living in NYC I was paid to be a fan at a major red carpet movie premiere for a popular film franchise. 100% of the people there were paid to act excited as famous actors and a VERY famous director walked out and said hello and did interviews. We were under strict instructions not to let anyone know we were hired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214280.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. From a secondary source, but trustworthy
-
-John Travolta is gay. His partner was sick in the hospital, he came to visit him many times, whole floor was emptied and everyone in the floor had to sign an nda
-
-But yeah, those rumors are true. Weird how they started way back then</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214291.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Not my own but from a family friend.
-
-Coca Cola and Pepsi regularily settle disputes behind closed doors on things like employees trying to quit and join the competitor. Their employment contracts have entire clauses stating you cannot be employed by the competing companies even after you quit so to protect company intel and confidentiality.
-
-For example, a Coca Cola employee feels like he is being mistreated by the company so he quits and tries to work for Pepsi. So Pepsis legal team will inform Coca Cola as soon as they find out and Coca Cola will sue the guy for breach of contract and in return Pepsi will pay them. This is done so Pepsi and Coca Cola dont sue each others into bankrupcy for breach of laws regarding industrial competition and market regulations.
-
-Basically a peace treaty of sorts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214281.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214247.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. My NDA is still in effect, but Ive covered my liability. A few years, with a previous insurance company I worked for, we fired an employee who had a nasty personality (imagine a toxic gamer working in a call center and that would be this guy).
-
-He had been the son (or grandson) of one of the board members so he was untouchable. When his relative on the board got voted out, it was finally time for this little troll to be fired.
-
-His supervisor took him to a conference room to let him know he was fired and he was escorted from the building by security. As the HR manager, I was tasked with clearing his desk and separating his property from company property.
-
-That was when I found a heavily used 5 X 8 notepad on his desk that had a list of names. Next to each name was a mailing addresses and details about how this ex-employee planned to harm these people. I did some digging and found they were all current or former clients of the company and that they all had filed complaints against this monster.
-
-It was a hit list.
-
-I notified the board **AFTER** I notified the police. The s**t was arrested on unrelated drug and assault charges. The prosecutor now had to consider charging this guy for his hit list. Since she couldnt convince a judge there was a strong enough case, the prosecutor decided to empanel a grand jury.
-
-Since I was the individual who found the notepad, I was subpoenaed to confirm its provenance. Considering any other employee could have walked by and deposited this list on this a*****es desk, the grand jury decided to not move ahead to a trial. For the drug and assault charges, the former employee was sentenced to 16 years in prison.
-
-As a witness, I wasnt issued a gag order regarding the grand jury investigation. However, my work did order me to sign an NDA to protect the clients who were on that hit list (it was really just to cover up that they were in any danger). I signed and then quit as soon as I got a job offer with another company. Those bastards on the board cared more about their profit margin and public image than they did about peoples lives.
-
-If they figure out Im violating that NDA, theres not much they can do. They know antagonizing me with a lawsuit would only lead to me telling the media, naming the company and ruining their public image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214282.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. As Security Chief, I found that my boss, the Region Security manager, was stealing.
-
-At that time, I thought to keep things in the family; imagine the scandal that, in the security branch of a nationwide mobile phone company, one of the people in charge of security was caught doing what he was supposed to prevent. Naive me.
-
-So I reported directly to the CSO who, after getting a confession, ask the culprit to resign.
-
-After that, he placed his 24yo niece (or something, family related) in the Region management, then, after 2 months fired me.
-
-A year later, I found out that the first boss was indeed the CSO cousin who ordered his niece to fire me in retaliation.
-
-
-
-Wiser me knows now to bring those things directly to HR.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214283.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214249.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. You know those Jackbox party games? They have a database full of about a hundred jackbox games that were pitched but not used, since rejected games often get featured in later party packs.
-
-Notably, one of those jackbox games is called Poop Cake. Won’t detail how it works in case it does get released, but there is a rejected jackbox game called Poop Cake that exists and is officially documented for potential future use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214285.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. I have been apart of a focus group program for over 10 years now. Its mostly opinion chat sessions but there were occasional times where I would test or try out some new product that Id have to sign an NDA for.
-
-You remember when HP started that line of mini laptops?
-
-Yup. Beta tested those.
-
-Some other things now on the market Ive tested before release were: Gillettes Fusion, Facebook Dating, Xbox Project X Cloud!
-
-And yes they pay wonderfully.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214286.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. I signed a NDA with EA games in order to pitch them a game idea that myself and 2 friends had developed. They turned us down due to there being a similar title already being in production. That was 10 years ago and theres still never been a game in even remotely the same vein as the one we pitched. Frustrating to say the least.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214287.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. The sequel trilogy had a plan. You can even see the narrative coming over the hill for the final stretch in the closing moments of The Last Jedi.
-
-Kylo Ren was supposed to die evil. He was literally supposed to be an embodiment of the antithesis of the hero’s journey. Like if Luke Skywalker was born evil and had to resist the light to become ultimate evil. It would be Rey’s one great failure: she could not save him. It was supposed to be a message to young girls that just because you want to fix someone doesn’t mean you’ll always succeed.
-
-However TPTB (*coughKATHLEENcough*) chickened out when they saw how huge the Reylo fandom was and scrapped their plans for 9 and hired JJ to c**p out whatever the hell Rise of Skywalker was.
-
-I can not wait for the tell all’s to be written about the making of that trilogy.
-
-I have tons more details about what went down too, like Driver only being down for the role if the ending stayed the same and how pissed he was when it changed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214288.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214253.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Uber was planning to make their own Google Street view for use in the app to better help drivers find riders and to map the world for driverless car technology . But they were going to use Uber drivers to capture the images for the streetview. The plan was to mail out inexpensive GoPro like devices that magnetically attached to the roof of the drivers cars. Each would have SD cards that could be mailed back to Uber. Routes would be generated and the drivers could accept them in the app and get paid. This plan fell through quickly and uber eventually sources this data from third parties and ultimately abandoned their in-house driverless car ambitions.
-
-Also Microsoft developed a really cool backpack mounted camera that was going to be used for something like Google Street view. The plan was to take it into pedestrian only areas so you could get imagery indoors like malls and in walking spots. The United States military snatched up the entire project for their own use and that product was never released or even announced to consumers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214289.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. I got into a super small alpha test of a game in... 2014? It was a new survival game, one of those where you build during the day and try to survive the night, and let me tell you, the game was so, so meh. I played in a small server for about 4 hours and was so bored I just stopped playing for the rest of my access time.
-
-There were all kinds of issues, not with the tech, but just glaring flaws in how the game worked. Some resources were way too abundant, some were really rare, there was practically no music, and the guns were dull. We also completely broke the enemy AI by building a jump pad to get up to a floating platform that required using your air control, so the zombies couldnt get up to us.
-
-The game was Fortnite. The feedback on that alpha we played was so bad they basically took the whole game back into development until the version you know came out. What we were playing was a pretty early version of Save the World, except it was more like a typical Survival game. No BR back then, as you might expect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214290.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Your leather car interior is likely to shrink in the sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214292.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214257.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. I dont actually know if it expires, but Im not in the service anymore, so i dont care.
-
-At the end of Navy basic training in the u.s., you go through an exercise called Battle Stations. Yes, they actually make you sign an NDA for just this.
-
-Its a 12 hour simulation of life on a ship, in a huge mockup made by universal studios, which tells you how realistic it actually is. Among other things, the p-ways are at least twice as wide as reality.
-
-It takes place overnight, so youre running on zero sleep. You get split into groups of maybe six or eight people, with a supervisor who just just battle stations at the training camp. You do a bunch of scripted scenarios throughout the night, starting with loading cargo and casting off, then doing some basic tasks like watch monitoring. I remember one took place is the water purification plant, and we needed serious hearing protection.
-
-Partway through the ship comes under attack by some enemy, and the scenarios become damage control oriented. Fighting a fire, crawling through wreckage to find injured people and getting them to safety, moving ammo racks to a different compartment to avoid flooding.
-
-The scenarios themselves were fun, but the real challenge is staying awake. Between each one you go back to a shared compartment and wait around for every other team to finish their thing. No sleeping, no sitting, no leaning. Boring as shit when youre not actually doing something.
-
-After it ends you get to exchange your Recruit cap for a Navy one. They also play an inspirational video which happened to have one of our RDCs in it. Then basic training is over, except youre still living there for at least a couple days of nothing until you can leave for A school. Also, no sleep until the next night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214293.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Your phone company doesnt always comply with FCC regulations involving the recording of phone calls. A lot more may be recorded and insecurely stored than you realize.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214284.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214259.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. dont buy fine art except from a real dealer in a working gallery or a specific specialist, never just anywhere... the carribean/cruise industry is so full of vanity galleieries, its a scandal waiting to happen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214294.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214261.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. We used the B2 in the gulf war in 1990, 6 months after its official first flight and continued using it under different call signs throughout the early and mid 90s. We did night mid air refueling missions with it to keep people from seeing it in use. It wouldnt officially enter service until 1997.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. They tried bringing WoW to Xbox.
-
-Spoiler, didnt f****n happen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Jimmy Johns puts soy sauce in their tuna.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214297.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214262.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -793,91 +823,7 @@ Spoiler, didnt f****n happen.</span><br><img src="https://cdn.ebaumsworld.com/me
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">40 'The Boys' Memes to Wash Down the Temp V</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214500.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Antony Starr has to have the most sinister shark-smile in all of television. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. As cool as the underground KGB laboratory motif is, you gotta admit thats a pretty big facepalm.  A little too big, some could argue. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Im still not sure about what her powers are, exactly. Their sound effect is cool though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214517.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214501.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In case him splattering a person like a literal train in episode one didnt tell you, A-Trains kind of a sh*tty person. But then again, who knows how good youd be when you grew up with literal superpowers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214519.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Fans are pretty upset with some of the choices made in the finale. Clearly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214502.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214505.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214504.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Does The Deep really count as a whole supe? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214523.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214506.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214509.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Getting hit by Soldier Boys stomach-nuke was the best thing that ever happened to me!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214513.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214515.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Starr was also great in a lesser-known show by the name of Banshee if youre interested. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214518.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214521.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214524.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Thats... thats a really good point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214527.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214528.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Maybe Homelander and The Deep have something to chat about when Homelander isnt making him eat his friends. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214529.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214530.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214531.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214532.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214533.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214534.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">37. It is rather interesting that nobody seemed to mind that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214535.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87214537.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/13/023025/87214629/7s5b16cd1ta91.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">20 Wild Facts about the Late Anthony Bourdain</a><br>
+## <a href="#linky13" id="linky12">20 Wild Facts about the Late Anthony Bourdain</a><br>
 
 <span style="font-size:4em">1. Anthony Bourdains show Parts Unknown composed their own music to fit the mood of the scene. - u/dwash714</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200724.jpg" style="width:100%"><br>
 
@@ -918,6 +864,60 @@ Spoiler, didnt f****n happen.</span><br><img src="https://cdn.ebaumsworld.com/me
 <span style="font-size:4em">19. Anthony Bourdain was trapped in Beirut for over a week during the 2006 Israeli-Lebanon War. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200741.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. Anthony Bourdain had a role in the movie adaptation of the game Far Cry. - u/GoodGuyGregsCousin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87200742.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">26 Freaky Pics and Facts to Terrify Your Soul</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. abandoned summer camp closed due to a child drowning in the lake. sound familiar ?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The warning on nuclear waste disposal sites designed to be read hundreds of thousands of years into the future</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. This looks terrifying and claustrophobic to live in</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Rare red sprites found in the sky usually above thunderstorms</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The infamous message in lipstick left on Frances Brown’s flat wall, by The Lipstick Killer in 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Found this symbol under my doormat and I have no idea what it means</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213366.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
