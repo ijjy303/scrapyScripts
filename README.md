@@ -1,155 +1,67 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/16/2022-10:47:18
+Last updated: 07/16/2022-11:47:18
 <br>
-## <a href="#linky2" id="linky1">Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky2" id="linky1">Dude Cheats on GF after She Saves His Life</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">26 Incredibly Unique Buildings From Around the World </a><br>
+## <a href="#linky3" id="linky2">Funny and Fresh Memes to Kickstart Your Weekend </a><br>
 
-<span style="font-size:4em">1. Winning Design For Shenzhens Natural History Museum</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123737/87216289/epic-abandoned-houses17.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Are you ever going to get tired of upside-down Australian jokes, because we are sick and tired of upside-down Australian jokes </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Office In The Woods Near Madrid, Spain </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123710/87216284/epic-abandoned-houses4.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Its that the truth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201742.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Fallen Star</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123714/87216285/epic-abandoned-houses11.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Coming soon to a downtown near you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Colins Barn, Chedglow, England - More Details In Comments</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123732/87216288/epic-abandoned-houses19.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201745.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Mogno, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123721/87216286/epic-abandoned-houses5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201746.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Hang Ngas Crazy House In Dalat, Vietnam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123704/87216283/epic-abandoned-houses13.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Lile Fllottante (Abidjan, Ivory Coast)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123653/87216281/epic-abandoned-houses3.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Now this one hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Only Surviving Photo Of A Hoarder House Demolished Around 2007 In Nagoya, Japan</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123659/87216282/epic-abandoned-houses9.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The Iron Fountain - Gyumri, Armenia</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123726/87216287/epic-abandoned-houses2.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I think this should suffice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Former Us Listening Station In Berlin, Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123647/87216280/epic-abandoned-houses8.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Container House In The Desert</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123744/87216290/epic-abandoned-houses6.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Flintstone House, Declared Public Nuisance, Now Allowed To Keep Colorful</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123748/87216291/epic-abandoned-houses16.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. What team are you? Jk we know your team feet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Inntel Hotels Amsterdam Zaandam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123755/87216292/epic-abandoned-houses23.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123800/87216293/epic-abandoned-houses21.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Which side are you on? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Peles Castle, Romania</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123807/87216294/epic-abandoned-houses20.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. France Built 1347</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123811/87216295/epic-abandoned-houses25.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Temppeliaukion Church, Helsinki, Finland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123818/87216296/epic-abandoned-houses26.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Hole House Or Villa Vals, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123824/87216297/epic-abandoned-houses18.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Now, this is what a saleswoman looks like. Ladies, if youre in sales give this trick a go, you never know what could happen. All of a sudden, I really need a pen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. This Single-Family House In Bayview.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123829/87216298/epic-abandoned-houses10.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Unzipped Building. Milano, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123836/87216299/epic-abandoned-houses15.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Energy Organic House Design With Wild Slate Roof In Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123840/87216300/epic-abandoned-houses7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hallgrímskirkja: Lutheran Church In Reykjavík, Iceland. Commissioned In 1937 And Completed In 1986.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123848/87216301/epic-abandoned-houses14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sanaa, Yemen</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123852/87216302/epic-abandoned-houses22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. King Alfreds Tower In England, Built In 1772</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123859/87216303/epic-abandoned-houses1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. This Pub Was Completed In 1765 Was Built On Top Of A Mine Shaft And Over Time It Had Sank On One Side. Getting In Sober Is A Challenge, And Even Harder Getting Out Drunk</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123903/87216304/epic-abandoned-houses12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Alpine Refuge From World War I Located At 2760 Meters, Monte Cristallo, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123910/87216305/epic-abandoned-houses24.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201740.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">20 Modern Trends That Need to End ASAP</a><br>
+## <a href="#linky4" id="linky3">20 Modern Trends That Need to End ASAP</a><br>
 
 <span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
 
@@ -193,105 +105,91 @@ Last updated: 07/16/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">30 Disturbing Facts About The Ocean</a><br>
+## <a href="#linky5" id="linky4">20 Lesser-Known Facts About Dave Chappelle</a><br>
 
-<span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe.
-It’s from fishing nets and fishing gear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215169.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. He turned down the part (Bubba in Forrest Gump.) because he was concerned that the character was demeaning and the movie would bomb. He later parodied the film in the 1997 short Bowl of Pork. - u/thisCantBeBad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Only 5% of the entire ocean in the world has been discovered, that means that there is still 95% unmapped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215170.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. comedy central office assistant who received the call that dave chappelle had left chappelles show was john mulaney - u/michaelbaysucks96</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. When a whale dies, it creates a whole new ecosystem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215168.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Joes Apartment featured an all-star cast of voices for the roaches including Dave Chappelle, Billy West, and Tim Blake Nelson - u/InkIcan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hot tub of despair is a lake under the ocean, in the gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215171.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Princes Breakfast Can Wait album cover features Dave Chappelle impersonating Prince. Chappelle said he had to appreciate the way his joke was co-opted. Thats a Prince judo move right there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I’m a scuba diver and one thing that really scared me when I first started off diving, you hear SO MUCH more underwater then you ever will above on the surface, I’m not even talking about like the shifting or just the water itself moving, your hear things like fish clicking and other things like that, cuz underwater sounds move and travel a lot more so you hear a lot more and much quicker, was pretty out of nowhere when I first went under</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215172.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. While performing a stand-up performance in June 2004, Dave Chappelle walked off the stage after berating his audience for constantly shouting Im Rick James, bitch! After a few minutes, Chappelle returned and resumed by saying, The show is ruining my life, referring to the Chappelles Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215173.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In season 4, episode 20 of Home Improvement, Dave Chappelle and Jim Breuer played Tool Time audience members three years before starring in Half Baked together. - u/lurkerturnedposter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The largest biomass migration takes place every night when deep sea animals come up to feed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215174.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Dave Chappelle, Janet Jackson, and Sinead OConnor are all converts to Islam. - u/Surly_Asian_Man</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood.
-
-Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215175.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. the Chappelle Show sketch of Clayton Bigsby was based on Dave Chappelle’s grandfather, who was mixed-race and blind - u/randy88moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention.
-
-I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215176.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Dane Cook has Laugh Factorys endurance record of performing for 7 hours straight, beating previous record held by Dave Chappelle by 38 minutes. - u/frobie2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source.
-
-The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215177.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Dave Chappelle converted to Islam in 1998. He said, I don’t normally talk about my religion publicly because I don’t want people to associate me and my flaws with this beautiful thing - u/erobhag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Ocean Acidification.
-
-Increasing concentrations of atmospheric carbon dioxide (CO2) lead to higher concentrations of dissolved CO2 in surface seawater. This results in ocean acidification, which may affect the growth of the photosynthetic phytoplankton that form the basis of marine food webs.
-
-So, total marine ecosystem collapse due to greenhouse emissions, the ocean produces more than half of the oxygen on earth, so that doesnt bode well for us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215178.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. cover art for Princes 2013 single Breakfast Can Wait was Dave Chappelle dressed as Purple Rain era Prince holding a plate of pancakes from a 2004 sketch. - u/Giderah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. We dont really know whats it in I can say that for thousands of years we drew sea monsters beliving they lived in it. Surprising alot of stuff we found in those pictures were in the ocean. (Giant Squid recently ). Just makes you think what else is actually down there that we dont know about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215180.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Dave Chappelle quit Chappelle’s Show during filming of a sketch about magic pixies that embody stereotypes about races. Chappelle thought the sketch funny, but a white spectator laughed loud and long during taping. He wondered if he’d gone from sending up stereotypes to reinforcing them. - u/ryandmc609</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. There are parts of the ocean which are dead no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215181.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. the 200th episode of Inside the Actors Studio, James Lipton was, for once, in the other chair as the guest who was interviewed. They allowed Lipton to select his interviewer. His choice? Dave Chappelle - u/gjw04</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. There are more viruses in the ocean than there are stars in the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215182.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Dave Chappelle agreed to be in A Star is Born after Bradley Cooper flew to a party hosted by Chappelle in Ohio to ask him to join the cast. Cooper had to persistently bother Chappelle before he agreed to be in the film. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. 94% of the Earths oceans are just pitch black darkness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215183.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Comedian Neal Brennan wrote for the Nickelodeon childrens shows All That and Kenan & Kel before going on to co-create Chappelles Show with Dave Chappelle - u/SorryForYoureLots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The Mauna Kea Volcano in Hawaii is the both the tallest Undersea mountain and the tallest volcano Hawaii. It sits 6000 meters below the surface of the ocean and stands a staggering 4000m above. Giving it an overall height from ocean floor to peak of 10,000m.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215184.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. in 1996 Dave Chappelle was in a spin off from Home Improvement, called Buddies. It premiered on March 5, 1996 and was cancelled on April 3, 1996 after just five episodes. - u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. If you commit suicide by jumping off a ship in deep water you will never be found, happens often enough on cruise ships, in those warm waters youll be nibbled away before you gain buoyancy and return to the surface</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215185.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Trey Parker, co-creator of South Park, threatened to pull a Dave Chappelle by showing Comedy Centrals head of network a plane ticket to Africa because one of their episodes were censored against their will - u/komocode</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Point Nemo is the most isolated place in the world. Its in the middle of the South Pacific gyre, which is a massive rotating current that basically keeps any nutrients rich water from ever getting in. So there is no sea life anywhere to be found except for a few crabs and bacteria that live near some thermal vents on the ocean floor. Its so far away from any land that if you sailed there the closest people would be on the international space station. This is the location HP Lovecraft was describing when he provided the location of R’Lyeh where Cthulu and the other old ones love, although Lovecrafts coordinates were slightly off.
-
-And in 1997 the loudest unidentified underwater sound ever recorded, known as the bloop, originated near there. It was loud enough that it was recorded from multiple sensors 5000 miles apart and lasted for over a minute.
-
-The prevailing theory is that it was ice cracking off the south pole but we dont actually know what caused it for sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215186.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Comedian and filmmaker Mel Brooks not only discovered Dave Chappelle, he also discovered Gene Wilder (The original Willy Wonka). He also served as a Combat Engineer in the Battle of the Bulge, defusing explosives, and set up his own loud speakers and sang to enemy propaganda loudspeakers. - u/PM_me_Venn_diagrams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215187.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Dave Chappelles infamous Prince Plays Basketball skit was 100% accurate and really happened... - u/doogywassa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b***h who couldnt care less whether I live or die.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215167.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">22. The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215188.jpg" style="width:100%"><br>
+## <a href="#linky6" id="linky5">20 Extremely Disturbing Facts About The Kardashians</a><br>
 
-<span style="font-size:4em">23. The fact that scientists think we have discovered more of outer space than we have of the oceans just scares me considering we don’t even know how big our universe is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215189.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Dolphins will r*pe almost any living thing, including humans.
-
-They do thus so much to the point where sharks are scared to go near them.
-
-Also Whales dont die of old age
-
-Rather, as they become older, their muscles become weaker causing them to not be able to swim and, as a result, drown, meaning that its almost impossible for a whale to die of old age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215190.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Each ocean is a mass gravesite and we all go swimming in it and some of us end up in it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215191.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215192.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Its well known but I feel like people just disregard how much stuff weve lost in the ocean.
-
-Like important pieces of history, military ships, planes, PEOPLE.
-
-And its not just recent history? Like we still are finding ancient ships and mechanical things, skeletal remains and so on.
-
-
-That and all the statues and cities and things weve found sunk is incredibly terrifying. Because we just didnt know they were there?
-
-Like not including the things we havent explored in the ocean thats native to the ocean, we have so much stuff to find in there.
-
-Like we still *technically* dont know what happened to Amelia Earhart. We think we found what mightve been her remains on an island but we dont know if that was her or not. And wheres her plane?
-
-Not to mention that while we have no clue how common it is people dump bodies in the ocean.
-
-Like. The ocean is a massive graveyard for bodies, vehicles and history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215193.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. 90%of the sea-biomass is located in the deepsea, and 60% of the deep sea biomass is only lantern fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215194.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Blue Whales cum 20 liters of sperm each time they ejaculate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215195.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move.
-
-He specifically mentioned how he had to get used to having large things bump into him in the pitch black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215196.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -403,51 +301,247 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">WikiHow Lifehack Memes to Get through Another Day</a><br>
+## <a href="#linky8" id="linky7">30 Disturbing Facts About The Ocean</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
+<span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033724/87216601/alarm.png" style="width:100%"><br>
+<span style="font-size:4em">2. Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe.
+It’s from fishing nets and fishing gear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033730/87216602/bird.png" style="width:100%"><br>
+<span style="font-size:4em">3. Only 5% of the entire ocean in the world has been discovered, that means that there is still 95% unmapped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033737/87216603/break.png" style="width:100%"><br>
+<span style="font-size:4em">4. When a whale dies, it creates a whole new ecosystem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033748/87216605/dog.png" style="width:100%"><br>
+<span style="font-size:4em">5. Hot tub of despair is a lake under the ocean, in the gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033753/87216606/friend.png" style="width:100%"><br>
+<span style="font-size:4em">6. I’m a scuba diver and one thing that really scared me when I first started off diving, you hear SO MUCH more underwater then you ever will above on the surface, I’m not even talking about like the shifting or just the water itself moving, your hear things like fish clicking and other things like that, cuz underwater sounds move and travel a lot more so you hear a lot more and much quicker, was pretty out of nowhere when I first went under</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033741/87216604/cream.png" style="width:100%"><br>
+<span style="font-size:4em">7. Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033759/87216607/gf.png" style="width:100%"><br>
+<span style="font-size:4em">8. The largest biomass migration takes place every night when deep sea animals come up to feed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033804/87216608/hide.png" style="width:100%"><br>
+<span style="font-size:4em">9. There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood.
+
+Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033811/87216609/hug.png" style="width:100%"><br>
+<span style="font-size:4em">10. I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention.
+
+I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033816/87216610/karen.png" style="width:100%"><br>
+<span style="font-size:4em">11. The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source.
+
+The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033828/87216611/kid.png" style="width:100%"><br>
+<span style="font-size:4em">12. Ocean Acidification.
+
+Increasing concentrations of atmospheric carbon dioxide (CO2) lead to higher concentrations of dissolved CO2 in surface seawater. This results in ocean acidification, which may affect the growth of the photosynthetic phytoplankton that form the basis of marine food webs.
+
+So, total marine ecosystem collapse due to greenhouse emissions, the ocean produces more than half of the oxygen on earth, so that doesnt bode well for us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033831/87216612/pups.png" style="width:100%"><br>
+<span style="font-size:4em">13. We dont really know whats it in I can say that for thousands of years we drew sea monsters beliving they lived in it. Surprising alot of stuff we found in those pictures were in the ocean. (Giant Squid recently ). Just makes you think what else is actually down there that we dont know about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033839/87216613/summon.png" style="width:100%"><br>
+<span style="font-size:4em">14. There are parts of the ocean which are dead no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033842/87216614/tax.png" style="width:100%"><br>
+<span style="font-size:4em">15. There are more viruses in the ocean than there are stars in the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033854/87216616/torch.png" style="width:100%"><br>
+<span style="font-size:4em">16. 94% of the Earths oceans are just pitch black darkness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033852/87216615/tie.png" style="width:100%"><br>
+<span style="font-size:4em">17. The Mauna Kea Volcano in Hawaii is the both the tallest Undersea mountain and the tallest volcano Hawaii. It sits 6000 meters below the surface of the ocean and stands a staggering 4000m above. Giving it an overall height from ocean floor to peak of 10,000m.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033904/87216617/upvote.png" style="width:100%"><br>
+<span style="font-size:4em">18. If you commit suicide by jumping off a ship in deep water you will never be found, happens often enough on cruise ships, in those warm waters youll be nibbled away before you gain buoyancy and return to the surface</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
+<span style="font-size:4em">19. Point Nemo is the most isolated place in the world. Its in the middle of the South Pacific gyre, which is a massive rotating current that basically keeps any nutrients rich water from ever getting in. So there is no sea life anywhere to be found except for a few crabs and bacteria that live near some thermal vents on the ocean floor. Its so far away from any land that if you sailed there the closest people would be on the international space station. This is the location HP Lovecraft was describing when he provided the location of R’Lyeh where Cthulu and the other old ones love, although Lovecrafts coordinates were slightly off.
+
+And in 1997 the loudest unidentified underwater sound ever recorded, known as the bloop, originated near there. It was loud enough that it was recorded from multiple sensors 5000 miles apart and lasted for over a minute.
+
+The prevailing theory is that it was ice cracking off the south pole but we dont actually know what caused it for sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
+<span style="font-size:4em">20. When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b***h who couldnt care less whether I live or die.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The fact that scientists think we have discovered more of outer space than we have of the oceans just scares me considering we don’t even know how big our universe is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Dolphins will r*pe almost any living thing, including humans.
+
+They do thus so much to the point where sharks are scared to go near them.
+
+Also Whales dont die of old age
+
+Rather, as they become older, their muscles become weaker causing them to not be able to swim and, as a result, drown, meaning that its almost impossible for a whale to die of old age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Each ocean is a mass gravesite and we all go swimming in it and some of us end up in it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Its well known but I feel like people just disregard how much stuff weve lost in the ocean.
+
+Like important pieces of history, military ships, planes, PEOPLE.
+
+And its not just recent history? Like we still are finding ancient ships and mechanical things, skeletal remains and so on.
+
+
+That and all the statues and cities and things weve found sunk is incredibly terrifying. Because we just didnt know they were there?
+
+Like not including the things we havent explored in the ocean thats native to the ocean, we have so much stuff to find in there.
+
+Like we still *technically* dont know what happened to Amelia Earhart. We think we found what mightve been her remains on an island but we dont know if that was her or not. And wheres her plane?
+
+Not to mention that while we have no clue how common it is people dump bodies in the ocean.
+
+Like. The ocean is a massive graveyard for bodies, vehicles and history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. 90%of the sea-biomass is located in the deepsea, and 60% of the deep sea biomass is only lantern fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Blue Whales cum 20 liters of sperm each time they ejaculate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move.
+
+He specifically mentioned how he had to get used to having large things bump into him in the pitch black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215196.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">23 Lowbrow Memes for Dirty Minds</a><br>
+## <a href="#linky9" id="linky8">Woman’s Horror Story Literally a Life Hack on How to Survive</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115735/87216215/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115746/87216217/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115739/87216216/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115724/87216213/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115713/87216212/five.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115729/87216214/final.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">26 Incredibly Unique Buildings From Around the World </a><br>
+
+<span style="font-size:4em">1. Winning Design For Shenzhens Natural History Museum</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123737/87216289/epic-abandoned-houses17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Office In The Woods Near Madrid, Spain </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123710/87216284/epic-abandoned-houses4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Fallen Star</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123714/87216285/epic-abandoned-houses11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Colins Barn, Chedglow, England - More Details In Comments</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123732/87216288/epic-abandoned-houses19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Mogno, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123721/87216286/epic-abandoned-houses5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Hang Ngas Crazy House In Dalat, Vietnam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123704/87216283/epic-abandoned-houses13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lile Fllottante (Abidjan, Ivory Coast)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123653/87216281/epic-abandoned-houses3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Only Surviving Photo Of A Hoarder House Demolished Around 2007 In Nagoya, Japan</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123659/87216282/epic-abandoned-houses9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Iron Fountain - Gyumri, Armenia</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123726/87216287/epic-abandoned-houses2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Former Us Listening Station In Berlin, Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123647/87216280/epic-abandoned-houses8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Container House In The Desert</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123744/87216290/epic-abandoned-houses6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Flintstone House, Declared Public Nuisance, Now Allowed To Keep Colorful</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123748/87216291/epic-abandoned-houses16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Inntel Hotels Amsterdam Zaandam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123755/87216292/epic-abandoned-houses23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123800/87216293/epic-abandoned-houses21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Peles Castle, Romania</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123807/87216294/epic-abandoned-houses20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. France Built 1347</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123811/87216295/epic-abandoned-houses25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Temppeliaukion Church, Helsinki, Finland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123818/87216296/epic-abandoned-houses26.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hole House Or Villa Vals, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123824/87216297/epic-abandoned-houses18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. This Single-Family House In Bayview.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123829/87216298/epic-abandoned-houses10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Unzipped Building. Milano, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123836/87216299/epic-abandoned-houses15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Energy Organic House Design With Wild Slate Roof In Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123840/87216300/epic-abandoned-houses7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hallgrímskirkja: Lutheran Church In Reykjavík, Iceland. Commissioned In 1937 And Completed In 1986.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123848/87216301/epic-abandoned-houses14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sanaa, Yemen</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123852/87216302/epic-abandoned-houses22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. King Alfreds Tower In England, Built In 1772</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123859/87216303/epic-abandoned-houses1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. This Pub Was Completed In 1765 Was Built On Top Of A Mine Shaft And Over Time It Had Sank On One Side. Getting In Sober Is A Challenge, And Even Harder Getting Out Drunk</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123903/87216304/epic-abandoned-houses12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Alpine Refuge From World War I Located At 2760 Meters, Monte Cristallo, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123910/87216305/epic-abandoned-houses24.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">23 Lowbrow Memes for Dirty Minds</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114846/87216201/87213840.jpg" style="width:100%"><br>
 
@@ -497,23 +591,125 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Woman’s Horror Story Literally a Life Hack on How to Survive</a><br>
+## <a href="#linky13" id="linky12">WikiHow Lifehack Memes to Get through Another Day</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115735/87216215/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115746/87216217/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033724/87216601/alarm.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115739/87216216/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033730/87216602/bird.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115724/87216213/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033737/87216603/break.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115713/87216212/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033748/87216605/dog.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115729/87216214/final.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033753/87216606/friend.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033741/87216604/cream.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033759/87216607/gf.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033804/87216608/hide.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033811/87216609/hug.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033816/87216610/karen.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033828/87216611/kid.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033831/87216612/pups.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033839/87216613/summon.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033842/87216614/tax.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033854/87216616/torch.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033852/87216615/tie.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033904/87216617/upvote.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">24 Depressing Facts We Finally Made Peace With</a><br>
+## <a href="#linky14" id="linky13">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">22 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">24 Depressing Facts We Finally Made Peace With</a><br>
 
 <span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
 
@@ -562,204 +758,6 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 <span style="font-size:4em">23. That at the end of the day, the only one I can rely on is myself. -u/tonio0317</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201478.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">24. A friendship you thought would last forever can end in an instant. -u/Febreze4200</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201479.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">Dude Cheats on GF after She Saves His Life</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">22 Americana Pics That Scream ‘Freedom'</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042129/87215443/boat.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042140/87215444/bike.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042149/87215445/bud.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042152/87215446/bong.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042201/87215447/car.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042206/87215448/cool.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042242/87215453/gun.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042211/87215449/dog.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042220/87215450/dudes.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042225/87215451/fish.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042253/87215455/kids.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042232/87215452/flag.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042128/87215442/babes.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042244/87215454/hunt.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042334/87215462/three.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042304/87215457/paint.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042311/87215458/pool.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042317/87215459/skates.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042323/87215460/ski.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042259/87215456/milf.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042329/87215461/surf.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042340/87215463/wed.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">22 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">20 Extremely Disturbing Facts About The Kardashians</a><br>
-
-<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">20 Lesser-Known Facts About Dave Chappelle</a><br>
-
-<span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. He turned down the part (Bubba in Forrest Gump.) because he was concerned that the character was demeaning and the movie would bomb. He later parodied the film in the 1997 short Bowl of Pork. - u/thisCantBeBad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. comedy central office assistant who received the call that dave chappelle had left chappelles show was john mulaney - u/michaelbaysucks96</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Joes Apartment featured an all-star cast of voices for the roaches including Dave Chappelle, Billy West, and Tim Blake Nelson - u/InkIcan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Princes Breakfast Can Wait album cover features Dave Chappelle impersonating Prince. Chappelle said he had to appreciate the way his joke was co-opted. Thats a Prince judo move right there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. While performing a stand-up performance in June 2004, Dave Chappelle walked off the stage after berating his audience for constantly shouting Im Rick James, bitch! After a few minutes, Chappelle returned and resumed by saying, The show is ruining my life, referring to the Chappelles Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In season 4, episode 20 of Home Improvement, Dave Chappelle and Jim Breuer played Tool Time audience members three years before starring in Half Baked together. - u/lurkerturnedposter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Dave Chappelle, Janet Jackson, and Sinead OConnor are all converts to Islam. - u/Surly_Asian_Man</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. the Chappelle Show sketch of Clayton Bigsby was based on Dave Chappelle’s grandfather, who was mixed-race and blind - u/randy88moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Dane Cook has Laugh Factorys endurance record of performing for 7 hours straight, beating previous record held by Dave Chappelle by 38 minutes. - u/frobie2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dave Chappelle converted to Islam in 1998. He said, I don’t normally talk about my religion publicly because I don’t want people to associate me and my flaws with this beautiful thing - u/erobhag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. cover art for Princes 2013 single Breakfast Can Wait was Dave Chappelle dressed as Purple Rain era Prince holding a plate of pancakes from a 2004 sketch. - u/Giderah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Dave Chappelle quit Chappelle’s Show during filming of a sketch about magic pixies that embody stereotypes about races. Chappelle thought the sketch funny, but a white spectator laughed loud and long during taping. He wondered if he’d gone from sending up stereotypes to reinforcing them. - u/ryandmc609</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. the 200th episode of Inside the Actors Studio, James Lipton was, for once, in the other chair as the guest who was interviewed. They allowed Lipton to select his interviewer. His choice? Dave Chappelle - u/gjw04</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Dave Chappelle agreed to be in A Star is Born after Bradley Cooper flew to a party hosted by Chappelle in Ohio to ask him to join the cast. Cooper had to persistently bother Chappelle before he agreed to be in the film. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Comedian Neal Brennan wrote for the Nickelodeon childrens shows All That and Kenan & Kel before going on to co-create Chappelles Show with Dave Chappelle - u/SorryForYoureLots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. in 1996 Dave Chappelle was in a spin off from Home Improvement, called Buddies. It premiered on March 5, 1996 and was cancelled on April 3, 1996 after just five episodes. - u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Trey Parker, co-creator of South Park, threatened to pull a Dave Chappelle by showing Comedy Centrals head of network a plane ticket to Africa because one of their episodes were censored against their will - u/komocode</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Comedian and filmmaker Mel Brooks not only discovered Dave Chappelle, he also discovered Gene Wilder (The original Willy Wonka). He also served as a Combat Engineer in the Battle of the Bulge, defusing explosives, and set up his own loud speakers and sang to enemy propaganda loudspeakers. - u/PM_me_Venn_diagrams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Dave Chappelles infamous Prince Plays Basketball skit was 100% accurate and really happened... - u/doogywassa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215672.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
