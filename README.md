@@ -1,85 +1,93 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/16/2022-14:47:18
+Last updated: 07/16/2022-15:47:18
 <br>
-## <a href="#linky2" id="linky1">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
+## <a href="#linky2" id="linky1">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Is there anything better? I mean really.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030714/87216570/87130120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Hey sweetheart, Ive got rules too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030658/87216566/86911191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030616/87216556/86279830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Major oofage here.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030646/87216563/86374133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030628/87216558/86374108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030630/87216559/86279847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030635/87216560/86374113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030639/87216561/86374118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030641/87216562/86374124.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. About to risk it all and never even look back.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030553/87216554/86270713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030650/87216564/86374144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030652/87216565/86443373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030701/87216567/86911195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030703/87216568/86911205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030710/87216569/86911209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030715/87216571/87130122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030722/87216572/87130128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030726/87216573/87130130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030727/87216574/87130136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030733/87216575/87130141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030738/87216576/87130150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Laughed way harder than I should have on this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030739/87216577/ssz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. I couldnt be more excited... to disappoint you on a regular basis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030624/87216557/86279835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. Sage advice, and it works both  ways!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030604/87216555/86279840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212031.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">24 Depressing Facts We Finally Made Peace With</a><br>
-
-<span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. No one is coming to help. -u/_meddlin_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realize, but almost 3 years in Im kind of okay with it.They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally.Im aware of ongoing research but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky. -u/cripple2493</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Just because you think someone is the one, doesnt mean they think you are. -u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization. -u/mister_butlertron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Being alive is expensive. -u/kendawg710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Im aging nonstop. -u/insaight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My childhood is gone, and I have no good memory from that phase of my life. -u/anonymoose_mrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My depression is very likely chronic. Ill be living with it for the rest of my life. -u/SuperDurpPig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. You can do everything perfectly and still fail completely.That and…People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.  -u/GarzysBBQWings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. No matter how hard you love someone, they can fall out of love with you and there’s nothing you can do to fix it. Took me a lot of self-destruction and pain to realize it. Sometimes it just doesn’t work out. -u/texassadist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I’m a coward and it’s costing me. -u/Brianw-5902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities. -u/PoorPDOP86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Im likely destined for an average life. -u/EmperorKyoka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I will always fight my demons. There is no healing from it. -u/Regular_Perception_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ill never be comfortable financially. I have failed every attempt. I really did try. I promise you, I did. But nothings worked for me. I just have to accept it. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. We are all loved conditionally. -u/psychwarddicaprio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201473.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. The world doesn’t care if you’re a good person. Matter of fact, they’re preying on good people. -u/Cognac_Clinton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. That one day I won’t be alive and neither will anybody I love. -u/HonestSapphireLion24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My silent but deadly farts arent always as silent as I think they are. -u/s0apyjam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Im going to have to commit suicide when I get too old/tired to continue working. I live check to check and will never have the savings for any kind of retirement. -u/Prince_Daeron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This is coming from a firefighter:If you have to perform CPR on them, its most likely over for the patient.Im not sure if Ive made peace with it completely, but Ive accepted it at least. -u/Rukhnul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. That at the end of the day, the only one I can rely on is myself. -u/tonio0317</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A friendship you thought would last forever can end in an instant. -u/Febreze4200</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201479.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">30 Disturbing Facts About The Ocean</a><br>
+## <a href="#linky3" id="linky2">30 Disturbing Facts About The Ocean</a><br>
 
 <span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
 
@@ -181,47 +189,95 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Lesser-Known Facts About Dave Chappelle</a><br>
+## <a href="#linky4" id="linky3">22 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. He turned down the part (Bubba in Forrest Gump.) because he was concerned that the character was demeaning and the movie would bomb. He later parodied the film in the 1997 short Bowl of Pork. - u/thisCantBeBad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215654.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. comedy central office assistant who received the call that dave chappelle had left chappelles show was john mulaney - u/michaelbaysucks96</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215655.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Joes Apartment featured an all-star cast of voices for the roaches including Dave Chappelle, Billy West, and Tim Blake Nelson - u/InkIcan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215656.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Princes Breakfast Can Wait album cover features Dave Chappelle impersonating Prince. Chappelle said he had to appreciate the way his joke was co-opted. Thats a Prince judo move right there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215657.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. While performing a stand-up performance in June 2004, Dave Chappelle walked off the stage after berating his audience for constantly shouting Im Rick James, bitch! After a few minutes, Chappelle returned and resumed by saying, The show is ruining my life, referring to the Chappelles Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215658.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In season 4, episode 20 of Home Improvement, Dave Chappelle and Jim Breuer played Tool Time audience members three years before starring in Half Baked together. - u/lurkerturnedposter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215659.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Dave Chappelle, Janet Jackson, and Sinead OConnor are all converts to Islam. - u/Surly_Asian_Man</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215660.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. the Chappelle Show sketch of Clayton Bigsby was based on Dave Chappelle’s grandfather, who was mixed-race and blind - u/randy88moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215661.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Dane Cook has Laugh Factorys endurance record of performing for 7 hours straight, beating previous record held by Dave Chappelle by 38 minutes. - u/frobie2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215662.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Dave Chappelle converted to Islam in 1998. He said, I don’t normally talk about my religion publicly because I don’t want people to associate me and my flaws with this beautiful thing - u/erobhag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215663.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. cover art for Princes 2013 single Breakfast Can Wait was Dave Chappelle dressed as Purple Rain era Prince holding a plate of pancakes from a 2004 sketch. - u/Giderah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215664.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Dave Chappelle quit Chappelle’s Show during filming of a sketch about magic pixies that embody stereotypes about races. Chappelle thought the sketch funny, but a white spectator laughed loud and long during taping. He wondered if he’d gone from sending up stereotypes to reinforcing them. - u/ryandmc609</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215665.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. the 200th episode of Inside the Actors Studio, James Lipton was, for once, in the other chair as the guest who was interviewed. They allowed Lipton to select his interviewer. His choice? Dave Chappelle - u/gjw04</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215666.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Dave Chappelle agreed to be in A Star is Born after Bradley Cooper flew to a party hosted by Chappelle in Ohio to ask him to join the cast. Cooper had to persistently bother Chappelle before he agreed to be in the film. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215667.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Comedian Neal Brennan wrote for the Nickelodeon childrens shows All That and Kenan & Kel before going on to co-create Chappelles Show with Dave Chappelle - u/SorryForYoureLots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215668.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. in 1996 Dave Chappelle was in a spin off from Home Improvement, called Buddies. It premiered on March 5, 1996 and was cancelled on April 3, 1996 after just five episodes. - u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215669.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Trey Parker, co-creator of South Park, threatened to pull a Dave Chappelle by showing Comedy Centrals head of network a plane ticket to Africa because one of their episodes were censored against their will - u/komocode</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215670.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Comedian and filmmaker Mel Brooks not only discovered Dave Chappelle, he also discovered Gene Wilder (The original Willy Wonka). He also served as a Combat Engineer in the Battle of the Bulge, defusing explosives, and set up his own loud speakers and sang to enemy propaganda loudspeakers. - u/PM_me_Venn_diagrams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215671.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Dave Chappelles infamous Prince Plays Basketball skit was 100% accurate and really happened... - u/doogywassa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215672.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">20 Modern Trends That Need to End ASAP</a><br>
+
+<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -443,47 +499,47 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">20 Extremely Disturbing Facts About The Kardashians</a><br>
+## <a href="#linky10" id="linky9">20 Lesser-Known Facts About Dave Chappelle</a><br>
 
-<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. He turned down the part (Bubba in Forrest Gump.) because he was concerned that the character was demeaning and the movie would bomb. He later parodied the film in the 1997 short Bowl of Pork. - u/thisCantBeBad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. comedy central office assistant who received the call that dave chappelle had left chappelles show was john mulaney - u/michaelbaysucks96</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Joes Apartment featured an all-star cast of voices for the roaches including Dave Chappelle, Billy West, and Tim Blake Nelson - u/InkIcan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Princes Breakfast Can Wait album cover features Dave Chappelle impersonating Prince. Chappelle said he had to appreciate the way his joke was co-opted. Thats a Prince judo move right there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. While performing a stand-up performance in June 2004, Dave Chappelle walked off the stage after berating his audience for constantly shouting Im Rick James, bitch! After a few minutes, Chappelle returned and resumed by saying, The show is ruining my life, referring to the Chappelles Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In season 4, episode 20 of Home Improvement, Dave Chappelle and Jim Breuer played Tool Time audience members three years before starring in Half Baked together. - u/lurkerturnedposter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Dave Chappelle, Janet Jackson, and Sinead OConnor are all converts to Islam. - u/Surly_Asian_Man</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. the Chappelle Show sketch of Clayton Bigsby was based on Dave Chappelle’s grandfather, who was mixed-race and blind - u/randy88moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Dane Cook has Laugh Factorys endurance record of performing for 7 hours straight, beating previous record held by Dave Chappelle by 38 minutes. - u/frobie2323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Dave Chappelle converted to Islam in 1998. He said, I don’t normally talk about my religion publicly because I don’t want people to associate me and my flaws with this beautiful thing - u/erobhag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. cover art for Princes 2013 single Breakfast Can Wait was Dave Chappelle dressed as Purple Rain era Prince holding a plate of pancakes from a 2004 sketch. - u/Giderah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Dave Chappelle quit Chappelle’s Show during filming of a sketch about magic pixies that embody stereotypes about races. Chappelle thought the sketch funny, but a white spectator laughed loud and long during taping. He wondered if he’d gone from sending up stereotypes to reinforcing them. - u/ryandmc609</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. the 200th episode of Inside the Actors Studio, James Lipton was, for once, in the other chair as the guest who was interviewed. They allowed Lipton to select his interviewer. His choice? Dave Chappelle - u/gjw04</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Dave Chappelle agreed to be in A Star is Born after Bradley Cooper flew to a party hosted by Chappelle in Ohio to ask him to join the cast. Cooper had to persistently bother Chappelle before he agreed to be in the film. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Comedian Neal Brennan wrote for the Nickelodeon childrens shows All That and Kenan & Kel before going on to co-create Chappelles Show with Dave Chappelle - u/SorryForYoureLots</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. in 1996 Dave Chappelle was in a spin off from Home Improvement, called Buddies. It premiered on March 5, 1996 and was cancelled on April 3, 1996 after just five episodes. - u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Trey Parker, co-creator of South Park, threatened to pull a Dave Chappelle by showing Comedy Centrals head of network a plane ticket to Africa because one of their episodes were censored against their will - u/komocode</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Comedian and filmmaker Mel Brooks not only discovered Dave Chappelle, he also discovered Gene Wilder (The original Willy Wonka). He also served as a Combat Engineer in the Battle of the Bulge, defusing explosives, and set up his own loud speakers and sang to enemy propaganda loudspeakers. - u/PM_me_Venn_diagrams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Dave Chappelles infamous Prince Plays Basketball skit was 100% accurate and really happened... - u/doogywassa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215672.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -533,77 +589,7 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">26 Incredibly Unique Buildings From Around the World </a><br>
-
-<span style="font-size:4em">1. Winning Design For Shenzhens Natural History Museum</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123737/87216289/epic-abandoned-houses17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Office In The Woods Near Madrid, Spain </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123710/87216284/epic-abandoned-houses4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Fallen Star</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123714/87216285/epic-abandoned-houses11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Colins Barn, Chedglow, England - More Details In Comments</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123732/87216288/epic-abandoned-houses19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Mogno, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123721/87216286/epic-abandoned-houses5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Hang Ngas Crazy House In Dalat, Vietnam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123704/87216283/epic-abandoned-houses13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Lile Fllottante (Abidjan, Ivory Coast)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123653/87216281/epic-abandoned-houses3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Only Surviving Photo Of A Hoarder House Demolished Around 2007 In Nagoya, Japan</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123659/87216282/epic-abandoned-houses9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Iron Fountain - Gyumri, Armenia</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123726/87216287/epic-abandoned-houses2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Former Us Listening Station In Berlin, Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123647/87216280/epic-abandoned-houses8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Container House In The Desert</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123744/87216290/epic-abandoned-houses6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Flintstone House, Declared Public Nuisance, Now Allowed To Keep Colorful</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123748/87216291/epic-abandoned-houses16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Inntel Hotels Amsterdam Zaandam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123755/87216292/epic-abandoned-houses23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123800/87216293/epic-abandoned-houses21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Peles Castle, Romania</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123807/87216294/epic-abandoned-houses20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. France Built 1347</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123811/87216295/epic-abandoned-houses25.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Temppeliaukion Church, Helsinki, Finland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123818/87216296/epic-abandoned-houses26.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Hole House Or Villa Vals, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123824/87216297/epic-abandoned-houses18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. This Single-Family House In Bayview.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123829/87216298/epic-abandoned-houses10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Unzipped Building. Milano, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123836/87216299/epic-abandoned-houses15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Energy Organic House Design With Wild Slate Roof In Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123840/87216300/epic-abandoned-houses7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hallgrímskirkja: Lutheran Church In Reykjavík, Iceland. Commissioned In 1937 And Completed In 1986.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123848/87216301/epic-abandoned-houses14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sanaa, Yemen</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123852/87216302/epic-abandoned-houses22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. King Alfreds Tower In England, Built In 1772</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123859/87216303/epic-abandoned-houses1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. This Pub Was Completed In 1765 Was Built On Top Of A Mine Shaft And Over Time It Had Sank On One Side. Getting In Sober Is A Challenge, And Even Harder Getting Out Drunk</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123903/87216304/epic-abandoned-houses12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Alpine Refuge From World War I Located At 2760 Meters, Monte Cristallo, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123910/87216305/epic-abandoned-houses24.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Dude Cheats on GF after She Saves His Life</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">32 Depressing Pics that Are a Sign of the Times</a><br>
+## <a href="#linky12" id="linky11">32 Depressing Pics that Are a Sign of the Times</a><br>
 
 <span style="font-size:4em">1. If only there was a natural form of shade that humans could use when sitting in the sun. Hmm. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122115/87216247/hilarious-pics-of-life28.jpg" style="width:100%"><br>
 
@@ -671,51 +657,115 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">20 Modern Trends That Need to End ASAP</a><br>
+## <a href="#linky13" id="linky12">24 Depressing Facts We Finally Made Peace With</a><br>
 
-<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. No one is coming to help. -u/_meddlin_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realize, but almost 3 years in Im kind of okay with it.They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally.Im aware of ongoing research but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky. -u/cripple2493</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Just because you think someone is the one, doesnt mean they think you are. -u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization. -u/mister_butlertron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Being alive is expensive. -u/kendawg710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Im aging nonstop. -u/insaight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. My childhood is gone, and I have no good memory from that phase of my life. -u/anonymoose_mrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. My depression is very likely chronic. Ill be living with it for the rest of my life. -u/SuperDurpPig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. You can do everything perfectly and still fail completely.That and…People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.  -u/GarzysBBQWings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. No matter how hard you love someone, they can fall out of love with you and there’s nothing you can do to fix it. Took me a lot of self-destruction and pain to realize it. Sometimes it just doesn’t work out. -u/texassadist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I’m a coward and it’s costing me. -u/Brianw-5902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities. -u/PoorPDOP86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
+<span style="font-size:4em">14. Im likely destined for an average life. -u/EmperorKyoka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I will always fight my demons. There is no healing from it. -u/Regular_Perception_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Ill never be comfortable financially. I have failed every attempt. I really did try. I promise you, I did. But nothings worked for me. I just have to accept it. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
+<span style="font-size:4em">17. We are all loved conditionally. -u/psychwarddicaprio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201473.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The world doesn’t care if you’re a good person. Matter of fact, they’re preying on good people. -u/Cognac_Clinton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. That one day I won’t be alive and neither will anybody I love. -u/HonestSapphireLion24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. My silent but deadly farts arent always as silent as I think they are. -u/s0apyjam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Im going to have to commit suicide when I get too old/tired to continue working. I live check to check and will never have the savings for any kind of retirement. -u/Prince_Daeron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is coming from a firefighter:If you have to perform CPR on them, its most likely over for the patient.Im not sure if Ive made peace with it completely, but Ive accepted it at least. -u/Rukhnul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. That at the end of the day, the only one I can rely on is myself. -u/tonio0317</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A friendship you thought would last forever can end in an instant. -u/Febreze4200</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201479.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky14" id="linky13">26 Incredibly Unique Buildings From Around the World </a><br>
+
+<span style="font-size:4em">1. Winning Design For Shenzhens Natural History Museum</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123737/87216289/epic-abandoned-houses17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Office In The Woods Near Madrid, Spain </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123710/87216284/epic-abandoned-houses4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Fallen Star</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123714/87216285/epic-abandoned-houses11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Colins Barn, Chedglow, England - More Details In Comments</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123732/87216288/epic-abandoned-houses19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Mogno, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123721/87216286/epic-abandoned-houses5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Hang Ngas Crazy House In Dalat, Vietnam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123704/87216283/epic-abandoned-houses13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lile Fllottante (Abidjan, Ivory Coast)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123653/87216281/epic-abandoned-houses3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Only Surviving Photo Of A Hoarder House Demolished Around 2007 In Nagoya, Japan</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123659/87216282/epic-abandoned-houses9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Iron Fountain - Gyumri, Armenia</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123726/87216287/epic-abandoned-houses2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Former Us Listening Station In Berlin, Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123647/87216280/epic-abandoned-houses8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Container House In The Desert</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123744/87216290/epic-abandoned-houses6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Flintstone House, Declared Public Nuisance, Now Allowed To Keep Colorful</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123748/87216291/epic-abandoned-houses16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Inntel Hotels Amsterdam Zaandam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123755/87216292/epic-abandoned-houses23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123800/87216293/epic-abandoned-houses21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Peles Castle, Romania</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123807/87216294/epic-abandoned-houses20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. France Built 1347</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123811/87216295/epic-abandoned-houses25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Temppeliaukion Church, Helsinki, Finland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123818/87216296/epic-abandoned-houses26.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hole House Or Villa Vals, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123824/87216297/epic-abandoned-houses18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. This Single-Family House In Bayview.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123829/87216298/epic-abandoned-houses10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Unzipped Building. Milano, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123836/87216299/epic-abandoned-houses15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Energy Organic House Design With Wild Slate Roof In Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123840/87216300/epic-abandoned-houses7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hallgrímskirkja: Lutheran Church In Reykjavík, Iceland. Commissioned In 1937 And Completed In 1986.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123848/87216301/epic-abandoned-houses14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sanaa, Yemen</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123852/87216302/epic-abandoned-houses22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. King Alfreds Tower In England, Built In 1772</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123859/87216303/epic-abandoned-houses1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. This Pub Was Completed In 1765 Was Built On Top Of A Mine Shaft And Over Time It Had Sank On One Side. Getting In Sober Is A Challenge, And Even Harder Getting Out Drunk</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123903/87216304/epic-abandoned-houses12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Alpine Refuge From World War I Located At 2760 Meters, Monte Cristallo, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123910/87216305/epic-abandoned-houses24.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">Fresh Pics And Memes For The Exquisite Minds</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
 
@@ -781,51 +831,87 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">22 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky16" id="linky15">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
+## <a href="#linky17" id="linky16">Dude Cheats on GF after She Saves His Life</a><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
+## <a href="#linky18" id="linky17">20 Extremely Disturbing Facts About The Kardashians</a><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
