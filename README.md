@@ -1,175 +1,105 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/15/2022-22:47:17
+Last updated: 07/15/2022-23:47:17
 <br>
-## <a href="#linky2" id="linky1">23 Lowbrow Memes for Dirty Minds</a><br>
+## <a href="#linky2" id="linky1">Dude Cheats on GF after She Saves His Life</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114846/87216201/87213840.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114849/87216202/87213833.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114837/87216200/87213832.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114834/87216199/87213826.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216203/87213843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216204/87215886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114911/87216205/87215902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114826/87216198/87213822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114921/87216206/87215889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114923/87216207/87215908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114933/87216209/87215927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114941/87216210/87215930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212710.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">35 Cool and Unusual Things People Spotted</a><br>
+## <a href="#linky3" id="linky2">Throwback Gaming Pics to Wash Those Blues Away</a><br>
 
-<span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. An original Atari system, like new.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013233/87215335/atari.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cool pizza cutter.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091848/87215223/87214571.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Who remembers these gaming ads?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013240/87215336/ad.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “A plant I saw on my walk has pleasant geometry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214999.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Why would you throw this out?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013244/87215337/beer.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My cat has achieved ultimate power and transformed into Nyan Cat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091750/87215212/87211492.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Brand new Gameboy color.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013255/87215339/color.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Awesome throne carved into an old tree stump.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091707/87215206/87210945.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. If your arcade didnt have Cruisin they were doing it wrong.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013302/87215340/cruisin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This rick and morty house.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091719/87215207/87210944.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Where is this restaurant?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013306/87215341/doom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Made a ball of binder clips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091726/87215208/87210941.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Ahh, old advertisements just hit different.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013250/87215338/butt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Owls have really long legs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091837/87215221/87212517.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. What a collection!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013313/87215342/games.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Our family photo taken with a disposable camera on July 4th, 2001 in Bishop, CA. We’ll never get a better Christmas card.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215022.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Oh no baby, what is you doing?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013317/87215343/jp.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This soap looks like jellyfish.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091730/87215209/87210946.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Take me back, please.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013328/87215345/n64.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. This caterpillar looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091741/87215211/87211479.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. It...its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013335/87215346/family.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This crazy looking all black lizzard.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091752/87215213/87211003.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Brand new original Gameboy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013339/87215347/new.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Ice Cream Cone styled Pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091802/87215214/87211504.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Christmas 92.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013346/87215348/nes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The reflection of fireworks on this car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091813/87215216/87212488.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Lets party.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013350/87215349/party.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Old piece of metal looks like a painting of a nuclear explosion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091814/87215217/87212495.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. What are you playing first?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013357/87215350/og.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Two headed snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091823/87215218/87212501.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. A+ for effort.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013324/87215344/mario.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The coolest looking moth ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091826/87215219/87212506.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Totally forgot about the colored PlayStation consoles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013401/87215351/pscolor.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Giant tomato is ripening in stages.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091834/87215220/87212510.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. I want to go to this store.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013408/87215352/retro.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Coffee table made out of an old engine block and piping.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091845/87215222/87214540.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Virtual boy!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013413/87215353/virtual.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Take your fashion game to the next level with these cool shoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091858/87215224/87214572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091859/87215225/87214563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Lightning striking a tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215004.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Anonychia is the partial or total absence of one or more nails on the fingers or toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214998.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. “The image created when holding a cube prism over a rainbow already created by another prism.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215015.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. “These urinals let you look out to the street. The windows aren’t tinted at all, so you can also see in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215001.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Little lady next to a giant dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215002.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This pic I took of a vine growing up a palm tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215007.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. “The Egyptian Octagon, as seen from an airplane”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215008.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. Swole cat is swole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091738/87215210/87211000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “These upside-down charger sockets on a train table that prevent cable damage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215013.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. “This bicolor tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215014.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Lost my wedding ring a month ago, bought a new one today. Also, today...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. This Muscovy duck has a flying duck on its feathers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091656/87215205/87210920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “A bee flew toward the camera at the exact moment we took a picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. . “At my local Fresh Field.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215011.png" style="width:100%"><br>
+<span style="font-size:4em">20. This pic just called me old.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013421/87215354/zelda.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">22 Americana Pics That Scream ‘Freedom'</a><br>
+## <a href="#linky4" id="linky3">20 Extremely Disturbing Facts About The Kardashians</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042129/87215443/boat.png" style="width:100%"><br>
+<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042140/87215444/bike.png" style="width:100%"><br>
+<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042149/87215445/bud.png" style="width:100%"><br>
+<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042152/87215446/bong.png" style="width:100%"><br>
+<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042201/87215447/car.png" style="width:100%"><br>
+<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042206/87215448/cool.png" style="width:100%"><br>
+<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042242/87215453/gun.png" style="width:100%"><br>
+<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042211/87215449/dog.png" style="width:100%"><br>
+<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042220/87215450/dudes.png" style="width:100%"><br>
+<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042225/87215451/fish.png" style="width:100%"><br>
+<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042253/87215455/kids.png" style="width:100%"><br>
+<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042232/87215452/flag.png" style="width:100%"><br>
+<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042128/87215442/babes.png" style="width:100%"><br>
+<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042244/87215454/hunt.png" style="width:100%"><br>
+<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042334/87215462/three.png" style="width:100%"><br>
+<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042304/87215457/paint.png" style="width:100%"><br>
+<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042311/87215458/pool.png" style="width:100%"><br>
+<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042317/87215459/skates.png" style="width:100%"><br>
+<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042323/87215460/ski.png" style="width:100%"><br>
+<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042259/87215456/milf.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042329/87215461/surf.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042340/87215463/wed.png" style="width:100%"><br>
+<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -419,51 +349,7 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">20 Extremely Disturbing Facts About The Kardashians</a><br>
-
-<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">20 Lesser-Known Facts About Dave Chappelle</a><br>
+## <a href="#linky9" id="linky8">20 Lesser-Known Facts About Dave Chappelle</a><br>
 
 <span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
 
@@ -507,7 +393,7 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">TV Shows That Started Strong Then Crapped the Bed</a><br>
+## <a href="#linky10" id="linky9">TV Shows That Started Strong Then Crapped the Bed</a><br>
 
 <span style="font-size:4em">1. Heroes, the biggest drop in quality after season 1.
 
@@ -615,6 +501,56 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky11" id="linky10">23 Lowbrow Memes for Dirty Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114846/87216201/87213840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114849/87216202/87213833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114837/87216200/87213832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114834/87216199/87213826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216203/87213843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216204/87215886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114911/87216205/87215902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114826/87216198/87213822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114921/87216206/87215889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114923/87216207/87215908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114933/87216209/87215927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114941/87216210/87215930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212710.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky12" id="linky11">WikiHow Lifehack Memes to Get through Another Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
@@ -659,21 +595,7 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Dude Cheats on GF after She Saves His Life</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
+## <a href="#linky13" id="linky12">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
 
@@ -699,7 +621,7 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky14" id="linky13">Fresh Pics And Memes For The Exquisite Minds</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
 
@@ -765,47 +687,125 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Throwback Gaming Pics to Wash Those Blues Away</a><br>
+## <a href="#linky15" id="linky14">22 Americana Pics That Scream ‘Freedom'</a><br>
 
-<span style="font-size:4em">1. An original Atari system, like new.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013233/87215335/atari.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042129/87215443/boat.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Who remembers these gaming ads?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013240/87215336/ad.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042140/87215444/bike.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Why would you throw this out?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013244/87215337/beer.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042149/87215445/bud.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Brand new Gameboy color.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013255/87215339/color.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042152/87215446/bong.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. If your arcade didnt have Cruisin they were doing it wrong.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013302/87215340/cruisin.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042201/87215447/car.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Where is this restaurant?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013306/87215341/doom.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042206/87215448/cool.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Ahh, old advertisements just hit different.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013250/87215338/butt.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042242/87215453/gun.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. What a collection!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013313/87215342/games.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042211/87215449/dog.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Oh no baby, what is you doing?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013317/87215343/jp.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042220/87215450/dudes.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Take me back, please.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013328/87215345/n64.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042225/87215451/fish.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. It...its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013335/87215346/family.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042253/87215455/kids.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Brand new original Gameboy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013339/87215347/new.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042232/87215452/flag.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Christmas 92.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013346/87215348/nes.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042128/87215442/babes.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Lets party.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013350/87215349/party.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042244/87215454/hunt.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. What are you playing first?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013357/87215350/og.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042334/87215462/three.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. A+ for effort.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013324/87215344/mario.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042304/87215457/paint.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Totally forgot about the colored PlayStation consoles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013401/87215351/pscolor.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042311/87215458/pool.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. I want to go to this store.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013408/87215352/retro.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042317/87215459/skates.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. Virtual boy!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013413/87215353/virtual.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042323/87215460/ski.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. This pic just called me old.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013421/87215354/zelda.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042259/87215456/milf.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042329/87215461/surf.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042340/87215463/wed.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">35 Cool and Unusual Things People Spotted</a><br>
+
+<span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cool pizza cutter.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091848/87215223/87214571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “A plant I saw on my walk has pleasant geometry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My cat has achieved ultimate power and transformed into Nyan Cat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091750/87215212/87211492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Awesome throne carved into an old tree stump.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091707/87215206/87210945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This rick and morty house.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091719/87215207/87210944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Made a ball of binder clips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091726/87215208/87210941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Owls have really long legs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091837/87215221/87212517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Our family photo taken with a disposable camera on July 4th, 2001 in Bishop, CA. We’ll never get a better Christmas card.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This soap looks like jellyfish.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091730/87215209/87210946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This caterpillar looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091741/87215211/87211479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This crazy looking all black lizzard.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091752/87215213/87211003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ice Cream Cone styled Pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091802/87215214/87211504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The reflection of fireworks on this car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091813/87215216/87212488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Old piece of metal looks like a painting of a nuclear explosion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091814/87215217/87212495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Two headed snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091823/87215218/87212501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The coolest looking moth ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091826/87215219/87212506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Giant tomato is ripening in stages.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091834/87215220/87212510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Coffee table made out of an old engine block and piping.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091845/87215222/87214540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Take your fashion game to the next level with these cool shoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091858/87215224/87214572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091859/87215225/87214563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Lightning striking a tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215004.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Anonychia is the partial or total absence of one or more nails on the fingers or toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214998.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. “The image created when holding a cube prism over a rainbow already created by another prism.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215015.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. “These urinals let you look out to the street. The windows aren’t tinted at all, so you can also see in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215001.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Little lady next to a giant dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215002.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This pic I took of a vine growing up a palm tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215007.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. “The Egyptian Octagon, as seen from an airplane”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215008.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. Swole cat is swole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091738/87215210/87211000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “These upside-down charger sockets on a train table that prevent cable damage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215013.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. “This bicolor tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215014.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. “Lost my wedding ring a month ago, bought a new one today. Also, today...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. This Muscovy duck has a flying duck on its feathers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091656/87215205/87210920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “A bee flew toward the camera at the exact moment we took a picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. . “At my local Fresh Field.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215011.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
