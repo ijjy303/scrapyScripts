@@ -1,7 +1,51 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/16/2022-00:47:18
+Last updated: 07/16/2022-01:47:17
 <br>
-## <a href="#linky2" id="linky1">23 Lowbrow Memes for Dirty Minds</a><br>
+## <a href="#linky2" id="linky1">Throwback Gaming Pics to Wash Those Blues Away</a><br>
+
+<span style="font-size:4em">1. An original Atari system, like new.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013233/87215335/atari.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Who remembers these gaming ads?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013240/87215336/ad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Why would you throw this out?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013244/87215337/beer.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Brand new Gameboy color.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013255/87215339/color.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If your arcade didnt have Cruisin they were doing it wrong.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013302/87215340/cruisin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Where is this restaurant?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013306/87215341/doom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ahh, old advertisements just hit different.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013250/87215338/butt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. What a collection!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013313/87215342/games.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Oh no baby, what is you doing?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013317/87215343/jp.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Take me back, please.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013328/87215345/n64.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. It...its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013335/87215346/family.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Brand new original Gameboy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013339/87215347/new.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Christmas 92.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013346/87215348/nes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Lets party.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013350/87215349/party.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. What are you playing first?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013357/87215350/og.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A+ for effort.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013324/87215344/mario.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Totally forgot about the colored PlayStation consoles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013401/87215351/pscolor.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I want to go to this store.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013408/87215352/retro.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Virtual boy!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013413/87215353/virtual.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This pic just called me old.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013421/87215354/zelda.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">23 Lowbrow Memes for Dirty Minds</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114846/87216201/87213840.jpg" style="width:100%"><br>
 
@@ -48,20 +92,6 @@ Last updated: 07/16/2022-00:47:18
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212703.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212710.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">Dude Cheats on GF after She Saves His Life</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -227,51 +257,7 @@ Last updated: 07/16/2022-00:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Modern Trends That Need to End ASAP</a><br>
-
-<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">30 Disturbing Facts About The Ocean</a><br>
+## <a href="#linky7" id="linky6">30 Disturbing Facts About The Ocean</a><br>
 
 <span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
 
@@ -373,7 +359,129 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">20 Lesser-Known Facts About Dave Chappelle</a><br>
+## <a href="#linky8" id="linky7">35 Cool and Unusual Things People Spotted</a><br>
+
+<span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cool pizza cutter.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091848/87215223/87214571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “A plant I saw on my walk has pleasant geometry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My cat has achieved ultimate power and transformed into Nyan Cat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091750/87215212/87211492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Awesome throne carved into an old tree stump.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091707/87215206/87210945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This rick and morty house.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091719/87215207/87210944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Made a ball of binder clips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091726/87215208/87210941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Owls have really long legs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091837/87215221/87212517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Our family photo taken with a disposable camera on July 4th, 2001 in Bishop, CA. We’ll never get a better Christmas card.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This soap looks like jellyfish.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091730/87215209/87210946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This caterpillar looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091741/87215211/87211479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This crazy looking all black lizzard.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091752/87215213/87211003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ice Cream Cone styled Pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091802/87215214/87211504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The reflection of fireworks on this car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091813/87215216/87212488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Old piece of metal looks like a painting of a nuclear explosion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091814/87215217/87212495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Two headed snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091823/87215218/87212501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The coolest looking moth ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091826/87215219/87212506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Giant tomato is ripening in stages.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091834/87215220/87212510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Coffee table made out of an old engine block and piping.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091845/87215222/87214540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Take your fashion game to the next level with these cool shoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091858/87215224/87214572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091859/87215225/87214563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Lightning striking a tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215004.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Anonychia is the partial or total absence of one or more nails on the fingers or toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214998.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. “The image created when holding a cube prism over a rainbow already created by another prism.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215015.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. “These urinals let you look out to the street. The windows aren’t tinted at all, so you can also see in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215001.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Little lady next to a giant dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215002.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This pic I took of a vine growing up a palm tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215007.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. “The Egyptian Octagon, as seen from an airplane”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215008.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. Swole cat is swole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091738/87215210/87211000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “These upside-down charger sockets on a train table that prevent cable damage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215013.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. “This bicolor tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215014.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. “Lost my wedding ring a month ago, bought a new one today. Also, today...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. This Muscovy duck has a flying duck on its feathers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091656/87215205/87210920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “A bee flew toward the camera at the exact moment we took a picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. . “At my local Fresh Field.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215011.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">22 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">20 Lesser-Known Facts About Dave Chappelle</a><br>
 
 <span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
 
@@ -417,7 +525,7 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">TV Shows That Started Strong Then Crapped the Bed</a><br>
+## <a href="#linky11" id="linky10">TV Shows That Started Strong Then Crapped the Bed</a><br>
 
 <span style="font-size:4em">1. Heroes, the biggest drop in quality after season 1.
 
@@ -525,99 +633,7 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">WikiHow Lifehack Memes to Get through Another Day</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033724/87216601/alarm.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033730/87216602/bird.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033737/87216603/break.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033748/87216605/dog.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033753/87216606/friend.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033741/87216604/cream.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033759/87216607/gf.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033804/87216608/hide.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033811/87216609/hug.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033816/87216610/karen.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033828/87216611/kid.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033831/87216612/pups.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033839/87216613/summon.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033842/87216614/tax.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033854/87216616/torch.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033852/87216615/tie.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033904/87216617/upvote.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">22 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">22 Americana Pics That Scream ‘Freedom'</a><br>
+## <a href="#linky12" id="linky11">22 Americana Pics That Scream ‘Freedom'</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/042129/87215443/boat.png" style="width:100%"><br>
 
@@ -665,125 +681,21 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">35 Cool and Unusual Things People Spotted</a><br>
+## <a href="#linky13" id="linky12">Dude Cheats on GF after She Saves His Life</a><br>
 
-<span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cool pizza cutter.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091848/87215223/87214571.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “A plant I saw on my walk has pleasant geometry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214999.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My cat has achieved ultimate power and transformed into Nyan Cat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091750/87215212/87211492.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Awesome throne carved into an old tree stump.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091707/87215206/87210945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This rick and morty house.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091719/87215207/87210944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Made a ball of binder clips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091726/87215208/87210941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Owls have really long legs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091837/87215221/87212517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Our family photo taken with a disposable camera on July 4th, 2001 in Bishop, CA. We’ll never get a better Christmas card.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This soap looks like jellyfish.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091730/87215209/87210946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This caterpillar looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091741/87215211/87211479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This crazy looking all black lizzard.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091752/87215213/87211003.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Ice Cream Cone styled Pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091802/87215214/87211504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The reflection of fireworks on this car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091813/87215216/87212488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Old piece of metal looks like a painting of a nuclear explosion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091814/87215217/87212495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Two headed snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091823/87215218/87212501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The coolest looking moth ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091826/87215219/87212506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Giant tomato is ripening in stages.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091834/87215220/87212510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Coffee table made out of an old engine block and piping.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091845/87215222/87214540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Take your fashion game to the next level with these cool shoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091858/87215224/87214572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091859/87215225/87214563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Lightning striking a tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215004.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Anonychia is the partial or total absence of one or more nails on the fingers or toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214998.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. “The image created when holding a cube prism over a rainbow already created by another prism.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215015.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. “These urinals let you look out to the street. The windows aren’t tinted at all, so you can also see in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215001.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Little lady next to a giant dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215002.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This pic I took of a vine growing up a palm tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215007.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. “The Egyptian Octagon, as seen from an airplane”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215008.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. Swole cat is swole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091738/87215210/87211000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “These upside-down charger sockets on a train table that prevent cable damage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215013.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. “This bicolor tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215014.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Lost my wedding ring a month ago, bought a new one today. Also, today...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. This Muscovy duck has a flying duck on its feathers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091656/87215205/87210920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “A bee flew toward the camera at the exact moment we took a picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. . “At my local Fresh Field.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215011.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">Throwback Gaming Pics to Wash Those Blues Away</a><br>
-
-<span style="font-size:4em">1. An original Atari system, like new.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013233/87215335/atari.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Who remembers these gaming ads?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013240/87215336/ad.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Why would you throw this out?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013244/87215337/beer.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Brand new Gameboy color.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013255/87215339/color.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If your arcade didnt have Cruisin they were doing it wrong.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013302/87215340/cruisin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Where is this restaurant?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013306/87215341/doom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ahh, old advertisements just hit different.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013250/87215338/butt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. What a collection!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013313/87215342/games.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh no baby, what is you doing?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013317/87215343/jp.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Take me back, please.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013328/87215345/n64.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. It...its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013335/87215346/family.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Brand new original Gameboy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013339/87215347/new.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Christmas 92.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013346/87215348/nes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Lets party.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013350/87215349/party.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. What are you playing first?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013357/87215350/og.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. A+ for effort.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013324/87215344/mario.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Totally forgot about the colored PlayStation consoles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013401/87215351/pscolor.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I want to go to this store.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013408/87215352/retro.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Virtual boy!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013413/87215353/virtual.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This pic just called me old.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/013421/87215354/zelda.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
+## <a href="#linky14" id="linky13">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
 
@@ -806,6 +718,94 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">WikiHow Lifehack Memes to Get through Another Day</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033724/87216601/alarm.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033730/87216602/bird.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033737/87216603/break.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033748/87216605/dog.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033753/87216606/friend.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033741/87216604/cream.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033759/87216607/gf.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033804/87216608/hide.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033811/87216609/hug.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033816/87216610/karen.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033828/87216611/kid.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033831/87216612/pups.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033839/87216613/summon.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033842/87216614/tax.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033854/87216616/torch.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033852/87216615/tie.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033904/87216617/upvote.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">20 Modern Trends That Need to End ASAP</a><br>
+
+<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
