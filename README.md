@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/16/2022-01:47:17
+Last updated: 07/16/2022-02:47:18
 <br>
 ## <a href="#linky2" id="linky1">Throwback Gaming Pics to Wash Those Blues Away</a><br>
 
@@ -359,77 +359,17 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">35 Cool and Unusual Things People Spotted</a><br>
+## <a href="#linky8" id="linky7">Dude Cheats on GF after She Saves His Life</a><br>
 
-<span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cool pizza cutter.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091848/87215223/87214571.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “A plant I saw on my walk has pleasant geometry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214999.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My cat has achieved ultimate power and transformed into Nyan Cat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091750/87215212/87211492.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Awesome throne carved into an old tree stump.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091707/87215206/87210945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This rick and morty house.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091719/87215207/87210944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Made a ball of binder clips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091726/87215208/87210941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Owls have really long legs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091837/87215221/87212517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Our family photo taken with a disposable camera on July 4th, 2001 in Bishop, CA. We’ll never get a better Christmas card.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This soap looks like jellyfish.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091730/87215209/87210946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This caterpillar looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091741/87215211/87211479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This crazy looking all black lizzard.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091752/87215213/87211003.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Ice Cream Cone styled Pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091802/87215214/87211504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The reflection of fireworks on this car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091813/87215216/87212488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Old piece of metal looks like a painting of a nuclear explosion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091814/87215217/87212495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Two headed snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091823/87215218/87212501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The coolest looking moth ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091826/87215219/87212506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Giant tomato is ripening in stages.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091834/87215220/87212510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Coffee table made out of an old engine block and piping.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091845/87215222/87214540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Take your fashion game to the next level with these cool shoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091858/87215224/87214572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091859/87215225/87214563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Lightning striking a tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215004.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Anonychia is the partial or total absence of one or more nails on the fingers or toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214998.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. “The image created when holding a cube prism over a rainbow already created by another prism.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215015.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. “These urinals let you look out to the street. The windows aren’t tinted at all, so you can also see in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215001.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Little lady next to a giant dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215002.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This pic I took of a vine growing up a palm tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215007.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. “The Egyptian Octagon, as seen from an airplane”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215008.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. Swole cat is swole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091738/87215210/87211000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “These upside-down charger sockets on a train table that prevent cable damage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215013.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. “This bicolor tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215014.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Lost my wedding ring a month ago, bought a new one today. Also, today...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. This Muscovy duck has a flying duck on its feathers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091656/87215205/87210920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “A bee flew toward the camera at the exact moment we took a picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. . “At my local Fresh Field.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215011.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -681,47 +621,7 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Dude Cheats on GF after She Saves His Life</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">WikiHow Lifehack Memes to Get through Another Day</a><br>
+## <a href="#linky13" id="linky12">WikiHow Lifehack Memes to Get through Another Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
 
@@ -765,7 +665,7 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">20 Modern Trends That Need to End ASAP</a><br>
+## <a href="#linky14" id="linky13">20 Modern Trends That Need to End ASAP</a><br>
 
 <span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
 
@@ -806,6 +706,106 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 <span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">35 Cool and Unusual Things People Spotted</a><br>
+
+<span style="font-size:4em">1. These small opal rocks look like dragon eggs hatching.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091804/87215215/87211497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cool pizza cutter.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091848/87215223/87214571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “A plant I saw on my walk has pleasant geometry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My cat has achieved ultimate power and transformed into Nyan Cat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091750/87215212/87211492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Awesome throne carved into an old tree stump.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091707/87215206/87210945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This rick and morty house.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091719/87215207/87210944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Made a ball of binder clips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091726/87215208/87210941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Owls have really long legs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091837/87215221/87212517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Our family photo taken with a disposable camera on July 4th, 2001 in Bishop, CA. We’ll never get a better Christmas card.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This soap looks like jellyfish.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091730/87215209/87210946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This caterpillar looks like some kind of alien creature.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091741/87215211/87211479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This crazy looking all black lizzard.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091752/87215213/87211003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ice Cream Cone styled Pizza.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091802/87215214/87211504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The reflection of fireworks on this car.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091813/87215216/87212488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Old piece of metal looks like a painting of a nuclear explosion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091814/87215217/87212495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Two headed snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091823/87215218/87212501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The coolest looking moth ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091826/87215219/87212506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Giant tomato is ripening in stages.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091834/87215220/87212510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Coffee table made out of an old engine block and piping.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091845/87215222/87214540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Take your fashion game to the next level with these cool shoes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091858/87215224/87214572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091859/87215225/87214563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Lightning striking a tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215004.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Anonychia is the partial or total absence of one or more nails on the fingers or toes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87214998.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. “The image created when holding a cube prism over a rainbow already created by another prism.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215015.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. “These urinals let you look out to the street. The windows aren’t tinted at all, so you can also see in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215001.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Little lady next to a giant dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215002.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This pic I took of a vine growing up a palm tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215007.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. “The Egyptian Octagon, as seen from an airplane”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215008.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. Swole cat is swole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091738/87215210/87211000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “These upside-down charger sockets on a train table that prevent cable damage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215013.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. “This bicolor tree”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215014.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. “Lost my wedding ring a month ago, bought a new one today. Also, today...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. This Muscovy duck has a flying duck on its feathers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/091656/87215205/87210920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “A bee flew toward the camera at the exact moment we took a picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. . “At my local Fresh Field.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215011.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">Hikers Encounter Strange Being in The Wild, Regret It Instantly</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/010452/87215305/bigfoot-extra-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87215303.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
