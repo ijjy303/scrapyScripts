@@ -1,7 +1,73 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/16/2022-19:47:18
+Last updated: 07/16/2022-20:47:18
 <br>
-## <a href="#linky2" id="linky1">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
+## <a href="#linky2" id="linky1">Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
 
 <span style="font-size:4em">1. Is there anything better? I mean really.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030714/87216570/87130120.jpg" style="width:100%"><br>
 
@@ -87,197 +153,155 @@ Last updated: 07/16/2022-19:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">22 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky4" id="linky3">TV Shows That Started Strong Then Crapped the Bed</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Heroes, the biggest drop in quality after season 1.
+
+-u/scruntyboon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The Walking Dead. First few seasons were great with pretty good pacing. Later seasons devolve into telling one story at a time. They’d have a cliffhanger of a character maybe dying and do 3 weeks of other stories. By the time it gets back to the cliffhanger you have no idea what’s happening. That and it got repetitive.
+
+-u/THE_BANANA_SHOW
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
+<span style="font-size:4em">3. The Chilling Adventures of Sabrina. It was really cool. Then later on....Jesus Christ, the protagonist is a mary sue, everyone always listens to her, you can always guarantee none of her friends will die and you can always feel like the trouble she gets herself and her friends into arent threatening. What a waste.
+
+-u/FleshOrb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216223.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The Blacklist, so many loopholes and a never-ending plot. I mean, the female hero was wanted and had her pictures broadcast nationwide live, but a couple of weeks after she can do undercover work.
+
+-u/TheReal_KindStranger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Arrow. Its what happens when you try to make so many seasons for a show meant for only a few.
+
+-u/MiZe97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216225.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Castle. By the end of filming the two main leads hated each other… and you can tell! They had to come up with wacky storylines to keep them apart.
+
+-u/Sherlockssocks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Weeds. A hilarious and intriguing show that slowly grew to be about a bunch of unlikable a**holes making bad, selfish decisions. When theres no one with any redeeming characteristics, theres no one for the audience to get behind.
+
+-u/rushandblue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Once Upon a Time. The first 3 seasons were good! And then after that they just kept getting worse.
+
+-u/bog--wizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Not the worst offender, but That 70s Show tanked pretty hard once Eric left. He was sorely needed to make the chemistry of the group work.
+
+-u/Cleverbird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216229.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Suits. Loved the premise and first couple of seasons, but later it turned into just stupid drama between the characters and less about actual law.
+
+-u/yuriydee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. House of Cards. The first two seasons were amazing. After that it started to get progressively worse. IMO, it should have been 2 seasons of him reaching the presidency, and then 2 seasons of everything going downhill. 4 seasons total, 1 for each suit of cards. 2 for building the house of cards, 2 for making it fall apart.
+
+-u/usernameunavaliable</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Greys Anatomy 100%. The show was great, but I just cant keep up with all the twists and turns and freaky accidents anymore. Its also a lot less funny. It should have ended seasons ago.
+
+-u/Classic-Breakfast-72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. How to Get Away with Murder. The first season had some intrigue and plot...and then they just start murdering people left and right after that.
+
+-u/mbdallas95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Pretty Little Liars. I was addicted to this show but it could have ended in season 2.
+
+-u/CaoCaramelo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. True Blood. When the fairies entered the picture, I exited.
+
+-u/toxic_pantaloons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The Flash on CW. 
+
+-u/DiegoDynomite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Bones. At first it was a fresh setting for a procedural with likable, developed characters. But then Brennan got Flanderized hard starting around S4 and it was never the same.
+
+-u/monoDK13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Dexter was great but peaked at the end of season 4. Could not stand the last two seasons.
+
+-u/0rbitaI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Sliders. Went downhill after season 3, by season 5 it was ... meh.
+
+-u/NoAssemblyReqd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
+<span style="font-size:4em">20. I actually think that Glee was like a fun guilty pleasure show when it first came out.
+Then after like 4-6 episodes there was a writers strike and when it finally came back it just got worse and worse until it was unwatchable.
+
+-u/ClockNo4364</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Catfish. Was a fun watch at the start, but it just devolved into fake, staged tripe. Not sure it was ever real tbf, but at least at the start it was somewhat believable.
+
+-u/HairoftheDog89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Falling Skies had cool things every season, but they were definitely running out of quality ideas or writers by Season 4. That finale was a joke also.
+
+-u/king0pa1n</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Riverdale. Im not convinced the guy who writes Riverdale has ever spoken to a real teenager.
+I stick this one out purely for the hilarity of it. Archie and the gang have super powers now and are fighting an evil wizard (I am not making that up).
+ 
+-u/VeryDPP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Designated Survivor. It started out very much like a modern day West Wing. But a key plot arc involved one of the key characters deliberately withholding his HIV status from his boyfriend. Thats bad enough, but the show went on to vilify the boyfriend for being justifiably angry. Because f*ck consent, am I right?
+
+-u/CatOfTheDecade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Happy Days! Once Fonzie jumped the shark, while waterskiing and wearing his jacket, the show just got progressively worse.
+
+-u/Medicivich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216245.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">30 Disturbing Facts About The Ocean</a><br>
+## <a href="#linky5" id="linky4">20 Extremely Disturbing Facts About The Kardashians</a><br>
 
-<span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe.
-It’s from fishing nets and fishing gear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215169.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Only 5% of the entire ocean in the world has been discovered, that means that there is still 95% unmapped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215170.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. When a whale dies, it creates a whole new ecosystem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215168.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hot tub of despair is a lake under the ocean, in the gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215171.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I’m a scuba diver and one thing that really scared me when I first started off diving, you hear SO MUCH more underwater then you ever will above on the surface, I’m not even talking about like the shifting or just the water itself moving, your hear things like fish clicking and other things like that, cuz underwater sounds move and travel a lot more so you hear a lot more and much quicker, was pretty out of nowhere when I first went under</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215172.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215173.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The largest biomass migration takes place every night when deep sea animals come up to feed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215174.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood.
-
-Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215175.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention.
-
-I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215176.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source.
-
-The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215177.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Ocean Acidification.
-
-Increasing concentrations of atmospheric carbon dioxide (CO2) lead to higher concentrations of dissolved CO2 in surface seawater. This results in ocean acidification, which may affect the growth of the photosynthetic phytoplankton that form the basis of marine food webs.
-
-So, total marine ecosystem collapse due to greenhouse emissions, the ocean produces more than half of the oxygen on earth, so that doesnt bode well for us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215178.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. We dont really know whats it in I can say that for thousands of years we drew sea monsters beliving they lived in it. Surprising alot of stuff we found in those pictures were in the ocean. (Giant Squid recently ). Just makes you think what else is actually down there that we dont know about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215180.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. There are parts of the ocean which are dead no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215181.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. There are more viruses in the ocean than there are stars in the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215182.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. 94% of the Earths oceans are just pitch black darkness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215183.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The Mauna Kea Volcano in Hawaii is the both the tallest Undersea mountain and the tallest volcano Hawaii. It sits 6000 meters below the surface of the ocean and stands a staggering 4000m above. Giving it an overall height from ocean floor to peak of 10,000m.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215184.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. If you commit suicide by jumping off a ship in deep water you will never be found, happens often enough on cruise ships, in those warm waters youll be nibbled away before you gain buoyancy and return to the surface</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215185.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Point Nemo is the most isolated place in the world. Its in the middle of the South Pacific gyre, which is a massive rotating current that basically keeps any nutrients rich water from ever getting in. So there is no sea life anywhere to be found except for a few crabs and bacteria that live near some thermal vents on the ocean floor. Its so far away from any land that if you sailed there the closest people would be on the international space station. This is the location HP Lovecraft was describing when he provided the location of R’Lyeh where Cthulu and the other old ones love, although Lovecrafts coordinates were slightly off.
-
-And in 1997 the loudest unidentified underwater sound ever recorded, known as the bloop, originated near there. It was loud enough that it was recorded from multiple sensors 5000 miles apart and lasted for over a minute.
-
-The prevailing theory is that it was ice cracking off the south pole but we dont actually know what caused it for sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215186.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b***h who couldnt care less whether I live or die.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The fact that scientists think we have discovered more of outer space than we have of the oceans just scares me considering we don’t even know how big our universe is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Dolphins will r*pe almost any living thing, including humans.
-
-They do thus so much to the point where sharks are scared to go near them.
-
-Also Whales dont die of old age
-
-Rather, as they become older, their muscles become weaker causing them to not be able to swim and, as a result, drown, meaning that its almost impossible for a whale to die of old age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Each ocean is a mass gravesite and we all go swimming in it and some of us end up in it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Its well known but I feel like people just disregard how much stuff weve lost in the ocean.
-
-Like important pieces of history, military ships, planes, PEOPLE.
-
-And its not just recent history? Like we still are finding ancient ships and mechanical things, skeletal remains and so on.
-
-
-That and all the statues and cities and things weve found sunk is incredibly terrifying. Because we just didnt know they were there?
-
-Like not including the things we havent explored in the ocean thats native to the ocean, we have so much stuff to find in there.
-
-Like we still *technically* dont know what happened to Amelia Earhart. We think we found what mightve been her remains on an island but we dont know if that was her or not. And wheres her plane?
-
-Not to mention that while we have no clue how common it is people dump bodies in the ocean.
-
-Like. The ocean is a massive graveyard for bodies, vehicles and history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. 90%of the sea-biomass is located in the deepsea, and 60% of the deep sea biomass is only lantern fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Blue Whales cum 20 liters of sperm each time they ejaculate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move.
-
-He specifically mentioned how he had to get used to having large things bump into him in the pitch black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215196.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">WikiHow Lifehack Memes to Get through Another Day</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033724/87216601/alarm.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033730/87216602/bird.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033737/87216603/break.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033748/87216605/dog.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033753/87216606/friend.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033741/87216604/cream.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033759/87216607/gf.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033804/87216608/hide.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033811/87216609/hug.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033816/87216610/karen.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033828/87216611/kid.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033831/87216612/pups.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033839/87216613/summon.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033842/87216614/tax.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033854/87216616/torch.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033852/87216615/tie.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033904/87216617/upvote.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
+<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -517,115 +541,7 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">TV Shows That Started Strong Then Crapped the Bed</a><br>
-
-<span style="font-size:4em">1. Heroes, the biggest drop in quality after season 1.
-
--u/scruntyboon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The Walking Dead. First few seasons were great with pretty good pacing. Later seasons devolve into telling one story at a time. They’d have a cliffhanger of a character maybe dying and do 3 weeks of other stories. By the time it gets back to the cliffhanger you have no idea what’s happening. That and it got repetitive.
-
--u/THE_BANANA_SHOW
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Chilling Adventures of Sabrina. It was really cool. Then later on....Jesus Christ, the protagonist is a mary sue, everyone always listens to her, you can always guarantee none of her friends will die and you can always feel like the trouble she gets herself and her friends into arent threatening. What a waste.
-
--u/FleshOrb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Blacklist, so many loopholes and a never-ending plot. I mean, the female hero was wanted and had her pictures broadcast nationwide live, but a couple of weeks after she can do undercover work.
-
--u/TheReal_KindStranger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Arrow. Its what happens when you try to make so many seasons for a show meant for only a few.
-
--u/MiZe97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Castle. By the end of filming the two main leads hated each other… and you can tell! They had to come up with wacky storylines to keep them apart.
-
--u/Sherlockssocks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Weeds. A hilarious and intriguing show that slowly grew to be about a bunch of unlikable a**holes making bad, selfish decisions. When theres no one with any redeeming characteristics, theres no one for the audience to get behind.
-
--u/rushandblue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Once Upon a Time. The first 3 seasons were good! And then after that they just kept getting worse.
-
--u/bog--wizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Not the worst offender, but That 70s Show tanked pretty hard once Eric left. He was sorely needed to make the chemistry of the group work.
-
--u/Cleverbird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Suits. Loved the premise and first couple of seasons, but later it turned into just stupid drama between the characters and less about actual law.
-
--u/yuriydee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. House of Cards. The first two seasons were amazing. After that it started to get progressively worse. IMO, it should have been 2 seasons of him reaching the presidency, and then 2 seasons of everything going downhill. 4 seasons total, 1 for each suit of cards. 2 for building the house of cards, 2 for making it fall apart.
-
--u/usernameunavaliable</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Greys Anatomy 100%. The show was great, but I just cant keep up with all the twists and turns and freaky accidents anymore. Its also a lot less funny. It should have ended seasons ago.
-
--u/Classic-Breakfast-72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. How to Get Away with Murder. The first season had some intrigue and plot...and then they just start murdering people left and right after that.
-
--u/mbdallas95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Pretty Little Liars. I was addicted to this show but it could have ended in season 2.
-
--u/CaoCaramelo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. True Blood. When the fairies entered the picture, I exited.
-
--u/toxic_pantaloons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Flash on CW. 
-
--u/DiegoDynomite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bones. At first it was a fresh setting for a procedural with likable, developed characters. But then Brennan got Flanderized hard starting around S4 and it was never the same.
-
--u/monoDK13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Dexter was great but peaked at the end of season 4. Could not stand the last two seasons.
-
--u/0rbitaI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Sliders. Went downhill after season 3, by season 5 it was ... meh.
-
--u/NoAssemblyReqd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I actually think that Glee was like a fun guilty pleasure show when it first came out.
-Then after like 4-6 episodes there was a writers strike and when it finally came back it just got worse and worse until it was unwatchable.
-
--u/ClockNo4364</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Catfish. Was a fun watch at the start, but it just devolved into fake, staged tripe. Not sure it was ever real tbf, but at least at the start it was somewhat believable.
-
--u/HairoftheDog89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Falling Skies had cool things every season, but they were definitely running out of quality ideas or writers by Season 4. That finale was a joke also.
-
--u/king0pa1n</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Riverdale. Im not convinced the guy who writes Riverdale has ever spoken to a real teenager.
-I stick this one out purely for the hilarity of it. Archie and the gang have super powers now and are fighting an evil wizard (I am not making that up).
- 
--u/VeryDPP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Designated Survivor. It started out very much like a modern day West Wing. But a key plot arc involved one of the key characters deliberately withholding his HIV status from his boyfriend. Thats bad enough, but the show went on to vilify the boyfriend for being justifiably angry. Because f*ck consent, am I right?
-
--u/CatOfTheDecade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Happy Days! Once Fonzie jumped the shark, while waterskiing and wearing his jacket, the show just got progressively worse.
-
--u/Medicivich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216245.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">20 Lesser-Known Facts About Dave Chappelle</a><br>
+## <a href="#linky11" id="linky10">20 Lesser-Known Facts About Dave Chappelle</a><br>
 
 <span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
 
@@ -669,7 +585,157 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">24 Depressing Facts We Finally Made Peace With</a><br>
+## <a href="#linky12" id="linky11">30 Disturbing Facts About The Ocean</a><br>
+
+<span style="font-size:4em">1. When you dip your toe in the water you are no longer at the top of the food chain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Most of the plastic pollution in the ocean is not from straws, shopping bags, or consumer items as most of us were led to believe.
+It’s from fishing nets and fishing gear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Only 5% of the entire ocean in the world has been discovered, that means that there is still 95% unmapped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. When a whale dies, it creates a whole new ecosystem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Hot tub of despair is a lake under the ocean, in the gulf of Mexico. It is highly concentrated with salt and has dissolved methane. Any creature that enters dies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I’m a scuba diver and one thing that really scared me when I first started off diving, you hear SO MUCH more underwater then you ever will above on the surface, I’m not even talking about like the shifting or just the water itself moving, your hear things like fish clicking and other things like that, cuz underwater sounds move and travel a lot more so you hear a lot more and much quicker, was pretty out of nowhere when I first went under</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lost sailors in the sea who cling to wreckage basically have their skin dissolved by salt water after soaking for more than 3 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The largest biomass migration takes place every night when deep sea animals come up to feed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. There are perfectly-preserved shipwrecks from ancient Greece preserved at the bottom of the Black Sea. The water is so deep that it becomes anoxic (oxygen free), which preserves organic materials like wood.
+
+Shipwrecks are cool, but I find the phenomenon a little disturbing, since there is probably no life down there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I tell new scuba divers this: The ocean doesn’t care about you. It’s not actively trying to kill you. But it will do a lot of things on its own that will absolutely kill you if you’re not prepared and paying attention.
+
+I realize this could apply to any natural environment but it feels much more apt when talking about the ocean. One wave that you weren’t prepared for can make your day pretty bad. For the ocean it’s just business as usual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The ocean is blue because all the other pigments are absorbed. So after a certain distance down everything thing becomes a monotone blue color, unless you have some other light source.
+
+The freaky part is if a diver gets cut underwater the blood looks black, like ink. All the red has long since been absorbed so there’s no wavelengths left to show you a red color when you bleed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ocean Acidification.
+
+Increasing concentrations of atmospheric carbon dioxide (CO2) lead to higher concentrations of dissolved CO2 in surface seawater. This results in ocean acidification, which may affect the growth of the photosynthetic phytoplankton that form the basis of marine food webs.
+
+So, total marine ecosystem collapse due to greenhouse emissions, the ocean produces more than half of the oxygen on earth, so that doesnt bode well for us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. We dont really know whats it in I can say that for thousands of years we drew sea monsters beliving they lived in it. Surprising alot of stuff we found in those pictures were in the ocean. (Giant Squid recently ). Just makes you think what else is actually down there that we dont know about.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There are parts of the ocean which are dead no oxygen in the water which means nothing can survive, no fish no plankton nothing at all. They are spreading exponentially. Whilst they are tiny now and have been. At the rate of growth. They’ll cause serious problems before the end of the century.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. There are more viruses in the ocean than there are stars in the Milky Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. 94% of the Earths oceans are just pitch black darkness.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Mauna Kea Volcano in Hawaii is the both the tallest Undersea mountain and the tallest volcano Hawaii. It sits 6000 meters below the surface of the ocean and stands a staggering 4000m above. Giving it an overall height from ocean floor to peak of 10,000m.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. If you commit suicide by jumping off a ship in deep water you will never be found, happens often enough on cruise ships, in those warm waters youll be nibbled away before you gain buoyancy and return to the surface</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Point Nemo is the most isolated place in the world. Its in the middle of the South Pacific gyre, which is a massive rotating current that basically keeps any nutrients rich water from ever getting in. So there is no sea life anywhere to be found except for a few crabs and bacteria that live near some thermal vents on the ocean floor. Its so far away from any land that if you sailed there the closest people would be on the international space station. This is the location HP Lovecraft was describing when he provided the location of R’Lyeh where Cthulu and the other old ones love, although Lovecrafts coordinates were slightly off.
+
+And in 1997 the loudest unidentified underwater sound ever recorded, known as the bloop, originated near there. It was loud enough that it was recorded from multiple sensors 5000 miles apart and lasted for over a minute.
+
+The prevailing theory is that it was ice cracking off the south pole but we dont actually know what caused it for sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. When sea creatures die in the ocean and their bones sink to the deep ocean floor, zombie worms eat the bones. The skin secretes an acid dissolving the bones, digesting the remaining fat and protein left behind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. It doesnt hate you. It doesnt love you. It doesnt even know you exist. When it destroys/capsizes your boat your boat didnt even cause a change in its movements. I am a sailor and I am in love with a cold heartless b***h who couldnt care less whether I live or die.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The sonar we use for deep sea mapping really screws up a number of species especially whales, dolphins and porpoises. Imagine walking around and a tornado alarm decibel-level noise triggers right next to you. We do that every time we use that high-powered sonar and it basically fs up their own sonar abilities causing them to be unable to communicate and navigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The fact that scientists think we have discovered more of outer space than we have of the oceans just scares me considering we don’t even know how big our universe is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Dolphins will r*pe almost any living thing, including humans.
+
+They do thus so much to the point where sharks are scared to go near them.
+
+Also Whales dont die of old age
+
+Rather, as they become older, their muscles become weaker causing them to not be able to swim and, as a result, drown, meaning that its almost impossible for a whale to die of old age</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Each ocean is a mass gravesite and we all go swimming in it and some of us end up in it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Just one millilitre of coastal water taken from the oceans surface can contain up to 10 million viruses. The number of viruses decreases further offshore and deeper into the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Its well known but I feel like people just disregard how much stuff weve lost in the ocean.
+
+Like important pieces of history, military ships, planes, PEOPLE.
+
+And its not just recent history? Like we still are finding ancient ships and mechanical things, skeletal remains and so on.
+
+
+That and all the statues and cities and things weve found sunk is incredibly terrifying. Because we just didnt know they were there?
+
+Like not including the things we havent explored in the ocean thats native to the ocean, we have so much stuff to find in there.
+
+Like we still *technically* dont know what happened to Amelia Earhart. We think we found what mightve been her remains on an island but we dont know if that was her or not. And wheres her plane?
+
+Not to mention that while we have no clue how common it is people dump bodies in the ocean.
+
+Like. The ocean is a massive graveyard for bodies, vehicles and history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. 90%of the sea-biomass is located in the deepsea, and 60% of the deep sea biomass is only lantern fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Blue Whales cum 20 liters of sperm each time they ejaculate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I remember watching a YouTube interview with a military diver. He described how when you’re doing a covert op you spend a lot of time just underwater doing nothing with no lights on until it’s time to move.
+
+He specifically mentioned how he had to get used to having large things bump into him in the pitch black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87215196.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">22 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">24 Depressing Facts We Finally Made Peace With</a><br>
 
 <span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
 
@@ -721,7 +787,7 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">20 Modern Trends That Need to End ASAP</a><br>
+## <a href="#linky15" id="linky14">20 Modern Trends That Need to End ASAP</a><br>
 
 <span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
 
@@ -765,113 +831,47 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky16" id="linky15">WikiHow Lifehack Memes to Get through Another Day</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033724/87216601/alarm.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033730/87216602/bird.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033737/87216603/break.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033748/87216605/dog.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033753/87216606/friend.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033741/87216604/cream.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033759/87216607/gf.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033804/87216608/hide.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033811/87216609/hug.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033816/87216610/karen.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033828/87216611/kid.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033831/87216612/pups.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033839/87216613/summon.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033842/87216614/tax.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033854/87216616/torch.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033852/87216615/tie.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033904/87216617/upvote.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">20 Extremely Disturbing Facts About The Kardashians</a><br>
-
-<span style="font-size:4em">1. According to a study out of the London School of Economics and Political Science, watching shows like “Keeping Up With the Kardashians” can make you less sympathetic to the plight of the poor. - u/coolhandc77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Kim Kardashian sued Old Navy claiming the use of Canadian actress Melissa Molinaro violated her publicity rights by using a lookalike in an ad. Old Navy countered that the actress was famous in her own right and the case was settled out of court. - u/AudibleNod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Kim Kardashian was paid to post a selfie on Instagram and Twitter advertising a pharmaceutical product. Sent to 42 million followers on Instagram and 32 million on Twitter, this illegal advertisement did not contain any risk information or language specifying that it was a paid endorsement. - u/PM-ME_YOUR_TITS-GIRL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 2011 more than 70,000 signed a petition to cancel the Keeping Up With The Kardashians TV series. - u/NervousMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The father of the Kardashians was O.J. Simpsons defense attorney in his 1995 murder trial, and the two had known each other since roughly 1967. - u/Longboarding-Is-Life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ray J continues to make over $90,000 every 3 months from his sex tape with Kim Kardashian. It is the biggest selling sex tape ever, a title that was previously held by Pamela Anderson and Tommy Lees sex tape. - u/WhatTheFuckKanye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Kardashians 2007 sex tape continues to be a stable income for her, with $360K in yearly sales. - u/iajzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hollywood uses a measurement called Q scores to determine the likability of celebrities. The highest ranking celebrities include Tom Hanks and Morgan Freeman with 48 points, while Kim Kardashian was determined to have to lowest Q score with -71. - u/dracorus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There is a vocal fad popular among women called vocal fry and is a low-pitched, creaky-sounding speech inflection. A study found two-thirds of female college students in a small sample used it, possibly in order to fit into a social group. Kim Kardashians voice is an example. - u/gnarledout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In 2012, Keeping Up With the Kardashians TMZ reported the family will be paid over $40 million for the 3 seasons, making the deal the richest contract in reality TV history. - u/justano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Here Comes Honey Boo Boo and Keeping Up with the Kardashians are the two lowest rated television shows on IMDB.- u/TheeLEMONator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Companies pay Kardashian some $10,000 for every tweet about a product. - u/Emanresu2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Kim Kardashians App made $700,000/day. - u/donotbelieveit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Kanye West’s ex-wife (Kim Kardashian) and ex-girlfriend Amber Rose have the exact same birthday (Oct 21) with Kim being 3 years older. - u/caesaurus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Kardashians only came to the United States after a supposed child prophet foresaw the Armenian Genocide and urged them to uproot to America. - u/dogue9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kim Kardashian used to be Paris Hiltons personal assistant, she used to travel with her as her stylist, and at the same time she was taking notes on how to become the next Paris Hilton. - u/Thf82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Kardashians got Dave Grohl to stop smoking pot. - u/BSnIA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Kardashian Index was developed to correlate a scientists popularity on Twitter with their actual impact in peer-reviewed scientific journals. A high K-value means they may be over-rated and riding on Twitter rather than actual discoveries. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Kim Kardashians ring was 20.5 carats and the band was 12 carats!!!! -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In the Star Trek: The Next Generation episode The Wounded Picard and the crew battle with the Cardassians...which is a homophone for Kardashians. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215698.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
