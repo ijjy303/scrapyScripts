@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/16/2022-23:47:18
+Last updated: 07/17/2022-00:47:18
 <br>
 ## <a href="#linky2" id="linky1">32 Adult Film Stars Before and After Makeup</a><br>
 
@@ -69,59 +69,7 @@ Last updated: 07/16/2022-23:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">24 Depressing Facts We Finally Made Peace With</a><br>
-
-<span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. No one is coming to help. -u/_meddlin_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realize, but almost 3 years in Im kind of okay with it.They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally.Im aware of ongoing research but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky. -u/cripple2493</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Just because you think someone is the one, doesnt mean they think you are. -u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization. -u/mister_butlertron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Being alive is expensive. -u/kendawg710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Im aging nonstop. -u/insaight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My childhood is gone, and I have no good memory from that phase of my life. -u/anonymoose_mrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My depression is very likely chronic. Ill be living with it for the rest of my life. -u/SuperDurpPig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. You can do everything perfectly and still fail completely.That and…People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.  -u/GarzysBBQWings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. No matter how hard you love someone, they can fall out of love with you and there’s nothing you can do to fix it. Took me a lot of self-destruction and pain to realize it. Sometimes it just doesn’t work out. -u/texassadist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I’m a coward and it’s costing me. -u/Brianw-5902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities. -u/PoorPDOP86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Im likely destined for an average life. -u/EmperorKyoka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I will always fight my demons. There is no healing from it. -u/Regular_Perception_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ill never be comfortable financially. I have failed every attempt. I really did try. I promise you, I did. But nothings worked for me. I just have to accept it. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. We are all loved conditionally. -u/psychwarddicaprio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201473.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. The world doesn’t care if you’re a good person. Matter of fact, they’re preying on good people. -u/Cognac_Clinton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. That one day I won’t be alive and neither will anybody I love. -u/HonestSapphireLion24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My silent but deadly farts arent always as silent as I think they are. -u/s0apyjam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Im going to have to commit suicide when I get too old/tired to continue working. I live check to check and will never have the savings for any kind of retirement. -u/Prince_Daeron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This is coming from a firefighter:If you have to perform CPR on them, its most likely over for the patient.Im not sure if Ive made peace with it completely, but Ive accepted it at least. -u/Rukhnul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. That at the end of the day, the only one I can rely on is myself. -u/tonio0317</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A friendship you thought would last forever can end in an instant. -u/Febreze4200</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201479.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">20 Lesser-Known Facts About Dave Chappelle</a><br>
+## <a href="#linky3" id="linky2">20 Lesser-Known Facts About Dave Chappelle</a><br>
 
 <span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
 
@@ -165,7 +113,7 @@ Last updated: 07/16/2022-23:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">WikiHow Lifehack Memes to Get through Another Day</a><br>
+## <a href="#linky4" id="linky3">WikiHow Lifehack Memes to Get through Another Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
 
@@ -206,6 +154,56 @@ Last updated: 07/16/2022-23:47:18
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">23 Lowbrow Memes for Dirty Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114846/87216201/87213840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114849/87216202/87213833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114837/87216200/87213832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114834/87216199/87213826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216203/87213843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216204/87215886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114911/87216205/87215902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114826/87216198/87213822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114921/87216206/87215889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114923/87216207/87215908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114933/87216209/87215927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114941/87216210/87215930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212710.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -481,53 +479,55 @@ Last updated: 07/16/2022-23:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">23 Lowbrow Memes for Dirty Minds</a><br>
+## <a href="#linky11" id="linky10">24 Depressing Facts We Finally Made Peace With</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114846/87216201/87213840.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114849/87216202/87213833.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. No one is coming to help. -u/_meddlin_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114837/87216200/87213832.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realize, but almost 3 years in Im kind of okay with it.They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally.Im aware of ongoing research but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky. -u/cripple2493</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114834/87216199/87213826.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Just because you think someone is the one, doesnt mean they think you are. -u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216203/87213843.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization. -u/mister_butlertron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114859/87216204/87215886.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Being alive is expensive. -u/kendawg710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114911/87216205/87215902.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Im aging nonstop. -u/insaight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114826/87216198/87213822.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. My childhood is gone, and I have no good memory from that phase of my life. -u/anonymoose_mrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114921/87216206/87215889.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. My depression is very likely chronic. Ill be living with it for the rest of my life. -u/SuperDurpPig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114923/87216207/87215908.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. You can do everything perfectly and still fail completely.That and…People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.  -u/GarzysBBQWings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114933/87216209/87215927.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. No matter how hard you love someone, they can fall out of love with you and there’s nothing you can do to fix it. Took me a lot of self-destruction and pain to realize it. Sometimes it just doesn’t work out. -u/texassadist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/114941/87216210/87215930.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I’m a coward and it’s costing me. -u/Brianw-5902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212696.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities. -u/PoorPDOP86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212708.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Im likely destined for an average life. -u/EmperorKyoka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212712.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I will always fight my demons. There is no healing from it. -u/Regular_Perception_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212697.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Ill never be comfortable financially. I have failed every attempt. I really did try. I promise you, I did. But nothings worked for me. I just have to accept it. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212679.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. We are all loved conditionally. -u/psychwarddicaprio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201473.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212691.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The world doesn’t care if you’re a good person. Matter of fact, they’re preying on good people. -u/Cognac_Clinton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212693.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. That one day I won’t be alive and neither will anybody I love. -u/HonestSapphireLion24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212695.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. My silent but deadly farts arent always as silent as I think they are. -u/s0apyjam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212694.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Im going to have to commit suicide when I get too old/tired to continue working. I live check to check and will never have the savings for any kind of retirement. -u/Prince_Daeron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212703.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. This is coming from a firefighter:If you have to perform CPR on them, its most likely over for the patient.Im not sure if Ive made peace with it completely, but Ive accepted it at least. -u/Rukhnul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212710.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. That at the end of the day, the only one I can rely on is myself. -u/tonio0317</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A friendship you thought would last forever can end in an instant. -u/Febreze4200</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201479.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -681,117 +681,7 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Fresh Pics And Memes For The Exquisite Minds</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">20 Modern Trends That Need to End ASAP</a><br>
-
-<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">TV Shows That Started Strong Then Crapped the Bed</a><br>
+## <a href="#linky14" id="linky13">TV Shows That Started Strong Then Crapped the Bed</a><br>
 
 <span style="font-size:4em">1. Heroes, the biggest drop in quality after season 1.
 
@@ -896,6 +786,116 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 <span style="font-size:4em">25. Happy Days! Once Fonzie jumped the shark, while waterskiing and wearing his jacket, the show just got progressively worse.
 
 -u/Medicivich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216245.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">20 Modern Trends That Need to End ASAP</a><br>
+
+<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
