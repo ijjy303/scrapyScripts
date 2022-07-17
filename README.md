@@ -1,7 +1,59 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/17/2022-04:47:18
+Last updated: 07/17/2022-05:47:18
 <br>
-## <a href="#linky2" id="linky1">32 Adult Film Stars Before and After Makeup</a><br>
+## <a href="#linky2" id="linky1">24 Depressing Facts We Finally Made Peace With</a><br>
+
+<span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. No one is coming to help. -u/_meddlin_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realize, but almost 3 years in Im kind of okay with it.They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally.Im aware of ongoing research but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky. -u/cripple2493</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Just because you think someone is the one, doesnt mean they think you are. -u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization. -u/mister_butlertron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Being alive is expensive. -u/kendawg710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Im aging nonstop. -u/insaight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My childhood is gone, and I have no good memory from that phase of my life. -u/anonymoose_mrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. My depression is very likely chronic. Ill be living with it for the rest of my life. -u/SuperDurpPig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. You can do everything perfectly and still fail completely.That and…People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.  -u/GarzysBBQWings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. No matter how hard you love someone, they can fall out of love with you and there’s nothing you can do to fix it. Took me a lot of self-destruction and pain to realize it. Sometimes it just doesn’t work out. -u/texassadist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I’m a coward and it’s costing me. -u/Brianw-5902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities. -u/PoorPDOP86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Im likely destined for an average life. -u/EmperorKyoka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I will always fight my demons. There is no healing from it. -u/Regular_Perception_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ill never be comfortable financially. I have failed every attempt. I really did try. I promise you, I did. But nothings worked for me. I just have to accept it. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. We are all loved conditionally. -u/psychwarddicaprio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201473.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. The world doesn’t care if you’re a good person. Matter of fact, they’re preying on good people. -u/Cognac_Clinton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. That one day I won’t be alive and neither will anybody I love. -u/HonestSapphireLion24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. My silent but deadly farts arent always as silent as I think they are. -u/s0apyjam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Im going to have to commit suicide when I get too old/tired to continue working. I live check to check and will never have the savings for any kind of retirement. -u/Prince_Daeron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is coming from a firefighter:If you have to perform CPR on them, its most likely over for the patient.Im not sure if Ive made peace with it completely, but Ive accepted it at least. -u/Rukhnul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. That at the end of the day, the only one I can rely on is myself. -u/tonio0317</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A friendship you thought would last forever can end in an instant. -u/Febreze4200</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201479.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">32 Adult Film Stars Before and After Makeup</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211166.jpg" style="width:100%"><br>
 
@@ -69,99 +121,111 @@ Last updated: 07/17/2022-04:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">24 Depressing Facts We Finally Made Peace With</a><br>
+## <a href="#linky4" id="linky3">TV Shows That Started Strong Then Crapped the Bed</a><br>
 
-<span style="font-size:4em">1. Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them. -u/girlloss </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201456.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Heroes, the biggest drop in quality after season 1.
+
+-u/scruntyboon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. No one is coming to help. -u/_meddlin_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201460.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The Walking Dead. First few seasons were great with pretty good pacing. Later seasons devolve into telling one story at a time. They’d have a cliffhanger of a character maybe dying and do 3 weeks of other stories. By the time it gets back to the cliffhanger you have no idea what’s happening. That and it got repetitive.
+
+-u/THE_BANANA_SHOW
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realize, but almost 3 years in Im kind of okay with it.They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally.Im aware of ongoing research but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky. -u/cripple2493</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201464.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Chilling Adventures of Sabrina. It was really cool. Then later on....Jesus Christ, the protagonist is a mary sue, everyone always listens to her, you can always guarantee none of her friends will die and you can always feel like the trouble she gets herself and her friends into arent threatening. What a waste.
+
+-u/FleshOrb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216223.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Just because you think someone is the one, doesnt mean they think you are. -u/ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201463.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The Blacklist, so many loopholes and a never-ending plot. I mean, the female hero was wanted and had her pictures broadcast nationwide live, but a couple of weeks after she can do undercover work.
+
+-u/TheReal_KindStranger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization. -u/mister_butlertron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201458.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Arrow. Its what happens when you try to make so many seasons for a show meant for only a few.
+
+-u/MiZe97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216225.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Being alive is expensive. -u/kendawg710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201459.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Castle. By the end of filming the two main leads hated each other… and you can tell! They had to come up with wacky storylines to keep them apart.
+
+-u/Sherlockssocks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Im aging nonstop. -u/insaight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201461.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Weeds. A hilarious and intriguing show that slowly grew to be about a bunch of unlikable a**holes making bad, selfish decisions. When theres no one with any redeeming characteristics, theres no one for the audience to get behind.
+
+-u/rushandblue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My childhood is gone, and I have no good memory from that phase of my life. -u/anonymoose_mrx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201462.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Once Upon a Time. The first 3 seasons were good! And then after that they just kept getting worse.
+
+-u/bog--wizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. My depression is very likely chronic. Ill be living with it for the rest of my life. -u/SuperDurpPig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201465.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Not the worst offender, but That 70s Show tanked pretty hard once Eric left. He was sorely needed to make the chemistry of the group work.
+
+-u/Cleverbird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216229.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. You can do everything perfectly and still fail completely.That and…People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.  -u/GarzysBBQWings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201466.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Suits. Loved the premise and first couple of seasons, but later it turned into just stupid drama between the characters and less about actual law.
+
+-u/yuriydee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216230.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. No matter how hard you love someone, they can fall out of love with you and there’s nothing you can do to fix it. Took me a lot of self-destruction and pain to realize it. Sometimes it just doesn’t work out. -u/texassadist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201467.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. House of Cards. The first two seasons were amazing. After that it started to get progressively worse. IMO, it should have been 2 seasons of him reaching the presidency, and then 2 seasons of everything going downhill. 4 seasons total, 1 for each suit of cards. 2 for building the house of cards, 2 for making it fall apart.
+
+-u/usernameunavaliable</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216231.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I’m a coward and it’s costing me. -u/Brianw-5902</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201468.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Greys Anatomy 100%. The show was great, but I just cant keep up with all the twists and turns and freaky accidents anymore. Its also a lot less funny. It should have ended seasons ago.
+
+-u/Classic-Breakfast-72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities. -u/PoorPDOP86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201469.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. How to Get Away with Murder. The first season had some intrigue and plot...and then they just start murdering people left and right after that.
+
+-u/mbdallas95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216233.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Im likely destined for an average life. -u/EmperorKyoka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201470.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Pretty Little Liars. I was addicted to this show but it could have ended in season 2.
+
+-u/CaoCaramelo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216234.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I will always fight my demons. There is no healing from it. -u/Regular_Perception_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201471.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. True Blood. When the fairies entered the picture, I exited.
+
+-u/toxic_pantaloons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216235.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Ill never be comfortable financially. I have failed every attempt. I really did try. I promise you, I did. But nothings worked for me. I just have to accept it. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201472.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The Flash on CW. 
+
+-u/DiegoDynomite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216236.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. We are all loved conditionally. -u/psychwarddicaprio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201473.png" style="width:100%"><br>
+<span style="font-size:4em">17. Bones. At first it was a fresh setting for a procedural with likable, developed characters. But then Brennan got Flanderized hard starting around S4 and it was never the same.
+
+-u/monoDK13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. The world doesn’t care if you’re a good person. Matter of fact, they’re preying on good people. -u/Cognac_Clinton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201474.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Dexter was great but peaked at the end of season 4. Could not stand the last two seasons.
+
+-u/0rbitaI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. That one day I won’t be alive and neither will anybody I love. -u/HonestSapphireLion24</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201475.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Sliders. Went downhill after season 3, by season 5 it was ... meh.
+
+-u/NoAssemblyReqd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. My silent but deadly farts arent always as silent as I think they are. -u/s0apyjam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201476.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. I actually think that Glee was like a fun guilty pleasure show when it first came out.
+Then after like 4-6 episodes there was a writers strike and when it finally came back it just got worse and worse until it was unwatchable.
+
+-u/ClockNo4364</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Im going to have to commit suicide when I get too old/tired to continue working. I live check to check and will never have the savings for any kind of retirement. -u/Prince_Daeron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201477.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Catfish. Was a fun watch at the start, but it just devolved into fake, staged tripe. Not sure it was ever real tbf, but at least at the start it was somewhat believable.
+
+-u/HairoftheDog89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This is coming from a firefighter:If you have to perform CPR on them, its most likely over for the patient.Im not sure if Ive made peace with it completely, but Ive accepted it at least. -u/Rukhnul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201457.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Falling Skies had cool things every season, but they were definitely running out of quality ideas or writers by Season 4. That finale was a joke also.
+
+-u/king0pa1n</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. That at the end of the day, the only one I can rely on is myself. -u/tonio0317</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201478.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Riverdale. Im not convinced the guy who writes Riverdale has ever spoken to a real teenager.
+I stick this one out purely for the hilarity of it. Archie and the gang have super powers now and are fighting an evil wizard (I am not making that up).
+ 
+-u/VeryDPP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. A friendship you thought would last forever can end in an instant. -u/Febreze4200</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87201479.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Designated Survivor. It started out very much like a modern day West Wing. But a key plot arc involved one of the key characters deliberately withholding his HIV status from his boyfriend. Thats bad enough, but the show went on to vilify the boyfriend for being justifiably angry. Because f*ck consent, am I right?
+
+-u/CatOfTheDecade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216244.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">20 Modern Trends That Need to End ASAP</a><br>
-
-<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Happy Days! Once Fonzie jumped the shark, while waterskiing and wearing his jacket, the show just got progressively worse.
+
+-u/Medicivich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216245.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -333,75 +397,7 @@ Last updated: 07/17/2022-04:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">32 Depressing Pics that Are a Sign of the Times</a><br>
-
-<span style="font-size:4em">1. If only there was a natural form of shade that humans could use when sitting in the sun. Hmm. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122115/87216247/hilarious-pics-of-life28.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Im a broke king.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122120/87216248/hilarious-pics-of-life13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. There wasnt a better place to put this? </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122126/87216249/hilarious-pics-of-life26.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Expired Pop. Thanks, management, this means a lot. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122132/87216250/hilarious-pics-of-life9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. When future historians study the 2020s this photo will break their damn minds. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122138/87216251/hilarious-pics-of-life6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. What is the point of this? To feel depressed while eating? Rude. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122144/87216252/hilarious-pics-of-life7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Sorry, but that isnt real grass kid. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122149/87216253/hilarious-pics-of-life18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Of course. Bedazzled covid tests, because why the hell not. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122155/87216254/hilarious-pics-of-life23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Lmao. This is just sad. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122157/87216255/hilarious-pics-of-life11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Now they have ads in fortune cookies? Is nothing sacred? </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122201/87216256/hilarious-pics-of-life25.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Because after you get into a car crash, taking a selfie on the side of the road is an obvious choice. Maybe it was for their insurance companies? Could they be on the same plan? </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122206/87216257/hilarious-pics-of-life27.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Make it STOP. Please, make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122208/87216258/hilarious-pics-of-life24.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Sign of the times. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122214/87216259/hilarious-pics-of-life16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Ive seen bigger prison cells. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122217/87216260/hilarious-pics-of-life29.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122219/87216261/hilarious-pics-of-life19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122225/87216262/hilarious-pics-of-life21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122228/87216263/hilarious-pics-of-life30.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Being lazy isnt all bad, but people who do this cant complain when it takes forever to get their drinks. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122231/87216264/hilarious-pics-of-life31.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Sad. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122236/87216265/hilarious-pics-of-life32.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Lmao, imagine seeing this in your doctors office. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122239/87216266/hilarious-pics-of-life20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122242/87216267/hilarious-pics-of-life22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122249/87216268/hilarious-pics-of-life15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. We take it back, this is the worst thing weve seen all week. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122251/87216269/hilarious-pics-of-life17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122254/87216270/hilarious-pics-of-life12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122300/87216271/hilarious-pics-of-life10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Turns out that was a lie. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122302/87216272/hilarious-pics-of-life5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Strap me in. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122305/87216273/hilarious-pics-of-life14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Gotta share this one with the girls. #justgirlythings </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122311/87216274/hilarious-pics-of-life8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. This has to be fake, right? No way. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122314/87216275/hilarious-pics-of-life4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122320/87216276/hilarious-pics-of-life2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122324/87216277/hilarious-pics-of-life3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. You go girl! </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122326/87216278/hilarious-pics-of-life1.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
+## <a href="#linky9" id="linky8">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
 
 <span style="font-size:4em">1. Is there anything better? I mean really.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030714/87216570/87130120.jpg" style="width:100%"><br>
 
@@ -487,115 +483,7 @@ Last updated: 07/17/2022-04:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">TV Shows That Started Strong Then Crapped the Bed</a><br>
-
-<span style="font-size:4em">1. Heroes, the biggest drop in quality after season 1.
-
--u/scruntyboon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The Walking Dead. First few seasons were great with pretty good pacing. Later seasons devolve into telling one story at a time. They’d have a cliffhanger of a character maybe dying and do 3 weeks of other stories. By the time it gets back to the cliffhanger you have no idea what’s happening. That and it got repetitive.
-
--u/THE_BANANA_SHOW
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Chilling Adventures of Sabrina. It was really cool. Then later on....Jesus Christ, the protagonist is a mary sue, everyone always listens to her, you can always guarantee none of her friends will die and you can always feel like the trouble she gets herself and her friends into arent threatening. What a waste.
-
--u/FleshOrb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Blacklist, so many loopholes and a never-ending plot. I mean, the female hero was wanted and had her pictures broadcast nationwide live, but a couple of weeks after she can do undercover work.
-
--u/TheReal_KindStranger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Arrow. Its what happens when you try to make so many seasons for a show meant for only a few.
-
--u/MiZe97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Castle. By the end of filming the two main leads hated each other… and you can tell! They had to come up with wacky storylines to keep them apart.
-
--u/Sherlockssocks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Weeds. A hilarious and intriguing show that slowly grew to be about a bunch of unlikable a**holes making bad, selfish decisions. When theres no one with any redeeming characteristics, theres no one for the audience to get behind.
-
--u/rushandblue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Once Upon a Time. The first 3 seasons were good! And then after that they just kept getting worse.
-
--u/bog--wizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Not the worst offender, but That 70s Show tanked pretty hard once Eric left. He was sorely needed to make the chemistry of the group work.
-
--u/Cleverbird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Suits. Loved the premise and first couple of seasons, but later it turned into just stupid drama between the characters and less about actual law.
-
--u/yuriydee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. House of Cards. The first two seasons were amazing. After that it started to get progressively worse. IMO, it should have been 2 seasons of him reaching the presidency, and then 2 seasons of everything going downhill. 4 seasons total, 1 for each suit of cards. 2 for building the house of cards, 2 for making it fall apart.
-
--u/usernameunavaliable</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Greys Anatomy 100%. The show was great, but I just cant keep up with all the twists and turns and freaky accidents anymore. Its also a lot less funny. It should have ended seasons ago.
-
--u/Classic-Breakfast-72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. How to Get Away with Murder. The first season had some intrigue and plot...and then they just start murdering people left and right after that.
-
--u/mbdallas95</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Pretty Little Liars. I was addicted to this show but it could have ended in season 2.
-
--u/CaoCaramelo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. True Blood. When the fairies entered the picture, I exited.
-
--u/toxic_pantaloons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Flash on CW. 
-
--u/DiegoDynomite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bones. At first it was a fresh setting for a procedural with likable, developed characters. But then Brennan got Flanderized hard starting around S4 and it was never the same.
-
--u/monoDK13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Dexter was great but peaked at the end of season 4. Could not stand the last two seasons.
-
--u/0rbitaI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Sliders. Went downhill after season 3, by season 5 it was ... meh.
-
--u/NoAssemblyReqd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I actually think that Glee was like a fun guilty pleasure show when it first came out.
-Then after like 4-6 episodes there was a writers strike and when it finally came back it just got worse and worse until it was unwatchable.
-
--u/ClockNo4364</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Catfish. Was a fun watch at the start, but it just devolved into fake, staged tripe. Not sure it was ever real tbf, but at least at the start it was somewhat believable.
-
--u/HairoftheDog89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Falling Skies had cool things every season, but they were definitely running out of quality ideas or writers by Season 4. That finale was a joke also.
-
--u/king0pa1n</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Riverdale. Im not convinced the guy who writes Riverdale has ever spoken to a real teenager.
-I stick this one out purely for the hilarity of it. Archie and the gang have super powers now and are fighting an evil wizard (I am not making that up).
- 
--u/VeryDPP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Designated Survivor. It started out very much like a modern day West Wing. But a key plot arc involved one of the key characters deliberately withholding his HIV status from his boyfriend. Thats bad enough, but the show went on to vilify the boyfriend for being justifiably angry. Because f*ck consent, am I right?
-
--u/CatOfTheDecade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Happy Days! Once Fonzie jumped the shark, while waterskiing and wearing his jacket, the show just got progressively worse.
-
--u/Medicivich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216245.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">WikiHow Lifehack Memes to Get through Another Day</a><br>
+## <a href="#linky10" id="linky9">WikiHow Lifehack Memes to Get through Another Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033718/87216600/blind.png" style="width:100%"><br>
 
@@ -636,6 +524,98 @@ I stick this one out purely for the hilarity of it. Archie and the gang have sup
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033906/87216618/whale.png" style="width:100%"><br>
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/033916/87216619/white.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Modern Trends That Need to End ASAP</a><br>
+
+<span style="font-size:4em">1. The fact that EVERYTHING is an ad.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/044951/87215496/moderntrends1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The recording of people/animals in distress.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045002/87215497/moderntrends2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When people get into fights with their SO and blast it all over their socials.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045013/87215498/moderntrends4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Subscription services. Everything nowadays is being turned into a monthly bill.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045022/87215499/moderntrends3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not being able to watch videos without an ad, sponsor, or being told to like, comment, and subscribe. Which is ironic since you cant even comment on a lot of videos anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045024/87215500/moderntrends5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The subscription based economy.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045032/87215501/moderntrends6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The growing impact of Influencers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045035/87215502/moderntrends7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That modern news is no longer just an informational source of what is happening. It’s turned into a talk show.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045044/87215503/moderntrends8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045046/87215504/moderntrends9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Using mental health issues as an excuse for shitty behavior, especially when it’s a self-diagnosis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045055/87215505/moderntrends10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Puffy fake lips.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045100/87215506/moderntrends11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ignorant echo chambers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045106/87215507/moderntrends12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. People who video when something bad is happening instead of helping others.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045111/87215508/moderntrends13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The views/follows/friends obsession.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045117/87215509/moderntrends14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Inflation.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045122/87215510/moderntrends15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Those stupid reaction videos where someone is pointing at another video and nodding their head, or over emphasizing their facial expressions. It drives me nuts. How pathetic do you have to be?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045129/87215511/moderntrends16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Clickbait titles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045134/87215512/moderntrends17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Everything becoming monetized and for profit. Every hobby, every social media account, everything imaginable.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045140/87215513/moderntrends18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The desperation for attention or clout.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045145/87215514/moderntrends19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The abundance of people trying to be influencers/streamers, while the majority of them are about as interesting as a boil.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/14/045151/87215515/moderntrends20.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">22 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -741,55 +721,7 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">22 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215586.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215603.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87215605.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">20 Lesser-Known Facts About Dave Chappelle</a><br>
+## <a href="#linky14" id="linky13">20 Lesser-Known Facts About Dave Chappelle</a><br>
 
 <span style="font-size:4em">1. both Ice Cube and Dave Chappelle were offered the role of Bubba in Forrest Gump, but turned it down. - u/Zartog1022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215653.jpg" style="width:100%"><br>
 
@@ -833,69 +765,71 @@ He specifically mentioned how he had to get used to having large things bump int
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky15" id="linky14">32 Depressing Pics that Are a Sign of the Times</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214935.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. If only there was a natural form of shade that humans could use when sitting in the sun. Hmm. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122115/87216247/hilarious-pics-of-life28.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214936.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Im a broke king.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122120/87216248/hilarious-pics-of-life13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214937.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. There wasnt a better place to put this? </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122126/87216249/hilarious-pics-of-life26.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214938.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Expired Pop. Thanks, management, this means a lot. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122132/87216250/hilarious-pics-of-life9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214939.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. When future historians study the 2020s this photo will break their damn minds. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122138/87216251/hilarious-pics-of-life6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214940.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. What is the point of this? To feel depressed while eating? Rude. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122144/87216252/hilarious-pics-of-life7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214941.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Sorry, but that isnt real grass kid. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122149/87216253/hilarious-pics-of-life18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214942.png" style="width:100%"><br>
+<span style="font-size:4em">8. Of course. Bedazzled covid tests, because why the hell not. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122155/87216254/hilarious-pics-of-life23.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214943.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. Lmao. This is just sad. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122157/87216255/hilarious-pics-of-life11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214944.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. Now they have ads in fortune cookies? Is nothing sacred? </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122201/87216256/hilarious-pics-of-life25.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214945.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. Because after you get into a car crash, taking a selfie on the side of the road is an obvious choice. Maybe it was for their insurance companies? Could they be on the same plan? </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122206/87216257/hilarious-pics-of-life27.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214946.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. Make it STOP. Please, make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122208/87216258/hilarious-pics-of-life24.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214947.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. Sign of the times. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122214/87216259/hilarious-pics-of-life16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214948.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Ive seen bigger prison cells. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122217/87216260/hilarious-pics-of-life29.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214949.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122219/87216261/hilarious-pics-of-life19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214950.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122225/87216262/hilarious-pics-of-life21.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214951.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122228/87216263/hilarious-pics-of-life30.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214952.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Being lazy isnt all bad, but people who do this cant complain when it takes forever to get their drinks. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122231/87216264/hilarious-pics-of-life31.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214953.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. Sad. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122236/87216265/hilarious-pics-of-life32.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214954.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. Lmao, imagine seeing this in your doctors office. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122239/87216266/hilarious-pics-of-life20.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214955.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122242/87216267/hilarious-pics-of-life22.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214956.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122249/87216268/hilarious-pics-of-life15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214957.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. We take it back, this is the worst thing weve seen all week. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122251/87216269/hilarious-pics-of-life17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214958.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122254/87216270/hilarious-pics-of-life12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214959.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122300/87216271/hilarious-pics-of-life10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214960.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. Turns out that was a lie. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122302/87216272/hilarious-pics-of-life5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214961.jpeg" style="width:100%"><br>
+<span style="font-size:4em">27. Strap me in. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122305/87216273/hilarious-pics-of-life14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214962.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. Gotta share this one with the girls. #justgirlythings </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122311/87216274/hilarious-pics-of-life8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214963.jpeg" style="width:100%"><br>
+<span style="font-size:4em">29. This has to be fake, right? No way. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122314/87216275/hilarious-pics-of-life4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214964.jpeg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122320/87216276/hilarious-pics-of-life2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87214965.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122324/87216277/hilarious-pics-of-life3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. You go girl! </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122326/87216278/hilarious-pics-of-life1.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
