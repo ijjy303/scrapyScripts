@@ -1,141 +1,109 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/18/2022-07:47:18
+Last updated: 07/18/2022-08:47:18
 <br>
-## <a href="#linky2" id="linky1">Monday Morning Randomness User Edition - MikeHockusThick</a><br>
+## <a href="#linky2" id="linky1">Funny and Fresh Memes to Kickstart Your Weekend </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217777.png" style="width:100%"><br>
+<span style="font-size:4em">1. Are you ever going to get tired of upside-down Australian jokes, because we are sick and tired of upside-down Australian jokes </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217715.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Its that the truth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201742.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217774.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Coming soon to a downtown near you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217714.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201745.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217719.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201746.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217713.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217726.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Now this one hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217716.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217735.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I think this should suffice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217729.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217717.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217731.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. What team are you? Jk we know your team feet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217718.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217749.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Which side are you on? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217720.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217721.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217722.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217723.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Now, this is what a saleswoman looks like. Ladies, if youre in sales give this trick a go, you never know what could happen. All of a sudden, I really need a pen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217724.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217725.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217776.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201740.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">32 Adult Film Stars Before and After Makeup</a><br>
+## <a href="#linky3" id="linky2">26 Incredibly Unique Buildings From Around the World </a><br>
+
+<span style="font-size:4em">1. Winning Design For Shenzhens Natural History Museum</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123737/87216289/epic-abandoned-houses17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Office In The Woods Near Madrid, Spain </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123710/87216284/epic-abandoned-houses4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Fallen Star</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123714/87216285/epic-abandoned-houses11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Colins Barn, Chedglow, England - More Details In Comments</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123732/87216288/epic-abandoned-houses19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Mogno, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123721/87216286/epic-abandoned-houses5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Hang Ngas Crazy House In Dalat, Vietnam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123704/87216283/epic-abandoned-houses13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lile Fllottante (Abidjan, Ivory Coast)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123653/87216281/epic-abandoned-houses3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Only Surviving Photo Of A Hoarder House Demolished Around 2007 In Nagoya, Japan</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123659/87216282/epic-abandoned-houses9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The Iron Fountain - Gyumri, Armenia</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123726/87216287/epic-abandoned-houses2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Former Us Listening Station In Berlin, Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123647/87216280/epic-abandoned-houses8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Container House In The Desert</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123744/87216290/epic-abandoned-houses6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Flintstone House, Declared Public Nuisance, Now Allowed To Keep Colorful</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123748/87216291/epic-abandoned-houses16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Inntel Hotels Amsterdam Zaandam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123755/87216292/epic-abandoned-houses23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123800/87216293/epic-abandoned-houses21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Peles Castle, Romania</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123807/87216294/epic-abandoned-houses20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. France Built 1347</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123811/87216295/epic-abandoned-houses25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Temppeliaukion Church, Helsinki, Finland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123818/87216296/epic-abandoned-houses26.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hole House Or Villa Vals, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123824/87216297/epic-abandoned-houses18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. This Single-Family House In Bayview.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123829/87216298/epic-abandoned-houses10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Unzipped Building. Milano, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123836/87216299/epic-abandoned-houses15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Energy Organic House Design With Wild Slate Roof In Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123840/87216300/epic-abandoned-houses7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hallgrímskirkja: Lutheran Church In Reykjavík, Iceland. Commissioned In 1937 And Completed In 1986.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123848/87216301/epic-abandoned-houses14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sanaa, Yemen</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123852/87216302/epic-abandoned-houses22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. King Alfreds Tower In England, Built In 1772</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123859/87216303/epic-abandoned-houses1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. This Pub Was Completed In 1765 Was Built On Top Of A Mine Shaft And Over Time It Had Sank On One Side. Getting In Sober Is A Challenge, And Even Harder Getting Out Drunk</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123903/87216304/epic-abandoned-houses12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Alpine Refuge From World War I Located At 2760 Meters, Monte Cristallo, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123910/87216305/epic-abandoned-houses24.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">32 Adult Film Stars Before and After Makeup</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211166.jpg" style="width:100%"><br>
 
@@ -200,60 +168,6 @@ Last updated: 07/18/2022-07:47:18
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211195.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211196.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">The Funniest and Freshest Memes of the Week </a><br>
-
-<span style="font-size:4em">1. The imperial system was thought up by a bunch of drunks who hated Europe, so what do you expect? Its anarchy, but with purpose. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. No they cant, and they shouldnt want to anyways. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Criminal Alines Running Free Out in Space. I want it on page one! Get it done Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214970.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Aight, bet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. He cant hurt you. Should we pout that to the test? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The cycle if life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Now we are asking the right questions. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214975.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214977.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. The ideal male body type is a cross between Shrek and Danny DeVito. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214978.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Oh look its a big tough guy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. And they didnt think we would notice. Not this time NASA. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Lmao, time to update your desktop hunny. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214982.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214983.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. All hail the crab. Bow before his power and might. Shutter at his essence, for he is the supreme being. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214991.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214992.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214993.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -567,113 +481,141 @@ https://www.reddit.com/r/AskReddit/comments/vfq7z9/whats_a_modern_day_scam_thats
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">26 Incredibly Unique Buildings From Around the World </a><br>
+## <a href="#linky9" id="linky8">Monday Morning Randomness User Edition - MikeHockusThick</a><br>
 
-<span style="font-size:4em">1. Winning Design For Shenzhens Natural History Museum</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123737/87216289/epic-abandoned-houses17.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217777.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Office In The Woods Near Madrid, Spain </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123710/87216284/epic-abandoned-houses4.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217715.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Fallen Star</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123714/87216285/epic-abandoned-houses11.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Colins Barn, Chedglow, England - More Details In Comments</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123732/87216288/epic-abandoned-houses19.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217714.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Mogno, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123721/87216286/epic-abandoned-houses5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217719.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Hang Ngas Crazy House In Dalat, Vietnam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123704/87216283/epic-abandoned-houses13.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217713.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Lile Fllottante (Abidjan, Ivory Coast)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123653/87216281/epic-abandoned-houses3.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217726.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Only Surviving Photo Of A Hoarder House Demolished Around 2007 In Nagoya, Japan</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123659/87216282/epic-abandoned-houses9.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217716.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The Iron Fountain - Gyumri, Armenia</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123726/87216287/epic-abandoned-houses2.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217735.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Former Us Listening Station In Berlin, Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123647/87216280/epic-abandoned-houses8.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217729.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Container House In The Desert</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123744/87216290/epic-abandoned-houses6.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217717.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Flintstone House, Declared Public Nuisance, Now Allowed To Keep Colorful</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123748/87216291/epic-abandoned-houses16.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217731.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Inntel Hotels Amsterdam Zaandam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123755/87216292/epic-abandoned-houses23.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217718.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123800/87216293/epic-abandoned-houses21.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Peles Castle, Romania</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123807/87216294/epic-abandoned-houses20.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217720.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. France Built 1347</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123811/87216295/epic-abandoned-houses25.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217721.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Temppeliaukion Church, Helsinki, Finland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123818/87216296/epic-abandoned-houses26.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217722.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Hole House Or Villa Vals, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123824/87216297/epic-abandoned-houses18.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217723.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. This Single-Family House In Bayview.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123829/87216298/epic-abandoned-houses10.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217724.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Unzipped Building. Milano, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123836/87216299/epic-abandoned-houses15.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217725.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Energy Organic House Design With Wild Slate Roof In Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123840/87216300/epic-abandoned-houses7.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217728.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Hallgrímskirkja: Lutheran Church In Reykjavík, Iceland. Commissioned In 1937 And Completed In 1986.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123848/87216301/epic-abandoned-houses14.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217727.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Sanaa, Yemen</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123852/87216302/epic-abandoned-houses22.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217730.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. King Alfreds Tower In England, Built In 1772</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123859/87216303/epic-abandoned-houses1.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217732.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. This Pub Was Completed In 1765 Was Built On Top Of A Mine Shaft And Over Time It Had Sank On One Side. Getting In Sober Is A Challenge, And Even Harder Getting Out Drunk</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123903/87216304/epic-abandoned-houses12.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Alpine Refuge From World War I Located At 2760 Meters, Monte Cristallo, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123910/87216305/epic-abandoned-houses24.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217776.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Woman’s Horror Story Literally a Life Hack on How to Survive</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115735/87216215/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115746/87216217/two.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115739/87216216/three.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115724/87216213/four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115713/87216212/five.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115729/87216214/final.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Savage Comeback and Comments That Smacked People Down</a><br>
-
-<span style="font-size:4em">1. Why do Americans love to shit on British people? And why do Americans always bring up the teeth thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Umm, what the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Some people are beyond being saved. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211257.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. you cant make this stuff up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Why are people like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211259.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Put the vape pen down lady, youre stoned. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. No one deserves to be this this dumb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Now this one is going to leave a mark. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Now we are asking the right questions. Just wait, in a few years Christian are going to start calling Jesus a p*ssy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. These people are beyond helping. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Only you can save yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211270.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">32 Depressing Pics that Are a Sign of the Times</a><br>
+## <a href="#linky10" id="linky9">32 Depressing Pics that Are a Sign of the Times</a><br>
 
 <span style="font-size:4em">1. If only there was a natural form of shade that humans could use when sitting in the sun. Hmm. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122115/87216247/hilarious-pics-of-life28.jpg" style="width:100%"><br>
 
@@ -741,53 +683,23 @@ https://www.reddit.com/r/AskReddit/comments/vfq7z9/whats_a_modern_day_scam_thats
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Funny and Fresh Memes to Kickstart Your Weekend </a><br>
+## <a href="#linky11" id="linky10">Woman’s Horror Story Literally a Life Hack on How to Survive</a><br>
 
-<span style="font-size:4em">1. Are you ever going to get tired of upside-down Australian jokes, because we are sick and tired of upside-down Australian jokes </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201741.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115735/87216215/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Its that the truth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201742.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115746/87216217/two.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Coming soon to a downtown near you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201744.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115739/87216216/three.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201745.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115724/87216213/four.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201746.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115713/87216212/five.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Now this one hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I think this should suffice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. What team are you? Jk we know your team feet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Which side are you on? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Now, this is what a saleswoman looks like. Ladies, if youre in sales give this trick a go, you never know what could happen. All of a sudden, I really need a pen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201740.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/115729/87216214/final.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
+## <a href="#linky12" id="linky11">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
 
 <span style="font-size:4em">1. Is there anything better? I mean really.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030714/87216570/87130120.jpg" style="width:100%"><br>
 
@@ -870,6 +782,94 @@ https://www.reddit.com/r/AskReddit/comments/vfq7z9/whats_a_modern_day_scam_thats
 <span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212061.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212031.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Savage Comeback and Comments That Smacked People Down</a><br>
+
+<span style="font-size:4em">1. Why do Americans love to shit on British people? And why do Americans always bring up the teeth thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Umm, what the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Some people are beyond being saved. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211257.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. you cant make this stuff up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Why are people like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211259.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Put the vape pen down lady, youre stoned. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. No one deserves to be this this dumb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Now this one is going to leave a mark. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Now we are asking the right questions. Just wait, in a few years Christian are going to start calling Jesus a p*ssy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. These people are beyond helping. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Only you can save yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211270.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">The Funniest and Freshest Memes of the Week </a><br>
+
+<span style="font-size:4em">1. The imperial system was thought up by a bunch of drunks who hated Europe, so what do you expect? Its anarchy, but with purpose. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. No they cant, and they shouldnt want to anyways. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214969.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Criminal Alines Running Free Out in Space. I want it on page one! Get it done Parker. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214970.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Aight, bet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. He cant hurt you. Should we pout that to the test? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The cycle if life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Now we are asking the right questions. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214975.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214977.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. The ideal male body type is a cross between Shrek and Danny DeVito. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214978.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Oh look its a big tough guy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. And they didnt think we would notice. Not this time NASA. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Lmao, time to update your desktop hunny. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214982.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214983.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. All hail the crab. Bow before his power and might. Shutter at his essence, for he is the supreme being. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214991.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214992.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214993.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
