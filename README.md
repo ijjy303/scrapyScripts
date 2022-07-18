@@ -1,57 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/18/2022-13:47:18
+Last updated: 07/18/2022-14:47:18
 <br>
-## <a href="#linky2" id="linky1">23 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217983.gif" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217984.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217993.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217994.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217997.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">32 Adult Film Stars Before and After Makeup</a><br>
+## <a href="#linky2" id="linky1">32 Adult Film Stars Before and After Makeup</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211166.jpg" style="width:100%"><br>
 
@@ -119,71 +69,7 @@ Last updated: 07/18/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">30 Bad Motherf---kin' Facts About Pulp Fiction</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314702.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">43 Radical Randoms To Wrap Up The Weekend</a><br>
+## <a href="#linky3" id="linky2">43 Radical Randoms To Wrap Up The Weekend</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87217116.jpg" style="width:100%"><br>
 
@@ -297,7 +183,7 @@ Last updated: 07/18/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Monday Morning Randomness User Edition - MikeHockusThick</a><br>
+## <a href="#linky4" id="linky3">Monday Morning Randomness User Edition - MikeHockusThick</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217777.png" style="width:100%"><br>
 
@@ -431,7 +317,7 @@ Last updated: 07/18/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">16 Celebrities With Criminal Pasts</a><br>
+## <a href="#linky5" id="linky4">16 Celebrities With Criminal Pasts</a><br>
 
 <span style="font-size:4em">1. In 1999, Robert Downey Jr. in California for missing required drug tests while on probation for his 1996 charges — possession of cocaine, heroin, and a .357 magnum handgun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212147.jpg" style="width:100%"><br>
 
@@ -467,155 +353,7 @@ Last updated: 07/18/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Savage Comeback and Comments That Smacked People Down</a><br>
-
-<span style="font-size:4em">1. Why do Americans love to shit on British people? And why do Americans always bring up the teeth thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Umm, what the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Some people are beyond being saved. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211257.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. you cant make this stuff up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Why are people like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211259.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Put the vape pen down lady, youre stoned. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. No one deserves to be this this dumb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Now this one is going to leave a mark. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Now we are asking the right questions. Just wait, in a few years Christian are going to start calling Jesus a p*ssy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. These people are beyond helping. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Only you can save yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211270.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Nightclub Photos Sure to Give Us a Hangover</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020225/87218526/cowboy.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020233/87218527/cry.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020237/87218528/bee.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020244/87218529/crystal.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020248/87218530/elmo.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020256/87218531/dad.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020300/87218532/happy.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020307/87218533/kiss.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020311/87218534/eyes.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020318/87218535/mac.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020322/87218536/noodle.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020329/87218537/onion.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020334/87218538/pizza.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020340/87218539/shrek.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020345/87218540/pour.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020351/87218541/smurf.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020356/87218542/sleep.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020402/87218543/tongue.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020408/87218544/wow.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020645/87218545/spider.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">33 Times When Safety Was Chased Off With Sticks</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218103.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Super Sized Batch of Radically Random Pics to Enjoy</a><br>
+## <a href="#linky6" id="linky5">Super Sized Batch of Radically Random Pics to Enjoy</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87216740.jpg" style="width:100%"><br>
 
@@ -753,7 +491,7 @@ Last updated: 07/18/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">21 Internet Liars That No One Is Believing</a><br>
+## <a href="#linky7" id="linky6">21 Internet Liars That No One Is Believing</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/17/020201/87217637/87217518.png" style="width:100%"><br>
 
@@ -799,93 +537,111 @@ Last updated: 07/18/2022-13:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
+## <a href="#linky8" id="linky7">25 Alexander the Great Facts Your Teachers Never Told You</a><br>
 
-<span style="font-size:4em">1. Is there anything better? I mean really.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030714/87216570/87130120.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The body of Alexander the Great has been lost over time. It was well-known to be in Alexandria, Egypt for centuries, and was even worshiped for a while, but its exact location has apparently been forgotten.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Hey sweetheart, Ive got rules too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212036.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. As a student of Aristotle, Alexander the Great was said to be a philosopher king, that is, a ruler who possessed both a love of wisdom, as well as intelligence, reliability, and a willingness to live a simple life. Such a king was the ideal ruler in Platos fictional utopian city of Kallipolis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030658/87216566/86911191.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When Alexander the Great defeated Darius III at Issus, Darius fled leaving his entire family to Alexander, including his mother Sisygambis. Alexander treated them well, and when Darius was killed Sisygambis did not mourn her son: I have only one son [Alexander] and he is king of all Persia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030616/87216556/86279830.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Today I learned about Cynane, Alexander the Greats warrior half-sister. Unlike most women of the time, she was given a martial education, and led her own troops into battle. She slew an Illyrian queen in battle, defeated the army of one of Alexanders generals, and after she was killed by Alcetas, his troops rioted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Major oofage here.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030646/87216563/86374133.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Centuries after Alexander the greats death, his tomb was a tourist attraction. Many of the Roman emperors who visited the tomb left with souvenirs, effectively looting the monument. According to one account, Augustus Caesar tried to touch the 300-year-old mummy, accidentally breaking its nose.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030628/87216558/86374108.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Alexander the Great once suffered an arrow wound that pierced his lung. He fought on as long as he could, but eventually collapsed on his shield. His army was able to protect him long enough to win the battle and to escape. They cut the arrow out of his chest and amazingly he fully recovered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030630/87216559/86279847.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Alexander the Great encouraged his men to shave, so that enemies couldnt grab their beards during combat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030635/87216560/86374113.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Alexander the Great once built a half-mile causeway through the sea to capture the impregnable Tyre island. The island has remained a peninsula ever since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217537.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030639/87216561/86374118.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 346BC, Alexander the Great, at the age of 10, after taming a large anxious horse, was allowed to buy it. He named the horse Bucephalas, and he rode the horse until the Battle of Hydapes in 326BC when it died at the age of 30. Alexander later named a city after his steed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030641/87216562/86374124.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Roman historian Livy argued that Rome would have beaten Alexander the Great if he had lived long enough to attack the Romans. His digression is the oldest known alternate history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. About to risk it all and never even look back.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030553/87216554/86270713.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Although Cleopatra was born in Egypt, she wasnt necessarily Egyptian. Her family origins come from Macedonian Greece and Ptolemy I Soter, one of Alexander the Great’s generals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217541.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030650/87216564/86374144.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Alexander the Great arranged a mass wedding for his Macedonian soldiers to marry Persian women to unite the regions called the Susa Wedding. After Alexander died, all the men except two divorced their Persian wives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217542.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030652/87216565/86443373.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Aristotle was Alexander the Greats private tutor and from his teachings developed a love of science, particularly of medicine and botany. Alexander included botanists and scientists in his army to study the many lands he conquered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217531.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030701/87216567/86911195.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. When Alexander the Great’s dearest friend Hephaestion died, Alexander threw him a lavish funeral worth around £1,500,000,000. He also had a 60-meter-high pyre commissioned, with 7 layers of golden objects. Hephaestion was also worshiped as a divine hero. Shrines were erected in his memory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217543.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030703/87216568/86911205.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Afghanistans second-largest city, Kandahar, was founded by Alexander the Great.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217544.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030710/87216569/86911209.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. When Alexander the Great was invading India, he learned of a Brahmin who lived in the woods. He visited him and the Brahmin replied, You will soon be dead, and then you will own just as much of this earth as will suffice to bury you. Alexander approved of this sentiment and left him in peace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217545.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030715/87216571/87130122.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Before a key battle in Alexander the Greats campaign in Persia, the Persian king offered Alexander generous terms for peace. One of Alexanders generals is said to have remarked: I would accept the terms, if I were you. Alexander responded: So would I, if I were you. He won.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217547.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030722/87216572/87130128.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Afghanistan shares a 46-mile border with China. Marco Polo used it in his Silk Road travels. Its rumored to have a fort Alexander the Great was not able to conquer, and it has one of the largest untouched copper mines in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217548.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030726/87216573/87130130.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Alexander the Great feed his troops licorice to quench thirst, sustain them in long marches, and help with their health.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030727/87216574/87130136.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Alexander the Greats invasion led to Greek-speaking Buddhist kingdoms in present-day Afghanistan. This led to Greek influences on Buddhist art, for example the Buddha being depicted in a flowing robe (from the Greek himation, similar to a toga). Before this, he was shown wearing a loincloth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217550.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030733/87216575/87130141.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Alexander the Great held Cyrus in such high esteem that when he discovered that Cyrus tomb had been ransacked upon conquering the capital city, he personally paid to have it completely restored to its former glory down to the smallest detail and appointed his own guards to watch over it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217551.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030738/87216576/87130150.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Apelles, an ancient Greek painter, was considered by many, including Pliny, to be the greatest artist in the world. Pliny recorded that Alexander the Great so admired Apelless work that he gave his concubine to him. Today, none of Apelless original works have survived.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217552.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Laughed way harder than I should have on this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030739/87216577/ssz.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Alexander the Great was 22 when he was granted generalship and began his conquest on the Persian (Achaemenid) Empire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217553.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212032.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Alexander the Great killed his friend in a drunken rage by throwing a javelin through his chest during an argument.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217554.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. I couldnt be more excited... to disappoint you on a regular basis.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030624/87216557/86279835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. Sage advice, and it works both  ways!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030604/87216555/86279840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87212031.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. During the Battle of Issus, while pursuing the fleeing Persian king Darius III, Alexander the Great and his men filled a ravine in with dead Persian soldiers in order to continue their chase.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217555.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">The Funniest and Freshest Memes of the Week </a><br>
+## <a href="#linky9" id="linky8">23 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217983.gif" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217984.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217993.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217994.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217997.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">The Funniest and Freshest Memes of the Week </a><br>
 
 <span style="font-size:4em">1. The imperial system was thought up by a bunch of drunks who hated Europe, so what do you expect? Its anarchy, but with purpose. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214968.jpg" style="width:100%"><br>
 
@@ -936,6 +692,206 @@ Last updated: 07/18/2022-13:47:18
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214992.png" style="width:100%"><br>
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87214993.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Savage Comeback and Comments That Smacked People Down</a><br>
+
+<span style="font-size:4em">1. Why do Americans love to shit on British people? And why do Americans always bring up the teeth thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Umm, what the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Some people are beyond being saved. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211257.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. you cant make this stuff up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Why are people like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211259.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Put the vape pen down lady, youre stoned. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. No one deserves to be this this dumb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Now this one is going to leave a mark. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Now we are asking the right questions. Just wait, in a few years Christian are going to start calling Jesus a p*ssy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. These people are beyond helping. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Only you can save yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211270.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">25 Normal Things That You Don't Realize Are Scams</a><br>
+
+<span style="font-size:4em">1. Employers insisting that employees not talk about their salaries AND job listings not posting salaries - aDogNamedPotato
+ 
+https://www.reddit.com/r/AskReddit/comments/vfq7z9/whats_a_modern_day_scam_thats_become_normalized/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Hidden fees. Especially in the medical and hospitality industries. - spade13F</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Credit scores.They started in 1989 and are designed to encourage debt. - kung_fu_jive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Not being able to cancel a subscription online. I can subscribe in 5 minutes but I need to call your service agents and am forced to be rude to them to cancel it because as long as my voice sounds friendly they try to resell the damn subscription. - Hardi_SMH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Resort fees at hotels - ChickenXing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The fact that you cannot just buy software now. You buy a subscription and never actually own anything. - MediocreJudgment637</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Everything is a sneaky small monthly subscription - wowsers808</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Transaction fees when using online banking. I do all the work filling out the form so a bank employee doesn’t have too, yet I get charged the same. - patrik3031</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Admin fees for completely automated services. - Hungry4Memes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Free trial auto renewal subscriptions - ResidentOfTheWorld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Health insurance plans that charge 500-1000 a month just to be insured, then dont start covering your bills until youve paid another 2000-10,000 out of pocket....and even THEN will still make you pay a 45 dollar copay. And on the provider end, your plan is delaying payment on claims so your 500-1000 dollar a month premium is just going into the pocket of the executives and shareholders instead of health care providers. And behavioral health claims get most of the abuse (just in case you were wondering why so many licensed psychotherapists opt out of accepting insurance) - DetachmentStyles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. subscriptions for already-paid apps - Head_Membership_4252</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Extended Warranty, Make sure you read the fine print whats being covered n what is considered void. - Kannabiz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Raise the price of a product a day before they go on sale so that people think they are getting it at a discount - int9r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Buying tech devices, for premium prices, then still having to pay subscriptions to make them actually do what theyre supposed to do. - Termin8rSmurf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Service charge for buying cinema tickets online. I’ve got to pay you to buy something from you ?!!! - TheSadClarinet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Medical insurance not covering dental or vision. Like, its all connected, guys. If you have a badly abscessed tooth, youre likely going to need medical care, even if you have dental that covers the extraction or root canal or whatever. - azemilyann26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Razor blades. Specifically Gillette. Nearly £30 for 6 of the new ones. - azantine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Ticketmaster fees - silly-sessions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Instagram influencers using their kids as bait to advertise products. - Soylopeor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Charging a convenience fee for paying rent online. Fuck you. Its more convenient for you, too, bitch. Wheres MY convenience fee. - not_a_scrub_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Diamonds. Theres loads of them but apparently theyre rare so sell for major stacks - Krasnaya_Armeya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Hustle culture. Working 90hr weeks and having no life outside of work is not healthy nor is it sustainable. - Warkitz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Unpaid internships - Frankidelic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Weddings and every business tied to weddings. $30,000 for one day? Fuck that. - NewspaperPirate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216097.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">30 Bad Motherf---kin' Facts About Pulp Fiction</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314702.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Gross Things That Are Super Satisfying to Look At</a><br>
+
+<span style="font-size:4em">1. Plantar warts Laser removal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. It’s gross, I know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Terribly gross, but what a great feeling seeing the culprit of a clogged drain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Was having trouble hearing all day yesterday until my mom took her tweezers and pulled this thing out of my ear. Gross, but satisfying. Needless to say, I can hear now!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Gross but satisfying colour pallet of each clothes wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. When you buy a used DualShock 3… gross, but oddly satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. One of two fly traps I set out Saturday evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. You can see how much my hair has grown since I dyed it ~26 hrs ago</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I left my mop outside and it grew grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cut the hair off my old round brush.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Kinda gross but this dead skin I pulled off my thumb sort of looks like the continental USA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Pulled a hair out of my husband’s beard and it turned out to be several hairs growing out of one follicle… kinda gross but also interesting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My 4 year old slipper has outlined the arch and shape of my foot. Pretty gross but eh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Wife said the shower drain was a little slow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Oil cleansing – gross yet so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That feeling….so gross but so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My bruise looks like the eye of Sauron.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A tragic event unfolded months ago. My finger took a nasty beating. Yesterday the dead nail came off to reveal I’ve fathered a baby nail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A little gross, but this is the mark I left on the floor after my workout today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Just learned you need to clean your bellybutton! So gross and yet so satisfying to clean it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This eyeball cleaning…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217111.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -1012,62 +968,6 @@ Last updated: 07/18/2022-13:47:18
 <span style="font-size:4em">35. President looks like he hasn’t aged one bit, though!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/041409/87216697/1job35.png" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/041418/87216698/1job36.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky16" id="linky15">25 Normal Things That You Don't Realize Are Scams</a><br>
-
-<span style="font-size:4em">1. Employers insisting that employees not talk about their salaries AND job listings not posting salaries - aDogNamedPotato
- 
-https://www.reddit.com/r/AskReddit/comments/vfq7z9/whats_a_modern_day_scam_thats_become_normalized/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Hidden fees. Especially in the medical and hospitality industries. - spade13F</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Credit scores.They started in 1989 and are designed to encourage debt. - kung_fu_jive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Not being able to cancel a subscription online. I can subscribe in 5 minutes but I need to call your service agents and am forced to be rude to them to cancel it because as long as my voice sounds friendly they try to resell the damn subscription. - Hardi_SMH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Resort fees at hotels - ChickenXing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The fact that you cannot just buy software now. You buy a subscription and never actually own anything. - MediocreJudgment637</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Everything is a sneaky small monthly subscription - wowsers808</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Transaction fees when using online banking. I do all the work filling out the form so a bank employee doesn’t have too, yet I get charged the same. - patrik3031</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Admin fees for completely automated services. - Hungry4Memes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Free trial auto renewal subscriptions - ResidentOfTheWorld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Health insurance plans that charge 500-1000 a month just to be insured, then dont start covering your bills until youve paid another 2000-10,000 out of pocket....and even THEN will still make you pay a 45 dollar copay. And on the provider end, your plan is delaying payment on claims so your 500-1000 dollar a month premium is just going into the pocket of the executives and shareholders instead of health care providers. And behavioral health claims get most of the abuse (just in case you were wondering why so many licensed psychotherapists opt out of accepting insurance) - DetachmentStyles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. subscriptions for already-paid apps - Head_Membership_4252</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Extended Warranty, Make sure you read the fine print whats being covered n what is considered void. - Kannabiz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Raise the price of a product a day before they go on sale so that people think they are getting it at a discount - int9r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Buying tech devices, for premium prices, then still having to pay subscriptions to make them actually do what theyre supposed to do. - Termin8rSmurf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Service charge for buying cinema tickets online. I’ve got to pay you to buy something from you ?!!! - TheSadClarinet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Medical insurance not covering dental or vision. Like, its all connected, guys. If you have a badly abscessed tooth, youre likely going to need medical care, even if you have dental that covers the extraction or root canal or whatever. - azemilyann26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Razor blades. Specifically Gillette. Nearly £30 for 6 of the new ones. - azantine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Ticketmaster fees - silly-sessions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Instagram influencers using their kids as bait to advertise products. - Soylopeor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Charging a convenience fee for paying rent online. Fuck you. Its more convenient for you, too, bitch. Wheres MY convenience fee. - not_a_scrub_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Diamonds. Theres loads of them but apparently theyre rare so sell for major stacks - Krasnaya_Armeya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Hustle culture. Working 90hr weeks and having no life outside of work is not healthy nor is it sustainable. - Warkitz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Unpaid internships - Frankidelic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Weddings and every business tied to weddings. $30,000 for one day? Fuck that. - NewspaperPirate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216097.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
