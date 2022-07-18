@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/18/2022-10:47:18
+Last updated: 07/18/2022-11:47:18
 <br>
 ## <a href="#linky2" id="linky1">Super Sized Batch of Radically Random Pics to Enjoy</a><br>
 
@@ -139,71 +139,49 @@ Last updated: 07/18/2022-10:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">32 Adult Film Stars Before and After Makeup</a><br>
+## <a href="#linky3" id="linky2">Funny and Fresh Memes to Kickstart Your Weekend </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211166.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Are you ever going to get tired of upside-down Australian jokes, because we are sick and tired of upside-down Australian jokes </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211191.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Its that the truth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201742.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211174.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Coming soon to a downtown near you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211167.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201745.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211172.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201746.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211168.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211169.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Now this one hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211170.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211171.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I think this should suffice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211173.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211175.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211176.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. What team are you? Jk we know your team feet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211177.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211178.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Which side are you on? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211179.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211180.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211181.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211182.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Now, this is what a saleswoman looks like. Ladies, if youre in sales give this trick a go, you never know what could happen. All of a sudden, I really need a pen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211183.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211184.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211196.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201740.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -507,7 +485,201 @@ https://www.reddit.com/r/AskReddit/comments/vfq7z9/whats_a_modern_day_scam_thats
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Monday Morning Randomness User Edition - MikeHockusThick</a><br>
+## <a href="#linky8" id="linky7">30 Bad Motherf---kin' Facts About Pulp Fiction</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314702.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">Savage Comeback and Comments That Smacked People Down</a><br>
+
+<span style="font-size:4em">1. Why do Americans love to shit on British people? And why do Americans always bring up the teeth thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Umm, what the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Some people are beyond being saved. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211257.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. you cant make this stuff up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Why are people like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211259.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Put the vape pen down lady, youre stoned. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. No one deserves to be this this dumb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Now this one is going to leave a mark. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Now we are asking the right questions. Just wait, in a few years Christian are going to start calling Jesus a p*ssy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. These people are beyond helping. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Only you can save yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211270.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">24 Things That Were Lame as a Teen, But Dope as an Adult</a><br>
+
+<span style="font-size:4em">1. Actually sitting down and relaxing.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122128/87218384/youngtoold2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Receiving socks for Christmas.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122141/87218385/youngtoold1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Comfy shoes over stylish ones. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122332/87218404/youngtoold21.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Staying in on Friday / weekend nights.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122152/87218386/youngtoold5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Going to Home Depot or other big department stores. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122235/87218393/youngtoold11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Going to bed before 10pm.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122159/87218387/youngtoold4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Stapling all your papers together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122204/87218388/youngtoold6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Getting excited about cooking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122212/87218389/youngtoold7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Taking time to learn new things.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122216/87218390/youngtoold8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Insoles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122330/87218403/youngtoold20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Buying new household appliances.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122406/87218407/youngtoold24.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Reading for fun.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122223/87218391/youngtoold9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Cutting yourself off from drugs / alcohol later in the night.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122227/87218392/youngtoold10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Hanging out with your parents.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122240/87218394/youngtoold12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Taking naps.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122246/87218395/youngtoold13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. House plants.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122252/87218396/youngtoold14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The party ending at 9-10pm, and not getting pressured into staying later for saying “I have to get up early for work.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122257/87218397/youngtoold15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Canceling plans.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122115/87218383/youngtoold3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Diving into your hobbies instead of down playing them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122306/87218399/youngtoold16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Wearing your backpack on both shoulders, and tightening the straps appropriately.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122310/87218400/youngtoold17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Yard work.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122318/87218401/youngtoold18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Going for walks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122321/87218402/youngtoold19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Eating healthy. A few pieces of broccoli and I feel like a superhero nowadays.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122343/87218405/youngtoold22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Going to museums.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122355/87218406/youngtoold23.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Paranormal Pics to Shiver Your Timbers</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218293.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Myself and another soldier in women’s barracks at Ft Jackson. I covered our eyes for privacy reasons and typed “property of ALG”. Those are the only changes I have made. IDK what is behind us in the corner…males weren’t allowed in our barracks, neither were civilian clothes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218286.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My friend from high school who now lives in Minnesota, explored the Anoka Asylum 3 years ago by himself, and heard some shuffling and various noises, and took several photos with his camera. This photo is one that he took.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218277.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218279.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218280.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mother in law took this photo on a walk in Cornwall. She swears there was no one else on the path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218283.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218281.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218284.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218285.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218287.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218288.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218289.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218275.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218291.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My mother in-law sent me a security cam picture of what appears to be her mom, Nancy, who died in December 2013. Picture was taken this past Saturday when infrared security camera detected motion at her brothers back patio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218276.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218292.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Monday Morning Randomness User Edition - MikeHockusThick</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/87217777.png" style="width:100%"><br>
 
@@ -641,301 +813,6 @@ https://www.reddit.com/r/AskReddit/comments/vfq7z9/whats_a_modern_day_scam_thats
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Awesome Jobs That Actually Suck</a><br>
-
-<span style="font-size:4em">1. I strongly suspect being a spy doesnt involve half as many high-tech gadgets and spontaneous sexual intercourse as Ive been led to believe.
- 
--u/Rrraou
- 
-https://www.reddit.com/r/AskReddit/comments/vubkth/whats_a_job_thats_romanticized_but_in_reality/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217902.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Anything in modern-day publishing. How many television shows and movies must I watch where the plucky young upstart graduates from college and gets a job at the magazine or newspaper of their choice and is respected and can make a living? The pay sucks, youre in constant danger of being laid off (when your pub folds, usually), and its usually a pretty corporate environment where youre tasked with multiple jobs for little hope of advancement. The names high up on the mastheads are usually those of rich people, and its because they started off rich and could afford to stay in the industry.
- 
--u/SarahRecords</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. From what Ive understood, being a cowboy was (is?) really awful.
- 
--u/foxmachine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217904.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Working on a film.
-
-If youre crew, it sucks. long long hours for what seems like very very slow progress on the picture, lots of standing around waiting, etc. You arrive well before everyone else and leave after everyone else. If this is an indie production you also may have to beg/chase down for your pay at the end of each week. Oh, and when the film wraps, youre now unemployed.
- 
--u/MrPelham</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Being a therapist.
-Too many people Ive met get into the field thinking its how they saw it on TV: affluent white collar, own office, warm slow pace environment, where you get to sit on a nice comfy couch and be like lets talk about your feelings,
- 
-Thats only if you get to private practice, which they dont tell you is also like running your own small business, which good luck is you have no business acumen.
- 
-The reality is you get out of grad school, get your first job working at a Community Mental Health facility because they are the only ones who will hire you with a limited license and no experience, getting paid less than $40k/yr if youre lucky, and then get put in a walk-in closet of an office, where they dump 100 client caseload on you the first day, followed by your first client who has 5 different diagnoses and is on 12 different psych meds who says to you f*ck you, youre the 7th different person Ive had here, nobody cares about me.
- 
-Yeah people go into $100k of debt for that...
- 
--u/Puzzleheaded-Art-469</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Archaeologist, specifically field archaeology.
-99% of the time you find absolutely nothing, its often physically demanding (sometimes grueling), the pay is sh*t, there are no benefits, you have to constantly travel, theres very little stability, I could go on.
- 
-Source: have worked in CRM (Cultural Resource Management) archaeology for several years now
--u/eric3844</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Lawyer.
-Number of historic, life-changing, precedent-setting cases participated in: 0.
-Number of angry, self entitled, abusive clients wanting to screw each other over: 842.
-Number of pages of paperwork that’s sucked up free time and social life: 84,836.
- 
--u/epicurious_aussie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Everyone used to think it was awesome that I worked in live sports TV. 70% of the people I worked with were miserable pricks with over-inflated egos, and then there were the athletes…
- 
--u/Shitty_Fat-tits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Ballerina.
- 
--u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Apparently, lifeguards, because nobody can find them anymore.
- 
--u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Most (not all) jobs in the environmental sector.
-Pay is usually quite low, you tend to work in very ugly places (landfills, contaminated sites). You are expected to get jobs done in half the time you really need with as few resources as possible. And if you are consulting for other companies, nobody really wants to be working with you to “save the environment” - they generally are just trying to barely meet some regulations.
- 
--u/waldo_92</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Anything that requires a lot of travel. Sounds glamorous but in reality, all you see is usually an airport, conference room, boring hotel room, and maybe a restaurant if you are lucky. It’s exhausting and it actually just sucks.
- 
--u/Electronic_Crab_8955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Computer game development, especially testing. That is the ass end of an industry that is mostly ass.
- 
--u/DrColdReality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Journalist.
-Expectation: I’m gonna be the next Hunter S Thompson and write compelling feature pieces with a unique voice and get paid to travel the world!
-Reality: Talking to my editor about how my contact from the cat fashion show won’t call me back or do an interview unless we pay them $80 or adopt two cats.
- 
--u/kit_kat_barcalounger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217915.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Architect. You think you’ll be designing big fancy iconic buildings. Warehouses, Walmarts, strip malls, and sh*t box apartments all need architects and that’s probably what you’ll end up doing.
- 
--u/firenamedgabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217916.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Anything in the music industry.
-Youre never really off the clock, the pay is terrible pretty much all across the board unless youre in the 1% of top of the top in any business.
-People think its all glamorous because they see the popstars, the music videos, the award shows. Truth is, its blood, sweat, tears, stress, lack of sleep, a lot of inappropriate behaviour, drugs (fun if you like it, not fun if you dont), alcohol (again: fun if you like it, not fun if you dont), and again: low pay, and then maybe once or twice a year you get a perk of going to an award show with free food, booze and a chance to say Hi to some celebs (cant even take a photo with them, really, as its not deemed professional in a work setting).
-Ive been there for 15 years give or take, branched out, still linked to it in some ways but I get my money (much better money, might I say) elsewhere now and without as much stress or worry.
- 
--u/TheRealDynamitri</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Teacher.
-Fantasy: ima change the world one student at a time.
-Reality: poor paying zoo.
- 
--u/beat_u2_it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217918.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Veterinary medicine.
-Fantasy: I get to work with puppies and kittens.
-Reality: a 3-month-old kitten died in my care, Ive seen so much gore and blood and neglect, Ive sent animals home with invasive cancers because families cant afford treatment, Ive been the only comfort shelter animals knew before they left this world. It is a specific and exhausting kind of pain and it isnt really talked about enough.
-People who say they couldnt do it because of euthanasia have no idea.
- 
--u/lilybear032</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Chef/Cook - Sh*t pay. Toxic work environment. Sh*tty hot working conditions. Megalomaniac/incompetent management and owners. Long shitty hours. Working every weekend and every holiday. The only people you will see regularly are your coworkers. And most people descend into alcoholism or drug abuse to cope. Most people get into it because theyre passionate about it, and most bosses will take advantage of this.
-I spent 10 years in this field. I walked away with nothing other than the knowledge I gained, then had to reenter to the workforce at the bottom at the age of 30. Been out 5 years now, and started making more money and working less hours within a year. I wish Id left sooner.
- 
--u/Lurkist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. ObGyn sonographer.
-“You get to scan little unborn babies all day!”
-Then you have an excited parent eagerly watching my face and looking at the screen asking all sorts of cute questions while I calmly tell them I can’t relay any results to them as I stoically measure a fatal abnormality, or record a motionless heart, etc.
-Things they don’t teach you in ultrasound school: keep a pleasant expression that does not reveal anything negative about the exam but that also does not create a false sense of positivity. And do not, by any means, cry.
- 
--u/deezova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Pilot. You are essentially a bus driver with a really expensive bus, except the bus drivers I knew made better money with city benefits and a pension.
- 
--u/seamus_mc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Academic professor.
-For that matter, science in general.
-Its less Bill Nye doing cool sh*t and more editing copy to appease Reviewer 2 who simply has a thing against future tense and passive voice for whatever reason.
- 
--u/Prof_Acorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Musician.
-show up at Club at 5 pm, (or earlier) unload, setup, mic check, wait hours for the show to start, get shitty bar food or local fast food, play to half-empty room, tear down, load into vehicles, hopefully get paid enough to cover expenses, leave club 2-3 am, covered in sweat and physically exhausted, either drive to another location or shitty hotel.
-Lather, rinse and repeat... its a grind for 99% of the musicians out there.
- 
--u/cloudywater1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Doctor.
-Fantasy: I make lots of money, everyone respects me.
-Reality: I watch people die every day, work exhausting 12 hour shifts, have crippling depression and multiple addictions.
- 
--u/LargeSnorlax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Probably anything in the entertainment industry, its bogged down by a lot of workers rights violations, insane hours during crunch time, no work/life balance, and you dont even get paid much because your employers and society at large think its a privilege to even be working in the industry.
- 
--u/daydaylin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217926.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">25 Great Alexander the Great Facts</a><br>
-
-<span style="font-size:4em">1. Aristotle was Alexander the Greats private tutor and from his teachings developed a love of science, particularly of medicine and botany. Alexander included botanists and scientists in his army to study the many lands he conquered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217531.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Today I learned about Cynane, Alexander the Greats warrior half-sister. Unlike most women of the time, she was given a martial education, and led her own troops into battle. She slew an Illyrian queen in battle, defeated the army of one of Alexanders generals, and after she was killed by Alcetas, his troops rioted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Centuries after Alexander the greats death, his tomb was a tourist attraction. Many of the Roman emperors who visited the tomb left with souvenirs, effectively looting the monument. According to one account, Augustus Caesar tried to touch the 300-year-old mummy, accidentally breaking its nose.-u/Ainsley-Sorsby</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The body of Alexander the Great has been lost over time. It was well-known to be in Alexandria, Egypt for centuries, and was even worshiped for a while, but its exact location has apparently been forgotten.-u/a2soup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Alexander the Great once suffered an arrow wound that pierced his lung. He fought on as long as he could, but eventually collapsed on his shield. His army was able to protect him long enough to win the battle and to escape. They cut the arrow out of his chest and amazingly he fully recovered.-u/-AMARYANA-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. As a student of Aristotle, Alexander the Great was said to be a philosopher king, that is, a ruler who possessed both a love of wisdom, as well as intelligence, reliability, and a willingness to live a simple life. Such a king was the ideal ruler in Platos fictional utopian city of Kallipolis.-u/dustofoblivion123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Alexander the Great once built a half-mile causeway through the sea to capture the impregnable Tyre island. The island has remained a peninsula ever since.-u/houdinke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217537.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. When Alexander the Great defeated Darius III at Issus, Darius fled leaving his entire family to Alexander, including his mother Sisygambis. Alexander treated them well, and when Darius was killed Sisygambis did not mourn her son: I have only one son [Alexander] and he is king of all Persia.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 346BC, Alexander the Great, at the age of 10, after taming a large anxious horse he was allowed to buy it. He named the horse Bucephalas, and he rode the horse until the Battle or Hydapes in 326BC when it died at the age of 30. Alexander later named a city after his steed.-u/Teddy_Red</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Roman historian Livy argued that Rome would have beaten Alexander the Great if he had lived long enough to attack the Romans. His digression is the oldest known alternate history.-u/quit_being_stupid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Although Cleopatra was born in Egypt, she wasnt necessarily Egyptian. Her family origins come from Macedonian Greece and Ptolemy I Soter, one of Alexander the Great’s generals.-u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217541.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Alexander the Great arranged a mass wedding for his Macedonian soldiers to marry Persian women to unite the regions called the Susa Wedding. After Alexander died, all the men except two divorced their Persian wives.-u/burritogong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When Alexander the Great’s dearest friend Hephaestion died, Alexander threw him a lavish funeral worth around £1,500,000,000. He also had a 60-meter-high pyre commissioned, with 7 layers of golden objects. Hephaestion was also worshiped as a divine hero. Shrines were erected in his memory.-u/Tokyono</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Afghanistans second-largest city, Kandahar, was founded by Alexander the Great.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217544.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. When Alexander the Great was invading India, he learned of a Brahmin who lived in the woods. He visited him and the Brahmin replied, You will soon be dead, and then you will own just as much of this earth as will suffice to bury you. Alexander approved of this sentiment and left him in peace.-u/PowderKegDiplomacy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Alexander the Great encouraged his men to shave, so that enemies couldnt grab their beards during combat.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Before a key battle in Alexander the Greats campaign in Persia, the Persian king offered Alexander generous terms for peace. One of Alexanders generals is said to have remarked: I would accept the terms, if I were you. Alexander responded: So would I, if I were you. He won.-u/Virble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Afghanistan shares a 46-mile border with China. Marco Polo used it in his Silk Road travels. Its rumored to have a fort Alexander the Great was not able to conquer, and it has one of the largest untouched copper mines in the world.-u/Theobromas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Alexander the Great feed his troops licorice to quench thirst, sustain them in long marches, and help with their health.-u/Thunderball23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Alexander the Greats invasion led to Greek-speaking Buddhist kingdoms in present-day Afghanistan. This led to Greek influences on Buddhist art, for example the Buddha being depicted in a flowing robe (from the Greek himation [similar to a toga])—before this, he was shown wearing a loincloth.-u/nehala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Alexander the Great held Cyrus in such high esteem that when he discovered that Cyrus tomb had been ransacked upon conquering the capital city, he personally paid to have it completely restored to its former glory down to the smallest detail and appointed his own guards to watch over it.-u/kevlarbuns</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Apelles, an ancient Greek painter, was considered by many, including Pliny, to be the greatest artist in the world. Pliny recorded that Alexander the Great so admired Apelless work that he gave his concubine to him. Today, none of Apelless original works have survived.-u/Dtnoip30</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217552.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Alexander the Great was 22 when he was granted generalship and began his conquest on the Persian (Achaemenid) Empire…-u/MechCADdie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Alexander the Great killed his friend in a drunken rage by throwing a javelin through his chest during an argument.-u/reality72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. During the Battle of Issus, while pursuing the fleeing Persian king Darius III, Alexander the Great and his men filled a ravine in with dead Persian soldiers in order to continue their chase.-u/comrade_batman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217555.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">16 Celebrities With Criminal Pasts</a><br>
-
-<span style="font-size:4em">1. In 1999, Robert Downey Jr. in California for missing required drug tests while on probation for his 1996 charges — possession of cocaine, heroin, and a .357 magnum handgun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Also in Las Vegas, Paris Hilton was arrested in 2010 on suspicion of felony cocaine possession, after a container of the drug allegedly fell out of her handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. James Brown had many, many run-ins with the police throughout his years. This mugshot was taken after his arrest in 2004 in Aiken County, South Carolina for domestic violence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In 1993, Keanu Reeves was arrested in Los Angeles for a DUI and reckless driving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Ezra Miller was arrested in April 2022 in Hawaii for second-degree assault after he allegedly threw a chair which hit the victim on the forehead, causing a cut that was half an inch thick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tiffany Haddish was arrested in Jan. 2022 for a DUI, after she allegedly was found sleeping in the driver’s seat of her vehicle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In 1961, Al Pacino was arrested in Woonsocket, Rhode Island for possession of a concealed weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bruno Mars was arrested in 2010 in Las Vegas for cocaine possession.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2005, Chris Tucker was arrested in Georgia for reckless driving. Tucker was allegedly driving 109mph, and led the police on a 10-mile high-speed pursuit before he stopped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. David Bowie was arrested in 1976 in Rochester, New York for marijuana possession. Bowie and Iggy Pop were both arrested after police allegedly found six ounces of weed in their hotel rooms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In 2008, Khloe Kardashian turned herself in to Los Angeles County for violating the terms of her probation related to her 2007 DUI.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In 1938, Frank Sinatra was arrested in Hoboken, New Jersey for seducing a woman “under the promise of marriage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Lindsey Lohan was arrested in 2010 for probation violations related to her two DUI arrests in 2007.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1959 when she was only 13 years old, Cher was arrested in Los Angeles for “borrowing” a friend’s car and driving without a license.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Bill Gates was arrested in 1977 in Albuquerque, New Mexico for driving without a license after he ran a stop sign.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Mickey Rourke was arrested in 1994 in Los Angeles for spousal abuse of his 25-year-old wife.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212146.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">30 Bad Motherf---kin' Facts About Pulp Fiction</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85314702.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
 ## <a href="#linky13" id="linky12">41 Adult Themed Memes for Your Naughty Sense of Humor</a><br>
 
 <span style="font-size:4em">1. Is there anything better? I mean really.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/030714/87216570/87130120.jpg" style="width:100%"><br>
@@ -1022,109 +899,63 @@ Reality: I watch people die every day, work exhausting 12 hour shifts, have crip
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">Funny and Fresh Memes to Kickstart Your Weekend </a><br>
+## <a href="#linky14" id="linky13">26 People Lying on the Internet for Imaginary Points</a><br>
 
-<span style="font-size:4em">1. Are you ever going to get tired of upside-down Australian jokes, because we are sick and tired of upside-down Australian jokes </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201741.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218299.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Its that the truth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201742.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218300.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Coming soon to a downtown near you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201744.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218301.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201745.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218302.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201746.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218303.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201748.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218304.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Now this one hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201749.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201750.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218306.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I think this should suffice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201751.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218307.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201752.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218308.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201753.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218309.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. What team are you? Jk we know your team feet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201754.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218310.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201755.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218311.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Which side are you on? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201756.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218312.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201757.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218313.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201758.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201743.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218315.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Now, this is what a saleswoman looks like. Ladies, if youre in sales give this trick a go, you never know what could happen. All of a sudden, I really need a pen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201759.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201760.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201761.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218318.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87201740.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218319.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218320.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">26 Incredibly Unique Buildings From Around the World </a><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218321.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Winning Design For Shenzhens Natural History Museum</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123737/87216289/epic-abandoned-houses17.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218322.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Office In The Woods Near Madrid, Spain </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123710/87216284/epic-abandoned-houses4.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218323.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Fallen Star</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123714/87216285/epic-abandoned-houses11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Colins Barn, Chedglow, England - More Details In Comments</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123732/87216288/epic-abandoned-houses19.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Mogno, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123721/87216286/epic-abandoned-houses5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Hang Ngas Crazy House In Dalat, Vietnam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123704/87216283/epic-abandoned-houses13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Lile Fllottante (Abidjan, Ivory Coast)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123653/87216281/epic-abandoned-houses3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Only Surviving Photo Of A Hoarder House Demolished Around 2007 In Nagoya, Japan</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123659/87216282/epic-abandoned-houses9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The Iron Fountain - Gyumri, Armenia</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123726/87216287/epic-abandoned-houses2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Former Us Listening Station In Berlin, Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123647/87216280/epic-abandoned-houses8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Container House In The Desert</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123744/87216290/epic-abandoned-houses6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Flintstone House, Declared Public Nuisance, Now Allowed To Keep Colorful</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123748/87216291/epic-abandoned-houses16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Inntel Hotels Amsterdam Zaandam</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123755/87216292/epic-abandoned-houses23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123800/87216293/epic-abandoned-houses21.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Peles Castle, Romania</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123807/87216294/epic-abandoned-houses20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. France Built 1347</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123811/87216295/epic-abandoned-houses25.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Temppeliaukion Church, Helsinki, Finland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123818/87216296/epic-abandoned-houses26.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Hole House Or Villa Vals, Switzerland</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123824/87216297/epic-abandoned-houses18.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. This Single-Family House In Bayview.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123829/87216298/epic-abandoned-houses10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Unzipped Building. Milano, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123836/87216299/epic-abandoned-houses15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Energy Organic House Design With Wild Slate Roof In Germany</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123840/87216300/epic-abandoned-houses7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hallgrímskirkja: Lutheran Church In Reykjavík, Iceland. Commissioned In 1937 And Completed In 1986.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123848/87216301/epic-abandoned-houses14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sanaa, Yemen</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123852/87216302/epic-abandoned-houses22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. King Alfreds Tower In England, Built In 1772</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123859/87216303/epic-abandoned-houses1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. This Pub Was Completed In 1765 Was Built On Top Of A Mine Shaft And Over Time It Had Sank On One Side. Getting In Sober Is A Challenge, And Even Harder Getting Out Drunk</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123903/87216304/epic-abandoned-houses12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Alpine Refuge From World War I Located At 2760 Meters, Monte Cristallo, Italy</span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/123910/87216305/epic-abandoned-houses24.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218324.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">32 Depressing Pics that Are a Sign of the Times</a><br>
+## <a href="#linky15" id="linky14">32 Depressing Pics that Are a Sign of the Times</a><br>
 
 <span style="font-size:4em">1. If only there was a natural form of shade that humans could use when sitting in the sun. Hmm. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/15/122115/87216247/hilarious-pics-of-life28.jpg" style="width:100%"><br>
 
@@ -1192,37 +1023,107 @@ Reality: I watch people die every day, work exhausting 12 hour shifts, have crip
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">Savage Comeback and Comments That Smacked People Down</a><br>
+## <a href="#linky16" id="linky15">32 Adult Film Stars Before and After Makeup</a><br>
 
-<span style="font-size:4em">1. Why do Americans love to shit on British people? And why do Americans always bring up the teeth thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211261.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Umm, what the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211262.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Some people are beyond being saved. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211257.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. you cant make this stuff up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211258.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Why are people like this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211259.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211263.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Put the vape pen down lady, youre stoned. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211260.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. No one deserves to be this this dumb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211264.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211265.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Now this one is going to leave a mark. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211256.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Now we are asking the right questions. Just wait, in a few years Christian are going to start calling Jesus a p*ssy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211266.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211267.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. These people are beyond helping. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211268.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Only you can save yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211269.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87211270.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87211196.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">16 Celebrities With Criminal Pasts</a><br>
+
+<span style="font-size:4em">1. In 1999, Robert Downey Jr. in California for missing required drug tests while on probation for his 1996 charges — possession of cocaine, heroin, and a .357 magnum handgun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Also in Las Vegas, Paris Hilton was arrested in 2010 on suspicion of felony cocaine possession, after a container of the drug allegedly fell out of her handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. James Brown had many, many run-ins with the police throughout his years. This mugshot was taken after his arrest in 2004 in Aiken County, South Carolina for domestic violence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In 1993, Keanu Reeves was arrested in Los Angeles for a DUI and reckless driving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Ezra Miller was arrested in April 2022 in Hawaii for second-degree assault after he allegedly threw a chair which hit the victim on the forehead, causing a cut that was half an inch thick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Tiffany Haddish was arrested in Jan. 2022 for a DUI, after she allegedly was found sleeping in the driver’s seat of her vehicle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In 1961, Al Pacino was arrested in Woonsocket, Rhode Island for possession of a concealed weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bruno Mars was arrested in 2010 in Las Vegas for cocaine possession.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 2005, Chris Tucker was arrested in Georgia for reckless driving. Tucker was allegedly driving 109mph, and led the police on a 10-mile high-speed pursuit before he stopped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. David Bowie was arrested in 1976 in Rochester, New York for marijuana possession. Bowie and Iggy Pop were both arrested after police allegedly found six ounces of weed in their hotel rooms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In 2008, Khloe Kardashian turned herself in to Los Angeles County for violating the terms of her probation related to her 2007 DUI.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In 1938, Frank Sinatra was arrested in Hoboken, New Jersey for seducing a woman “under the promise of marriage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Lindsey Lohan was arrested in 2010 for probation violations related to her two DUI arrests in 2007.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 1959 when she was only 13 years old, Cher was arrested in Los Angeles for “borrowing” a friend’s car and driving without a license.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Bill Gates was arrested in 1977 in Albuquerque, New Mexico for driving without a license after he ran a stop sign.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mickey Rourke was arrested in 1994 in Los Angeles for spousal abuse of his 25-year-old wife.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87212146.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
