@@ -1,225 +1,217 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/20/2022-05:47:18
+Last updated: 07/20/2022-06:47:18
 <br>
-## <a href="#linky2" id="linky1">Man Enters Woman’s Unlocked Apartment Weeks after They Shared a Taxi</a><br>
+## <a href="#linky2" id="linky1">21 Disgusting Pics That Are Also Super Satisfying</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122719/87219349/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Plantar warts Laser removal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122737/87219352/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. It’s gross, I know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122730/87219351/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Terribly gross, but what a great feeling seeing the culprit of a clogged drain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122726/87219350/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Was having trouble hearing all day yesterday until my mom took her tweezers and pulled this thing out of my ear. Gross, but satisfying. Needless to say, I can hear now!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122714/87219348/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Gross but satisfying colour pallet of each clothes wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217095.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">6. When you buy a used DualShock 3… gross, but oddly satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217096.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Awesome Jobs That Actually Suck</a><br>
+<span style="font-size:4em">7. You can see how much my hair has grown since I dyed it 26 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. I strongly suspect being a spy doesnt involve half as many high-tech gadgets and spontaneous sexual intercourse as Ive been led to believe.
- 
--u/Rrraou
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217902.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. I left my mop outside and it grew grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Anything in modern-day publishing. How many television shows and movies must I watch where the plucky young upstart graduates from college and gets a job at the magazine or newspaper of their choice and is respected and can make a living?
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217903.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Cut the hair off my old round brush.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217904.png" style="width:100%"><br>
+<span style="font-size:4em">10. Kinda gross but this dead skin I pulled off my thumb sort of looks like the continental USA.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-The pay sucks, youre in constant danger of being laid off (when your pub folds, usually), and its usually a pretty corporate environment where youre tasked with multiple jobs for little hope of advancement. The names high up on the mastheads are usually those of rich people, and its because they started off rich and could afford to stay in the industry.
- 
--u/SarahRecords</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217905.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. One of two fly traps I set out Saturday evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. From what Ive understood, being a cowboy was (is?) really awful.
- 
--u/foxmachine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217906.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Pulled a hair out of my husband’s beard and it turned out to be several hairs growing out of one follicle… kinda gross but also interesting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Working on a film. If youre crew, it sucks. long long hours for what seems like very very slow progress on the picture, lots of standing around waiting, etc. You arrive well before everyone else and leave after everyone else. If this is an indie production you also may have to beg/chase down for your pay at the end of each week. Oh, and when the film wraps, youre now unemployed.
- 
--u/MrPelham</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217907.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My 4 year old slipper has outlined the arch and shape of my foot. Pretty gross but eh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Being a therapist. Too many people Ive met get into the field thinking its how they saw it on TV: affluent white collar, own office, warm slow pace environment, where you get to sit on a nice comfy couch and be like lets talk about your feelings. Thats only if you get to private practice, which they dont tell you is also like running your own small business, which good luck is you have no business acumen.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217908.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Wife said the shower drain was a little slow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217909.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Oil cleansing – gross yet so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-The reality is you get out of grad school, get your first job working at a Community Mental Health facility because they are the only ones who will hire you with a limited license and no experience, getting paid less than $40k/yr if youre lucky, and then get put in a walk-in closet of an office, where they dump 100 client caseload on you the first day. Followed by your first client who has 5 different diagnoses and is on 12 different psych meds who says to you f*ck you, youre the 7th different person Ive had here, nobody cares about me. Yeah people go into $100k of debt for that...
- 
--u/Puzzleheaded-Art-469</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217910.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. That feeling….so gross but so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Archaeologist, specifically field archaeology. 99% of the time you find absolutely nothing, its often physically demanding (sometimes grueling), the pay is sh*t, there are no benefits, you have to constantly travel, theres very little stability, I could go on.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217911.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. My bruise looks like the eye of Sauron.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217917.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. A tragic event unfolded months ago. My finger took a nasty beating. Yesterday the dead nail came off to reveal I’ve fathered a baby nail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Source: have worked in CRM (Cultural Resource Management) archaeology for several years now.
--u/eric3844</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217912.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A little gross, but this is the mark I left on the floor after my workout today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Lawyer. Number of historic, life-changing, precedent-setting cases participated in: 0. Number of angry, self entitled, abusive clients wanting to screw each other over: 842. Number of pages of paperwork that’s sucked up free time and social life: 84,836.
- 
--u/epicurious_aussie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217913.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Just learned you need to clean your bellybutton! So gross and yet so satisfying to clean it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Everyone used to think it was awesome that I worked in live sports TV. 70% of the people I worked with were miserable pricks with over-inflated egos, and then there were the athletes…
- 
--u/Shitty_Fat-tits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Ballerina.
- 
--u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217915.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Apparently, lifeguards, because nobody can find them anymore.
- 
--u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217916.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Anything in the music industry. Youre never really off the clock, the pay is terrible pretty much all across the board unless youre in the 1% of the top in any business. People think its all glamorous because they see the popstars, the music videos, the award shows. Truth is, its blood, sweat, tears, stress, lack of sleep, a lot of inappropriate behaviour, drugs (fun if you like it, not fun if you dont), alcohol (again: fun if you like it, not fun if you dont.) 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217918.png" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-And again: low pay, and then maybe once or twice a year you get a perk of going to an award show with free food, booze and a chance to say Hi to some celebs (cant even take a photo with them, really, as its not deemed professional in a work setting). Ive been there for 15 years give or take, branched out, still linked to it in some ways but I get my money (much better money, might I say) elsewhere now and without as much stress or worry.
- 
--u/TheRealDynamitri</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Most (not all) jobs in the environmental sector. Pay is usually quite low, you tend to work in very ugly places (landfills, contaminated sites). You are expected to get jobs done in half the time you really need with as few resources as possible. And if you are consulting for other companies, nobody really wants to be working with you to “save the environment” - they generally are just trying to barely meet some regulations.
- 
--u/waldo_92</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Anything that requires a lot of travel. Sounds glamorous but in reality, all you see is usually an airport, conference room, boring hotel room, and maybe a restaurant if you are lucky. It’s exhausting and it actually just sucks.
- 
--u/Electronic_Crab_8955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Computer game development, especially testing. That is the a** end of an industry that is mostly a**.
- 
--u/DrColdReality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Journalist. Expectation: I’m gonna be the next Hunter S. Thompson and write compelling feature pieces with a unique voice and get paid to travel the world! Reality: Talking to my editor about how my contact from the cat fashion show won’t call me back or do an interview unless we pay them $80 or adopt two cats.
- 
--u/kit_kat_barcalounger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Architect. You think you’ll be designing big fancy iconic buildings. Warehouses, Walmarts, strip malls, and sh*t box apartments all need architects and that’s probably what you’ll end up doing.
- 
--u/firenamedgabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Teacher. Fantasy: Im gonna change the world one student at a time. Reality: poor paying zoo.
- 
--u/beat_u2_it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217926.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. This eyeball cleaning…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217111.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">30 Life Hack Gadgets The World Isn’t Ready For</a><br>
+## <a href="#linky3" id="linky2">23 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217896.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217878.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217876.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217877.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217887.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217883.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217872.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217873.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217874.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217983.gif" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217875.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217984.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217879.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217871.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217880.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217881.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217988.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217882.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217884.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217885.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217886.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217888.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217993.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217889.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217994.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217890.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217891.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217900.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217997.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 People Who Hung Their TV in the Stratosphere</a><br>
+## <a href="#linky4" id="linky3">30 Savage Comments and Hot Takes </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042339/87218588/attic.png" style="width:100%"><br>
+<span style="font-size:4em">1. Oh he got you bro. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042347/87218589/basement.png" style="width:100%"><br>
+<span style="font-size:4em">2. This cant be a real chin. I refuse to believe this is a real chin. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219217.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042351/87218590/bar.png" style="width:100%"><br>
+<span style="font-size:4em">3. Got em. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219208.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042359/87218591/bed.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219212.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042402/87218593/bigscreen.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219209.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042410/87218594/ceiling.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219210.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042444/87218600/gaming.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219211.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042413/87218595/cozy.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219213.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042422/87218596/deer.png" style="width:100%"><br>
+<span style="font-size:4em">9. Cops know we laugh at them when they post those cute little drug bust pics right? 7 grams of weed, wow. Great job! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219221.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042424/87218597/fake.png" style="width:100%"><br>
+<span style="font-size:4em">10. Lmao, what would be your slur for toddlers? Little shitters?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219214.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042433/87218598/fire.png" style="width:100%"><br>
+<span style="font-size:4em">11. This is what peak male performance looks like, sorry hun. Can you imagine what Jeff Bezos must think of Musk? Is it safe to say Elon is the Virgin of the billionaire community? Not actually, but you know what we mean. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042436/87218599/green.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219215.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042458/87218603/hole.png" style="width:100%"><br>
+<span style="font-size:4em">13. Did we ever find out what was going on with this guy? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219216.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042507/87218604/ledge.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219218.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042511/87218605/over.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219219.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042522/87218607/paint.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219220.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042518/87218606/listing.png" style="width:100%"><br>
+<span style="font-size:4em">17. Jake Paul cross the road challenge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219222.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042530/87218608/roof.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219223.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042545/87218611/star.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219224.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042604/87218614/wires.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219225.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219226.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219227.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219228.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219229.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219230.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219231.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219232.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219233.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219234.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219235.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">25 Memes Only Gamers Will Understand</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113240/87219321/gamingmemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113202/87219314/gamingmemes9.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113115/87219306/gamingmemes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113116/87219307/gamingmemes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113127/87219308/gamingmemes2.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113128/87219309/gamingmemes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113138/87219310/gamingmemes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113228/87219319/gamingmemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113141/87219311/gamingmemes6.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113149/87219312/gamingmemes7.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113151/87219313/gamingmemes8.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113216/87219317/gamingmemes12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113224/87219318/gamingmemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113236/87219320/gamingmemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113334/87219330/gamingmemes25.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113248/87219322/gamingmemes17.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113250/87219323/gamingmemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113300/87219324/gamingmemes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113303/87219325/gamingmemes20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113311/87219326/gamingmemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113315/87219327/gamingmemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113213/87219316/gamingmemes11.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113323/87219328/gamingmemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113326/87219329/gamingmemes24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113204/87219315/gamingmemes10.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -356,61 +348,7 @@ And again: low pay, and then maybe once or twice a year you get a perk of going 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">25 Memes Only Gamers Will Understand</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113240/87219321/gamingmemes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113202/87219314/gamingmemes9.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113115/87219306/gamingmemes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113116/87219307/gamingmemes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113127/87219308/gamingmemes2.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113128/87219309/gamingmemes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113138/87219310/gamingmemes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113228/87219319/gamingmemes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113141/87219311/gamingmemes6.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113149/87219312/gamingmemes7.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113151/87219313/gamingmemes8.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113216/87219317/gamingmemes12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113224/87219318/gamingmemes13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113236/87219320/gamingmemes15.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113334/87219330/gamingmemes25.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113248/87219322/gamingmemes17.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113250/87219323/gamingmemes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113300/87219324/gamingmemes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113303/87219325/gamingmemes20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113311/87219326/gamingmemes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113315/87219327/gamingmemes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113213/87219316/gamingmemes11.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113323/87219328/gamingmemes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113326/87219329/gamingmemes24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/113204/87219315/gamingmemes10.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">25 Things Annoying Tourists NEED To Stop Doing</a><br>
+## <a href="#linky8" id="linky7">25 Things Annoying Tourists NEED To Stop Doing</a><br>
 
 <span style="font-size:4em">1. Dont carve your name on stuff! The number of people who need to carve their names onto historical buildings and statues is just crazy. Dont be a jerk. You are ruining the place. And respect peoples properties. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218748.png" style="width:100%"><br>
 
@@ -464,53 +402,147 @@ And again: low pay, and then maybe once or twice a year you get a perk of going 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">23 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky9" id="linky8">20 Paranormal Pics to Shiver Your Timbers</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217975.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217976.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218293.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217977.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Myself and another soldier in women’s barracks at Ft Jackson. I covered our eyes for privacy reasons and typed “property of ALG”. Those are the only changes I have made. IDK what is behind us in the corner…males weren’t allowed in our barracks, neither were civilian clothes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218286.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217978.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217979.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My friend from high school who now lives in Minnesota, explored the Anoka Asylum 3 years ago by himself, and heard some shuffling and various noises, and took several photos with his camera. This photo is one that he took.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218277.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217980.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218279.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217981.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218280.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217982.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. My mother in law took this photo on a walk in Cornwall. She swears there was no one else on the path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218283.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217983.gif" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218281.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217984.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218282.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217985.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218284.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217986.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218285.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217987.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218287.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217988.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218288.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217989.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218289.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217990.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218275.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217991.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218290.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217992.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218291.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217993.png" style="width:100%"><br>
+<span style="font-size:4em">19. My mother in-law sent me a security cam picture of what appears to be her mom, Nancy, who died in December 2013. Picture was taken this past Saturday when infrared security camera detected motion at her brothers back patio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218276.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217994.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218292.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217995.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217996.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">25 Awesome Jobs That Actually Suck</a><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217997.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I strongly suspect being a spy doesnt involve half as many high-tech gadgets and spontaneous sexual intercourse as Ive been led to believe.
+ 
+-u/Rrraou
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217902.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Anything in modern-day publishing. How many television shows and movies must I watch where the plucky young upstart graduates from college and gets a job at the magazine or newspaper of their choice and is respected and can make a living?
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217904.png" style="width:100%"><br>
+
+<span style="font-size:4em">
+The pay sucks, youre in constant danger of being laid off (when your pub folds, usually), and its usually a pretty corporate environment where youre tasked with multiple jobs for little hope of advancement. The names high up on the mastheads are usually those of rich people, and its because they started off rich and could afford to stay in the industry.
+ 
+-u/SarahRecords</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. From what Ive understood, being a cowboy was (is?) really awful.
+ 
+-u/foxmachine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Working on a film. If youre crew, it sucks. long long hours for what seems like very very slow progress on the picture, lots of standing around waiting, etc. You arrive well before everyone else and leave after everyone else. If this is an indie production you also may have to beg/chase down for your pay at the end of each week. Oh, and when the film wraps, youre now unemployed.
+ 
+-u/MrPelham</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Being a therapist. Too many people Ive met get into the field thinking its how they saw it on TV: affluent white collar, own office, warm slow pace environment, where you get to sit on a nice comfy couch and be like lets talk about your feelings. Thats only if you get to private practice, which they dont tell you is also like running your own small business, which good luck is you have no business acumen.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+The reality is you get out of grad school, get your first job working at a Community Mental Health facility because they are the only ones who will hire you with a limited license and no experience, getting paid less than $40k/yr if youre lucky, and then get put in a walk-in closet of an office, where they dump 100 client caseload on you the first day. Followed by your first client who has 5 different diagnoses and is on 12 different psych meds who says to you f*ck you, youre the 7th different person Ive had here, nobody cares about me. Yeah people go into $100k of debt for that...
+ 
+-u/Puzzleheaded-Art-469</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Archaeologist, specifically field archaeology. 99% of the time you find absolutely nothing, its often physically demanding (sometimes grueling), the pay is sh*t, there are no benefits, you have to constantly travel, theres very little stability, I could go on.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Source: have worked in CRM (Cultural Resource Management) archaeology for several years now.
+-u/eric3844</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lawyer. Number of historic, life-changing, precedent-setting cases participated in: 0. Number of angry, self entitled, abusive clients wanting to screw each other over: 842. Number of pages of paperwork that’s sucked up free time and social life: 84,836.
+ 
+-u/epicurious_aussie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Everyone used to think it was awesome that I worked in live sports TV. 70% of the people I worked with were miserable pricks with over-inflated egos, and then there were the athletes…
+ 
+-u/Shitty_Fat-tits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Ballerina.
+ 
+-u/purpleowlie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217915.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Apparently, lifeguards, because nobody can find them anymore.
+ 
+-u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217916.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Anything in the music industry. Youre never really off the clock, the pay is terrible pretty much all across the board unless youre in the 1% of the top in any business. People think its all glamorous because they see the popstars, the music videos, the award shows. Truth is, its blood, sweat, tears, stress, lack of sleep, a lot of inappropriate behaviour, drugs (fun if you like it, not fun if you dont), alcohol (again: fun if you like it, not fun if you dont.) 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217918.png" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+And again: low pay, and then maybe once or twice a year you get a perk of going to an award show with free food, booze and a chance to say Hi to some celebs (cant even take a photo with them, really, as its not deemed professional in a work setting). Ive been there for 15 years give or take, branched out, still linked to it in some ways but I get my money (much better money, might I say) elsewhere now and without as much stress or worry.
+ 
+-u/TheRealDynamitri</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Most (not all) jobs in the environmental sector. Pay is usually quite low, you tend to work in very ugly places (landfills, contaminated sites). You are expected to get jobs done in half the time you really need with as few resources as possible. And if you are consulting for other companies, nobody really wants to be working with you to “save the environment” - they generally are just trying to barely meet some regulations.
+ 
+-u/waldo_92</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Anything that requires a lot of travel. Sounds glamorous but in reality, all you see is usually an airport, conference room, boring hotel room, and maybe a restaurant if you are lucky. It’s exhausting and it actually just sucks.
+ 
+-u/Electronic_Crab_8955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Computer game development, especially testing. That is the a** end of an industry that is mostly a**.
+ 
+-u/DrColdReality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Journalist. Expectation: I’m gonna be the next Hunter S. Thompson and write compelling feature pieces with a unique voice and get paid to travel the world! Reality: Talking to my editor about how my contact from the cat fashion show won’t call me back or do an interview unless we pay them $80 or adopt two cats.
+ 
+-u/kit_kat_barcalounger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Architect. You think you’ll be designing big fancy iconic buildings. Warehouses, Walmarts, strip malls, and sh*t box apartments all need architects and that’s probably what you’ll end up doing.
+ 
+-u/firenamedgabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Teacher. Fantasy: Im gonna change the world one student at a time. Reality: poor paying zoo.
+ 
+-u/beat_u2_it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87217926.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -584,111 +616,125 @@ And again: low pay, and then maybe once or twice a year you get a perk of going 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">30 Savage Comments and Hot Takes </a><br>
+## <a href="#linky12" id="linky11">20 People Who Hung Their TV in the Stratosphere</a><br>
 
-<span style="font-size:4em">1. Oh he got you bro. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219206.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042339/87218588/attic.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. This cant be a real chin. I refuse to believe this is a real chin. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219217.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042347/87218589/basement.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Got em. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219208.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042351/87218590/bar.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219212.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042359/87218591/bed.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219209.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042402/87218593/bigscreen.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219210.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042410/87218594/ceiling.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219211.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042444/87218600/gaming.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219213.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042413/87218595/cozy.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Cops know we laugh at them when they post those cute little drug bust pics right? 7 grams of weed, wow. Great job! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219221.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042422/87218596/deer.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Lmao, what would be your slur for toddlers? Little shitters?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219214.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042424/87218597/fake.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. This is what peak male performance looks like, sorry hun. Can you imagine what Jeff Bezos must think of Musk? Is it safe to say Elon is the Virgin of the billionaire community? Not actually, but you know what we mean. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219207.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042433/87218598/fire.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219215.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042436/87218599/green.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Did we ever find out what was going on with this guy? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219216.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042458/87218603/hole.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219218.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042507/87218604/ledge.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219219.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042511/87218605/over.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219220.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042522/87218607/paint.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Jake Paul cross the road challenge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219222.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042518/87218606/listing.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219223.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042530/87218608/roof.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219224.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042545/87218611/star.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219225.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219226.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219227.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219228.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219229.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219230.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219231.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219232.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219233.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219234.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219235.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042604/87218614/wires.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 Paranormal Pics to Shiver Your Timbers</a><br>
+## <a href="#linky13" id="linky12">30 Life Hack Gadgets The World Isn’t Ready For</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218274.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217896.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218293.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Myself and another soldier in women’s barracks at Ft Jackson. I covered our eyes for privacy reasons and typed “property of ALG”. Those are the only changes I have made. IDK what is behind us in the corner…males weren’t allowed in our barracks, neither were civilian clothes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218286.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218278.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. My friend from high school who now lives in Minnesota, explored the Anoka Asylum 3 years ago by himself, and heard some shuffling and various noises, and took several photos with his camera. This photo is one that he took.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218277.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217887.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218279.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217883.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218280.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My mother in law took this photo on a walk in Cornwall. She swears there was no one else on the path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218283.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218281.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218282.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218284.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218285.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218287.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218288.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217881.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218289.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218275.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218290.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217885.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218291.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217886.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. My mother in-law sent me a security cam picture of what appears to be her mom, Nancy, who died in December 2013. Picture was taken this past Saturday when infrared security camera detected motion at her brothers back patio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218276.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217888.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218292.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217900.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Man Enters Woman’s Unlocked Apartment Weeks after They Shared a Taxi</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122719/87219349/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122737/87219352/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122730/87219351/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122726/87219350/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122714/87219348/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
