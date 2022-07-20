@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/19/2022-18:47:19
+Last updated: 07/19/2022-19:47:18
 <br>
 ## <a href="#linky2" id="linky1">25 Memes Only Gamers Will Understand</a><br>
 
@@ -55,95 +55,59 @@ Last updated: 07/19/2022-18:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Nightclub Photos Sure to Give Us a Hangover</a><br>
+## <a href="#linky3" id="linky2">24 Things That Used to Be Lame, but Now are Cool</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020225/87218526/cowboy.png" style="width:100%"><br>
+<span style="font-size:4em">1. Actually sitting down and relaxing.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122128/87218384/youngtoold2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020233/87218527/cry.png" style="width:100%"><br>
+<span style="font-size:4em">2. Receiving socks for Christmas.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122141/87218385/youngtoold1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020237/87218528/bee.png" style="width:100%"><br>
+<span style="font-size:4em">3. Staying in on Friday / weekend nights.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122152/87218386/youngtoold5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020244/87218529/crystal.png" style="width:100%"><br>
+<span style="font-size:4em">4. Going to bed before 10pm.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122159/87218387/youngtoold4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020248/87218530/elmo.png" style="width:100%"><br>
+<span style="font-size:4em">5. Insoles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122330/87218403/youngtoold20.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020256/87218531/dad.png" style="width:100%"><br>
+<span style="font-size:4em">6. Stapling all your papers together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122204/87218388/youngtoold6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020329/87218537/onion.png" style="width:100%"><br>
+<span style="font-size:4em">7. Buying new household appliances.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122406/87218407/youngtoold24.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020300/87218532/happy.png" style="width:100%"><br>
+<span style="font-size:4em">8. Getting excited about cooking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122212/87218389/youngtoold7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020307/87218533/kiss.png" style="width:100%"><br>
+<span style="font-size:4em">9. Taking time to learn new things.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122216/87218390/youngtoold8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020311/87218534/eyes.png" style="width:100%"><br>
+<span style="font-size:4em">10. Going to Home Depot or other big department stores. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122235/87218393/youngtoold11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020318/87218535/mac.png" style="width:100%"><br>
+<span style="font-size:4em">11. Hanging out with your parents.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122240/87218394/youngtoold12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020322/87218536/noodle.png" style="width:100%"><br>
+<span style="font-size:4em">12. Reading for fun.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122223/87218391/youngtoold9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020334/87218538/pizza.png" style="width:100%"><br>
+<span style="font-size:4em">13. Cutting yourself off from drugs / alcohol later in the night.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122227/87218392/youngtoold10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020345/87218540/pour.png" style="width:100%"><br>
+<span style="font-size:4em">14. Comfy shoes over stylish ones. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122332/87218404/youngtoold21.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020351/87218541/smurf.png" style="width:100%"><br>
+<span style="font-size:4em">15. Taking naps.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122246/87218395/youngtoold13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020340/87218539/shrek.png" style="width:100%"><br>
+<span style="font-size:4em">16. House plants.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122252/87218396/youngtoold14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020356/87218542/sleep.png" style="width:100%"><br>
+<span style="font-size:4em">17. The party ending at 9-10pm, and not getting pressured into staying later for saying “I have to get up early for work.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122257/87218397/youngtoold15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020402/87218543/tongue.png" style="width:100%"><br>
+<span style="font-size:4em">18. Canceling plans.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122115/87218383/youngtoold3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020408/87218544/wow.png" style="width:100%"><br>
+<span style="font-size:4em">19. Diving into your hobbies instead of down playing them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122306/87218399/youngtoold16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020645/87218545/spider.png" style="width:100%"><br>
+<span style="font-size:4em">20. Wearing your backpack on both shoulders, and tightening the straps appropriately.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122310/87218400/youngtoold17.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">21. Yard work.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122318/87218401/youngtoold18.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">20 Paranormal Pics to Shiver Your Timbers</a><br>
+<span style="font-size:4em">22. Going for walks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122321/87218402/youngtoold19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218274.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Eating healthy. A few pieces of broccoli and I feel like a superhero nowadays.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122343/87218405/youngtoold22.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218293.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Myself and another soldier in women’s barracks at Ft Jackson. I covered our eyes for privacy reasons and typed “property of ALG”. Those are the only changes I have made. IDK what is behind us in the corner…males weren’t allowed in our barracks, neither were civilian clothes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218286.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My friend from high school who now lives in Minnesota, explored the Anoka Asylum 3 years ago by himself, and heard some shuffling and various noises, and took several photos with his camera. This photo is one that he took.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218277.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218279.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218280.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My mother in law took this photo on a walk in Cornwall. She swears there was no one else on the path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218283.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218281.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218284.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218285.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218287.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218288.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218289.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218275.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218291.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My mother in-law sent me a security cam picture of what appears to be her mom, Nancy, who died in December 2013. Picture was taken this past Saturday when infrared security camera detected motion at her brothers back patio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218276.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218292.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. Going to museums.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122355/87218406/youngtoold23.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">30 Savage Comments and Hot Takes </a><br>
+## <a href="#linky4" id="linky3">30 Savage Comments and Hot Takes </a><br>
 
 <span style="font-size:4em">1. Oh he got you bro. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219206.jpg" style="width:100%"><br>
 
@@ -207,77 +171,61 @@ Last updated: 07/19/2022-18:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">33 Safety Fails to Make You Squirm</a><br>
+## <a href="#linky5" id="linky4">25 Things Annoying Tourists NEED To Stop Doing</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218071.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Dont carve your name on stuff! The number of people who need to carve their names onto historical buildings and statues is just crazy. Dont be a jerk. You are ruining the place. And respect peoples properties. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218748.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218072.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Going on the black rocks and being swept out to the Atlantic Ocean, risking the lives of first responders and locals many of whom are already traumatized from Swiss Air.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218073.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Deface world heritage sites for souvenirs or internet clout. For example: The Colosseum in Rome has graffiti carved into its walls by arsehole tourists and Stone Henge is closed off to the public because arseholes were chipping pieces off for souvenirs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218750.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218074.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. For your sake, STOP TRYING TO PET THE BUFFALO! Or dont, some of us are entertained by the videos of you flying through the air.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218751.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218075.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Stop trying to hike up a mountain in flip-flops! Also, dont try to use an air mattress as a mode of transport between islands. Several of these every year... </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218752.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218076.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Stopping their cars in the middle of the road to take in a view. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218077.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Saying, “I paid a lot to be here,” or I’ll leave a horrible review.” Driving like a jerk, leaving garbage anywhere but a rubbish bin, stopping in the middle of the road to let out your family of 12 instead of pulling into the parking lot. I live in Hawaii and work only with tourists. Best yet, My company was asked to contact the cruise ship company to have them move the ship because it disrupted the sunset.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218078.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Driving drunk. I live in Sonoma County, California. Make sure you’ve got a sober driver. The roads around here are never more dangerous than winery tasting room closing time on a sunny weekend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218079.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In my hometown, it somehow became a thing that tourists would rent mopeds. So when you are trying to get to work, you often get stuck behind a flock of tourists on mopeds, riding at 20MPH in formation so you cannot pass them. We are infested with gawking tourists moped gangs. If they want to rent mopeds, at least go the speed limit, and ride in a manner that allows others to pass you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218756.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218080.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Stop feeding the dang seagulls…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218757.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218081.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Spain. We get a ton of tourists. The worst is littering on the beach, which is thankfully pretty rare. I occasionally see someone put a cigarette butt in the sand. A lot are taken away when they leave, but the sand has a way of hiding stuff, so a lot remains.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218758.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218082.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Allowing their kids to do whatever they want. Once a year my town has a weekend where the Boy Scouts take over the town camping down by the river, taking tours of the historic buildings etc. Every year most of the downtown shops will close for this weekend because of how much the Boy Scouts will steal or vandalize while there. Everyone that lives there dreads that weekend because the troop leaders just let the scouts do whatever they want.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218759.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218083.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Stop walking out into the middle of an active downtown street to take group pictures of yourselves in cheerleading outfits on the spot where Kennedy was shot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218084.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Amsterdam. Walking around like theyre at Legoland, blindly stepping into traffic, oblivious to the fact that people actually live here. We use the bike to get to work, to get groceries, were not just aimlessly cycling around for the fun of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218761.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218085.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Stopping dead in a crowd in the middle of the sidewalk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218086.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Leave. The. Wildlife. Alone. And this doesnt just extend to tourists but to people that live here too. 45+ coyote attacks last year in no small part because of people giving them food leading to a cull, bears getting habituated to people because theyre being given food leading to them getting killed, otters and sea lions getting fed. Theyre not cute cuddly things. Theyre wild animals and will kill you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218087.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Stop being a belligerent asshole just because you’re in “N’AWLINS.” It’s still not an excuse to get blackout drunk, litter, and make hell for food service workers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218088.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Getting sh*tfaced / coked up and getting up in peoples business or picking fights with the doorman or bar staff. Or talk about weed and getting stoned the entire time. Or ask me where the Red Light District is while standing in the Red Light district. Or renting a bike when the last time you rode one was in preschool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218765.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218089.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Specifically regarding Movie/TV Houses. Unless the house is a museum or has tours, its almost certainly someones home. Stay off their porch, dont walk through the yard, and STOP THROWING PIZZAS ON THE ROOF! The poor people who owned Walter Whites house had to put up a giant fence because the dozens of signs about it were being ignored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218090.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. In New York, if you visit, please walk on the right side of the sidewalk, not the left. Also, if you need to stop and look at your phone or have a conversation with your fellow travelers, step aside. People are walking and if you abruptly stop it usually results in someone bumping into you. Also, do not walk like 5 people side by side and walking slowly. People cant get around you. It is infuriating. But, please keep visiting NYC! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218091.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Allow the me from 20 years ago to take this opportunity to officially apologize for recreating the Abby Road picture with my friends during a college trip to London.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218092.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Stop laying down next to the stars on the Hollywood walk of fame! Hollywood is filthy. Oh you laid down next to your favorite star? Congratulations. You’re now covered in homeless person piss and jizz. You should burn those clothes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218093.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Nobody likes your f*cking drone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218770.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218094.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Caribbean island ... people who complain that they cant get a Heineken or a Bud Light here. People who complain that they cant get fast food or chain food here. People who basically are angry that a tiny island in the Caribbean isnt just like the Houston suburbs. If you want everything you have in the US, stay the f*ck in the US. Also infuriating during the pandemic: Your island requires masks and negative tests!? Well if you keep that up we will NOT be visiting and will take our money elsewhere! Fine. Go elsewhere. We dont want you on our island, where the entirety of our healthcare is a small clinic with five beds. Dont threaten people with money, f*cking entitled jerks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218103.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Clean up your f*cking trash. I used to live in a spring break destination which was a small surf town. After spring break, people would be cleaning up pounds upon pounds of beer cans, broken bottles, needles, and used condoms. It was revolting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218772.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">30 Life Hack Gadgets The World Isn’t Ready For</a><br>
+## <a href="#linky6" id="linky5">30 Life Hack Gadgets The World Isn’t Ready For</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217896.jpg" style="width:100%"><br>
 
@@ -341,61 +289,7 @@ Last updated: 07/19/2022-18:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">25 Things Annoying Tourists NEED To Stop Doing</a><br>
-
-<span style="font-size:4em">1. Dont carve your name on stuff! The number of people who need to carve their names onto historical buildings and statues is just crazy. Dont be a jerk. You are ruining the place. And respect peoples properties. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218748.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Going on the black rocks and being swept out to the Atlantic Ocean, risking the lives of first responders and locals many of whom are already traumatized from Swiss Air.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Deface world heritage sites for souvenirs or internet clout. For example: The Colosseum in Rome has graffiti carved into its walls by arsehole tourists and Stone Henge is closed off to the public because arseholes were chipping pieces off for souvenirs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218750.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. For your sake, STOP TRYING TO PET THE BUFFALO! Or dont, some of us are entertained by the videos of you flying through the air.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218751.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Stop trying to hike up a mountain in flip-flops! Also, dont try to use an air mattress as a mode of transport between islands. Several of these every year... </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218752.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Stopping their cars in the middle of the road to take in a view. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Saying, “I paid a lot to be here,” or I’ll leave a horrible review.” Driving like a jerk, leaving garbage anywhere but a rubbish bin, stopping in the middle of the road to let out your family of 12 instead of pulling into the parking lot. I live in Hawaii and work only with tourists. Best yet, My company was asked to contact the cruise ship company to have them move the ship because it disrupted the sunset.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Driving drunk. I live in Sonoma County, California. Make sure you’ve got a sober driver. The roads around here are never more dangerous than winery tasting room closing time on a sunny weekend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In my hometown, it somehow became a thing that tourists would rent mopeds. So when you are trying to get to work, you often get stuck behind a flock of tourists on mopeds, riding at 20MPH in formation so you cannot pass them. We are infested with gawking tourists moped gangs. If they want to rent mopeds, at least go the speed limit, and ride in a manner that allows others to pass you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218756.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Stop feeding the dang seagulls…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218757.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Spain. We get a ton of tourists. The worst is littering on the beach, which is thankfully pretty rare. I occasionally see someone put a cigarette butt in the sand. A lot are taken away when they leave, but the sand has a way of hiding stuff, so a lot remains.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218758.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Allowing their kids to do whatever they want. Once a year my town has a weekend where the Boy Scouts take over the town camping down by the river, taking tours of the historic buildings etc. Every year most of the downtown shops will close for this weekend because of how much the Boy Scouts will steal or vandalize while there. Everyone that lives there dreads that weekend because the troop leaders just let the scouts do whatever they want.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218759.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Stop walking out into the middle of an active downtown street to take group pictures of yourselves in cheerleading outfits on the spot where Kennedy was shot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Amsterdam. Walking around like theyre at Legoland, blindly stepping into traffic, oblivious to the fact that people actually live here. We use the bike to get to work, to get groceries, were not just aimlessly cycling around for the fun of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218761.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Stopping dead in a crowd in the middle of the sidewalk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Leave. The. Wildlife. Alone. And this doesnt just extend to tourists but to people that live here too. 45+ coyote attacks last year in no small part because of people giving them food leading to a cull, bears getting habituated to people because theyre being given food leading to them getting killed, otters and sea lions getting fed. Theyre not cute cuddly things. Theyre wild animals and will kill you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Stop being a belligerent asshole just because you’re in “N’AWLINS.” It’s still not an excuse to get blackout drunk, litter, and make hell for food service workers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Getting sh*tfaced / coked up and getting up in peoples business or picking fights with the doorman or bar staff. Or talk about weed and getting stoned the entire time. Or ask me where the Red Light District is while standing in the Red Light district. Or renting a bike when the last time you rode one was in preschool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218765.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Specifically regarding Movie/TV Houses. Unless the house is a museum or has tours, its almost certainly someones home. Stay off their porch, dont walk through the yard, and STOP THROWING PIZZAS ON THE ROOF! The poor people who owned Walter Whites house had to put up a giant fence because the dozens of signs about it were being ignored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In New York, if you visit, please walk on the right side of the sidewalk, not the left. Also, if you need to stop and look at your phone or have a conversation with your fellow travelers, step aside. People are walking and if you abruptly stop it usually results in someone bumping into you. Also, do not walk like 5 people side by side and walking slowly. People cant get around you. It is infuriating. But, please keep visiting NYC! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Allow the me from 20 years ago to take this opportunity to officially apologize for recreating the Abby Road picture with my friends during a college trip to London.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Stop laying down next to the stars on the Hollywood walk of fame! Hollywood is filthy. Oh you laid down next to your favorite star? Congratulations. You’re now covered in homeless person piss and jizz. You should burn those clothes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Nobody likes your f*cking drone. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218770.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. Caribbean island ... people who complain that they cant get a Heineken or a Bud Light here. People who complain that they cant get fast food or chain food here. People who basically are angry that a tiny island in the Caribbean isnt just like the Houston suburbs. If you want everything you have in the US, stay the f*ck in the US. Also infuriating during the pandemic: Your island requires masks and negative tests!? Well if you keep that up we will NOT be visiting and will take our money elsewhere! Fine. Go elsewhere. We dont want you on our island, where the entirety of our healthcare is a small clinic with five beds. Dont threaten people with money, f*cking entitled jerks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Clean up your f*cking trash. I used to live in a spring break destination which was a small surf town. After spring break, people would be cleaning up pounds upon pounds of beer cans, broken bottles, needles, and used condoms. It was revolting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87218772.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">23 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky7" id="linky6">23 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217975.jpg" style="width:100%"><br>
 
@@ -445,7 +339,7 @@ Last updated: 07/19/2022-18:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Awesome Jobs That Actually Suck</a><br>
+## <a href="#linky8" id="linky7">25 Awesome Jobs That Actually Suck</a><br>
 
 <span style="font-size:4em">1. I strongly suspect being a spy doesnt involve half as many high-tech gadgets and spontaneous sexual intercourse as Ive been led to believe.
  
@@ -545,106 +439,121 @@ And again: low pay, and then maybe once or twice a year you get a perk of going 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">24 Things That Used to Be Lame, but Now are Cool</a><br>
+## <a href="#linky9" id="linky8">33 Safety Fails to Make You Squirm</a><br>
 
-<span style="font-size:4em">1. Actually sitting down and relaxing.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122128/87218384/youngtoold2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Receiving socks for Christmas.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122141/87218385/youngtoold1.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Staying in on Friday / weekend nights.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122152/87218386/youngtoold5.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Going to bed before 10pm.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122159/87218387/youngtoold4.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Insoles.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122330/87218403/youngtoold20.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Stapling all your papers together.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122204/87218388/youngtoold6.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Buying new household appliances.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122406/87218407/youngtoold24.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Getting excited about cooking.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122212/87218389/youngtoold7.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Taking time to learn new things.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122216/87218390/youngtoold8.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Going to Home Depot or other big department stores. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122235/87218393/youngtoold11.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Hanging out with your parents.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122240/87218394/youngtoold12.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Reading for fun.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122223/87218391/youngtoold9.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Cutting yourself off from drugs / alcohol later in the night.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122227/87218392/youngtoold10.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Comfy shoes over stylish ones. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122332/87218404/youngtoold21.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Taking naps.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122246/87218395/youngtoold13.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. House plants.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122252/87218396/youngtoold14.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The party ending at 9-10pm, and not getting pressured into staying later for saying “I have to get up early for work.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122257/87218397/youngtoold15.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Canceling plans.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122115/87218383/youngtoold3.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218088.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Diving into your hobbies instead of down playing them.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122306/87218399/youngtoold16.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Wearing your backpack on both shoulders, and tightening the straps appropriately.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122310/87218400/youngtoold17.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Yard work.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122318/87218401/youngtoold18.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Going for walks.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122321/87218402/youngtoold19.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Eating healthy. A few pieces of broccoli and I feel like a superhero nowadays.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122343/87218405/youngtoold22.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Going to museums.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/122355/87218406/youngtoold23.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218094.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218095.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">21 Crazy Pics Collected From the Internet  </a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218096.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. A homemade shotgun found in the house of the assassin that killed Japans Ex Prime Minister Shinzo Abe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218564.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Lebron James dunk NFT that sold for over $230,000 last year gets a top offer of just $25 as NFT markets tumble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218551.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This utility box is painted to look like an aquarium.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218571.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. James Webb compared to Hubble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218552.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The primary mirror of NASA’s James Webb Space Telescope consisting of 18 hexagonal mirrors. NASA photo taken in 2016.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218553.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Hubble Telescope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218554.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. X-Rays from the US-Mexico Border Patrol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ariel View of Niagara Falls</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Thanos and Gamora</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218557.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. This is what 5000lbs of Meth Looks Like</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Family Feud from behind the front podium</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This is what it looks like to stand behind a podium on the Jeopardy! set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. People with astigmatism driving at night see this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The inventor of Pac-Man shows his original drafts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218562.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Same location, two different seasons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. George Washington if he was living in 2022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218565.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Absolute game-changer”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Need a toilet? Take a toilet!
-Have a toilet? Leave a toilet!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “The local Vietnamese restaurant has a very clever WiFi password.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “The clever placement of a bumper sticker”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Never drop a book on the bath again. My 8-year-old daughter’s invention.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218576.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87218103.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 People Who Hung Their TV in the Stratosphere</a><br>
+## <a href="#linky10" id="linky9">20 Nightclub Photos Sure to Give Us a Hangover</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020225/87218526/cowboy.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020233/87218527/cry.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020237/87218528/bee.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020244/87218529/crystal.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020248/87218530/elmo.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020256/87218531/dad.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020329/87218537/onion.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020300/87218532/happy.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020307/87218533/kiss.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020311/87218534/eyes.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020318/87218535/mac.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020322/87218536/noodle.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020334/87218538/pizza.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020345/87218540/pour.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020351/87218541/smurf.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020340/87218539/shrek.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020356/87218542/sleep.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020402/87218543/tongue.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020408/87218544/wow.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/020645/87218545/spider.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 People Who Hung Their TV in the Stratosphere</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042339/87218588/attic.png" style="width:100%"><br>
 
@@ -685,6 +594,50 @@ Have a toilet? Leave a toilet!”</span><br><img src="https://cdn.ebaumsworld.co
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042545/87218611/star.png" style="width:100%"><br>
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/18/042604/87218614/wires.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">20 Paranormal Pics to Shiver Your Timbers</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218293.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Myself and another soldier in women’s barracks at Ft Jackson. I covered our eyes for privacy reasons and typed “property of ALG”. Those are the only changes I have made. IDK what is behind us in the corner…males weren’t allowed in our barracks, neither were civilian clothes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218286.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My friend from high school who now lives in Minnesota, explored the Anoka Asylum 3 years ago by himself, and heard some shuffling and various noises, and took several photos with his camera. This photo is one that he took.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218277.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218279.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218280.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mother in law took this photo on a walk in Cornwall. She swears there was no one else on the path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218283.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218281.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218284.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218285.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218287.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218288.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218289.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218275.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218291.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My mother in-law sent me a security cam picture of what appears to be her mom, Nancy, who died in December 2013. Picture was taken this past Saturday when infrared security camera detected motion at her brothers back patio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218276.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87218292.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
