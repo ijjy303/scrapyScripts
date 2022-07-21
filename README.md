@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/20/2022-23:47:17
+Last updated: 07/21/2022-00:47:18
 <br>
 ## <a href="#linky2" id="linky1">47 Times Photoshop Troll James Fridman Owned People Asking for Help</a><br>
 
@@ -99,11 +99,7 @@ Last updated: 07/20/2022-23:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Andy Kaufman's Infamous Prank that Started a Brawl on the Live TV Set</a><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">Man Enters Woman’s Unlocked Apartment Weeks after They Shared a Taxi</a><br>
+## <a href="#linky3" id="linky2">Man Enters Woman’s Unlocked Apartment Weeks after They Shared a Taxi</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122719/87219349/one.jpg" style="width:100%"><br>
 
@@ -114,6 +110,10 @@ Last updated: 07/20/2022-23:47:17
 <span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122726/87219350/four.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122714/87219348/five.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Andy Kaufman's Infamous Prank that Started a Brawl on the Live TV Set</a><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -409,7 +409,97 @@ Last updated: 07/20/2022-23:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">28 Entitled Jerks Making Things Worse For the Rest of Us</a><br>
+## <a href="#linky10" id="linky9">21 Disgusting Pics That Are Also Super Satisfying</a><br>
+
+<span style="font-size:4em">1. Plantar warts Laser removal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. It’s gross, I know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Terribly gross, but what a great feeling seeing the culprit of a clogged drain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Was having trouble hearing all day yesterday until my mom took her tweezers and pulled this thing out of my ear. Gross, but satisfying. Needless to say, I can hear now!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Gross but satisfying colour pallet of each clothes wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. When you buy a used DualShock 3… gross, but oddly satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. You can see how much my hair has grown since I dyed it 26 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I left my mop outside and it grew grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Cut the hair off my old round brush.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Kinda gross but this dead skin I pulled off my thumb sort of looks like the continental USA.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. One of two fly traps I set out Saturday evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Pulled a hair out of my husband’s beard and it turned out to be several hairs growing out of one follicle… kinda gross but also interesting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My 4 year old slipper has outlined the arch and shape of my foot. Pretty gross but eh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Wife said the shower drain was a little slow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Oil cleansing – gross yet so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That feeling….so gross but so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My bruise looks like the eye of Sauron.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A tragic event unfolded months ago. My finger took a nasty beating. Yesterday the dead nail came off to reveal I’ve fathered a baby nail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A little gross, but this is the mark I left on the floor after my workout today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Just learned you need to clean your bellybutton! So gross and yet so satisfying to clean it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This eyeball cleaning…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217111.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Fascinating Finds That Make History a Little Too Real</a><br>
+
+<span style="font-size:4em">1. Lower part of a leg and foot with sandal of the over life size statue of Roman emperor Marcus Aurelius(reign 161-180 A.D.) found at Sagalassos, Turkey in 2008.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219340.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A 2000 year old Thracian chariot with horse skeletons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219337.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A 2000 year old green serpentine mask found at the base of a pyramid in Mexico.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123912/87219360/gczi2f7698141.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. While unpacking Tuts mummy, the incredible daggers were discovered, and one of them had an iron blade with a gold handle and a crystal knob on it. In 2016, new tests were done on this dagger and it was confirmed that it was not just an ordinary iron but a meteoric iron that came from the stars.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123935/87219365/qlp8mgye0fe81.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Over 300 mummified crocodiles were found at the Temple of Kom Ombo, a double temple dedicated to Sobek and Horus, here are a couple of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219336.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Circa 6th century B.C.E. A 315 lb. block of sandstone found in the ruins of Olympia with the carved inscription, “Bybon, son of Pholos, threw this over his head with one hand.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Helmets and weapons from the famed 6th-century BC naval Battle of Alalia, in Paestum and Velia archaeological site.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219345.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. 1200 stone sculptures with different expressions on their faces at the nenbutsu-Ju Buddhist temple. Kyoto, Japan.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123919/87219361/h7u3gjv3d4y41.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. New Imperial head discovered in Rome.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123932/87219364/9twnrfvlks031.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Discovered a sculpture of an Iberian lioness from the 5th century BC. Cordoba, Spain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219339.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. 2000 year-old glass mosaics, from the ancient city of Zeugma in Turkey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219341.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. 5,000-year-old wooden boat used by the pharaohs is discovered by French archaeologists.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Me, excavating a Roman skeleton (probably 2-3C) from a Lime fort cemetery, in Bulgaria, recently declared a UNESCO world heritage site. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219343.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A 5,500-year-old leather shoe – complete with laces – has been unearthed in cave in Armenia.The perfectly preserved shoe – 1,000 years older than the Great Pyramid of Giza and 400 years older than Stonehenge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A bronze mirror found in an Etruscan tomb. 465-450 BC. The Mirror is on display at the Nelson-Atkins Museum of Art.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123901/87219358/g9acid2462291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Footprint of a Roman boy. It is on display at the Malton Museum.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123908/87219359/72al5467ezp81.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The oldest known temple in the world: Göbeklitepe, Urfa.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123924/87219362/ih6iszzcb9u41.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Pyramids Of Sudan.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123932/87219363/n2tx37qq98k31.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Old Assyrian cuneiform tablets from the Yale Babylonian Collection.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123943/87219366/wjmv8qtnhrq41.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Marble sarcophagus of King of Rus Yaroslav the Wise and his wife Queen Ingegerd Olofsdotter of Sweden in Kyiv, Ukraine.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123946/87219367/z15kh06lyb491.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">28 Entitled Jerks Making Things Worse For the Rest of Us</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218739.jpg" style="width:100%"><br>
 
@@ -466,96 +556,6 @@ Last updated: 07/20/2022-23:47:17
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218743.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218744.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">20 Fascinating Finds That Make History a Little Too Real</a><br>
-
-<span style="font-size:4em">1. Lower part of a leg and foot with sandal of the over life size statue of Roman emperor Marcus Aurelius(reign 161-180 A.D.) found at Sagalassos, Turkey in 2008.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219340.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A 2000 year old Thracian chariot with horse skeletons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219337.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A 2000 year old green serpentine mask found at the base of a pyramid in Mexico.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123912/87219360/gczi2f7698141.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. While unpacking Tuts mummy, the incredible daggers were discovered, and one of them had an iron blade with a gold handle and a crystal knob on it. In 2016, new tests were done on this dagger and it was confirmed that it was not just an ordinary iron but a meteoric iron that came from the stars.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123935/87219365/qlp8mgye0fe81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Over 300 mummified crocodiles were found at the Temple of Kom Ombo, a double temple dedicated to Sobek and Horus, here are a couple of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219336.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Circa 6th century B.C.E. A 315 lb. block of sandstone found in the ruins of Olympia with the carved inscription, “Bybon, son of Pholos, threw this over his head with one hand.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Helmets and weapons from the famed 6th-century BC naval Battle of Alalia, in Paestum and Velia archaeological site.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219345.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. 1200 stone sculptures with different expressions on their faces at the nenbutsu-Ju Buddhist temple. Kyoto, Japan.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123919/87219361/h7u3gjv3d4y41.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. New Imperial head discovered in Rome.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123932/87219364/9twnrfvlks031.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Discovered a sculpture of an Iberian lioness from the 5th century BC. Cordoba, Spain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219339.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. 2000 year-old glass mosaics, from the ancient city of Zeugma in Turkey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219341.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. 5,000-year-old wooden boat used by the pharaohs is discovered by French archaeologists.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Me, excavating a Roman skeleton (probably 2-3C) from a Lime fort cemetery, in Bulgaria, recently declared a UNESCO world heritage site. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219343.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A 5,500-year-old leather shoe – complete with laces – has been unearthed in cave in Armenia.The perfectly preserved shoe – 1,000 years older than the Great Pyramid of Giza and 400 years older than Stonehenge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87219344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A bronze mirror found in an Etruscan tomb. 465-450 BC. The Mirror is on display at the Nelson-Atkins Museum of Art.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123901/87219358/g9acid2462291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Footprint of a Roman boy. It is on display at the Malton Museum.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123908/87219359/72al5467ezp81.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The oldest known temple in the world: Göbeklitepe, Urfa.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123924/87219362/ih6iszzcb9u41.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Pyramids Of Sudan.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123932/87219363/n2tx37qq98k31.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Old Assyrian cuneiform tablets from the Yale Babylonian Collection.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123943/87219366/wjmv8qtnhrq41.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Marble sarcophagus of King of Rus Yaroslav the Wise and his wife Queen Ingegerd Olofsdotter of Sweden in Kyiv, Ukraine.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/123946/87219367/z15kh06lyb491.jpeg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">21 Disgusting Pics That Are Also Super Satisfying</a><br>
-
-<span style="font-size:4em">1. Plantar warts Laser removal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. It’s gross, I know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Terribly gross, but what a great feeling seeing the culprit of a clogged drain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Was having trouble hearing all day yesterday until my mom took her tweezers and pulled this thing out of my ear. Gross, but satisfying. Needless to say, I can hear now!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gross but satisfying colour pallet of each clothes wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When you buy a used DualShock 3… gross, but oddly satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. You can see how much my hair has grown since I dyed it 26 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I left my mop outside and it grew grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Cut the hair off my old round brush.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Kinda gross but this dead skin I pulled off my thumb sort of looks like the continental USA.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. One of two fly traps I set out Saturday evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Pulled a hair out of my husband’s beard and it turned out to be several hairs growing out of one follicle… kinda gross but also interesting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My 4 year old slipper has outlined the arch and shape of my foot. Pretty gross but eh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Wife said the shower drain was a little slow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Oil cleansing – gross yet so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. That feeling….so gross but so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My bruise looks like the eye of Sauron.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A tragic event unfolded months ago. My finger took a nasty beating. Yesterday the dead nail came off to reveal I’ve fathered a baby nail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A little gross, but this is the mark I left on the floor after my workout today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Just learned you need to clean your bellybutton! So gross and yet so satisfying to clean it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This eyeball cleaning…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217111.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
