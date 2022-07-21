@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/21/2022-01:47:17
+Last updated: 07/21/2022-02:47:17
 <br>
 ## <a href="#linky2" id="linky1">47 Times Photoshop Troll James Fridman Owned People Asking for Help</a><br>
 
@@ -99,119 +99,169 @@ Last updated: 07/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">21 Disgusting Pics That Are Also Super Satisfying</a><br>
-
-<span style="font-size:4em">1. Plantar warts Laser removal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. It’s gross, I know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Terribly gross, but what a great feeling seeing the culprit of a clogged drain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Was having trouble hearing all day yesterday until my mom took her tweezers and pulled this thing out of my ear. Gross, but satisfying. Needless to say, I can hear now!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gross but satisfying colour pallet of each clothes wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When you buy a used DualShock 3… gross, but oddly satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. You can see how much my hair has grown since I dyed it 26 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I left my mop outside and it grew grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Cut the hair off my old round brush.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Kinda gross but this dead skin I pulled off my thumb sort of looks like the continental USA.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. One of two fly traps I set out Saturday evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Pulled a hair out of my husband’s beard and it turned out to be several hairs growing out of one follicle… kinda gross but also interesting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My 4 year old slipper has outlined the arch and shape of my foot. Pretty gross but eh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Wife said the shower drain was a little slow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Oil cleansing – gross yet so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. That feeling….so gross but so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My bruise looks like the eye of Sauron.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A tragic event unfolded months ago. My finger took a nasty beating. Yesterday the dead nail came off to reveal I’ve fathered a baby nail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A little gross, but this is the mark I left on the floor after my workout today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Just learned you need to clean your bellybutton! So gross and yet so satisfying to clean it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This eyeball cleaning…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217111.png" style="width:100%"><br>
+## <a href="#linky3" id="linky2">Andy Kaufman's Infamous Prank that Started a Brawl on the Live TV Set</a><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Man Enters Woman’s Unlocked Apartment Weeks after They Shared a Taxi</a><br>
+## <a href="#linky4" id="linky3">37 Dirty Memes for the Delinquent's Delight</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122719/87219349/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122737/87219352/two.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020051/87219539/87216403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122730/87219351/three.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122726/87219350/four.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122714/87219348/five.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020103/87219541/87216393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020114/87219542/87216409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020125/87219543/87216418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020156/87219548/87217817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020134/87219544/87216408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020141/87219545/87217796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020154/87219547/87217816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020051/87219540/87216402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020205/87219549/87217834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020145/87219546/87217791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219070.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">26 Pics and Memes That Technically Tell the Truth</a><br>
+## <a href="#linky5" id="linky4">40 Scorching Pics to Melt Your Face Off</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012827/87219436/literallymemes25.png" style="width:100%"><br>
+<span style="font-size:4em">1. Take it to ocean.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114734/87220194/beach.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012825/87219435/literallymemes24.png" style="width:100%"><br>
+<span style="font-size:4em">2. Garbage bins are quite literally buckling under the heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114757/87220196/bin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012628/87219415/literallymemes4.png" style="width:100%"><br>
+<span style="font-size:4em">3. Um, yeah. Its hot.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114805/87220197/black.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012742/87219428/literallymemes17.png" style="width:100%"><br>
+<span style="font-size:4em">4. A beer can exploded because of the heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114807/87220198/can.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012652/87219419/literallymemes8.png" style="width:100%"><br>
+<span style="font-size:4em">5. Wildfires are becoming a real problem in London.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114816/87220199/brit.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012802/87219431/literallymemes20.png" style="width:100%"><br>
+<span style="font-size:4em">6. Candles have totally given up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114819/87220200/candle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012641/87219417/literallymemes6.png" style="width:100%"><br>
+<span style="font-size:4em">7. People are getting water from wherever they can.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114827/87220201/emergency.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012753/87219430/literallymemes19.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Flip flops dont stand a chance.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114831/87220202/flipflop.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012611/87219412/literallymemes1.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Children are putting their feet in water buckets to stay cool.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114838/87220203/feet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012616/87219413/literallymemes3.png" style="width:100%"><br>
+<span style="font-size:4em">10. Water fountains are in full use.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114849/87220205/fountain.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012633/87219416/literallymemes5.png" style="width:100%"><br>
+<span style="font-size:4em">11. A police officer gives a guard water.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114746/87220195/bottle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012644/87219418/literallymemes7.png" style="width:100%"><br>
+<span style="font-size:4em">12. A water truck spraying down the Tour de France route.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114853/87220206/france.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012656/87219420/literallymemes9.png" style="width:100%"><br>
+<span style="font-size:4em">13. Roses have started burning at the fringes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114948/87220215/roses.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012704/87219421/literallymemes10.png" style="width:100%"><br>
+<span style="font-size:4em">14. A pane of glass breaks under the heat pressure in an office.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114902/87220207/glass.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012708/87219422/literallymemes11.png" style="width:100%"><br>
+<span style="font-size:4em">15. Gingers! Stay safe.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114905/87220208/ging.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012716/87219423/literallymemes12.png" style="width:100%"><br>
+<span style="font-size:4em">16. Animals are getting the extra water they need.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114913/87220209/horse.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012728/87219425/literallymemes14.png" style="width:100%"><br>
+<span style="font-size:4em">17. Logos are just melting away.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114917/87220210/logo.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012730/87219426/literallymemes15.png" style="width:100%"><br>
+<span style="font-size:4em">18. Fires are taking over in Great Britain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114924/87220211/london.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012719/87219424/literallymemes13.png" style="width:100%"><br>
+<span style="font-size:4em">19. This map.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114928/87220212/map.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012740/87219427/literallymemes16.png" style="width:100%"><br>
+<span style="font-size:4em">20. This candle said nah bro.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114936/87220213/melt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012751/87219429/literallymemes18.png" style="width:100%"><br>
+<span style="font-size:4em">21. Rhine Riverbed is dried up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114939/87220214/rhine.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Work dress code states no shorts.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012804/87219432/literallymemes21.png" style="width:100%"><br>
+<span style="font-size:4em">22. Windows with foil to reflect the sun and heat away.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114841/87220204/foil.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012814/87219433/literallymemes22.png" style="width:100%"><br>
+<span style="font-size:4em">23. Roads are already buckling.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114949/87220216/road.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012815/87219434/literallymemes23.png" style="width:100%"><br>
+<span style="font-size:4em">24. Road signs have started melting.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115000/87220217/signs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012837/87219437/literallymemes26.png" style="width:100%"><br>
+<span style="font-size:4em">25. An airstrip at Luton Airport had to be shut down due to melting.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115011/87220218/runway.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012838/87219438/literallymemes27.png" style="width:100%"><br>
+<span style="font-size:4em">26. Smoke is overwhelming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115022/87220219/smoke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. A good samaritan sprays down overheating bikers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115034/87220220/spray.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. The fires in Spain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115041/87220221/spain.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Hands down this has to be the worst job right now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115045/87220222/sweat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Keeping cool anyway you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121204/87220269/footpoolbelgium.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. More stuff melting.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115052/87220223/traffic.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Umbrellas used for everything but rain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115057/87220224/umbrella.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. A nice train ride through the country (Spain.)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115104/87220225/train.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. Delis/Bodegas selling walk-in cooler time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115109/87220226/walkin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Tracks are now being painted white to decrease heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115116/87220227/white.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. Water. All of the water.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115120/87220228/wet.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. A UPS driver literally collapses in Arizona dude to heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/120712/87220266/ups.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. Boats on dry riverbeds.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121153/87220268/germanboats.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. More water.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121142/87220267/francepool.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. Trying to fight off the wildfires in Spain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121216/87220270/spainwildfire.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -351,89 +401,7 @@ Last updated: 07/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">37 Dirty Memes for the Delinquent's Delight</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020051/87219539/87216403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020103/87219541/87216393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020114/87219542/87216409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020125/87219543/87216418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020156/87219548/87217817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020134/87219544/87216408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020141/87219545/87217796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020154/87219547/87217816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020051/87219540/87216402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020205/87219549/87217834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/020145/87219546/87217791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219070.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Andy Kaufman's Infamous Prank that Started a Brawl on the Live TV Set</a><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">McDonald’s Challenges DQ to Sign War, F**ks around and Finds Out</a><br>
+## <a href="#linky8" id="linky7">McDonald’s Challenges DQ to Sign War, F**ks around and Finds Out</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/013529/87220340/war.jpg" style="width:100%"><br>
 
@@ -461,7 +429,7 @@ Last updated: 07/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">28 Entitled Jerks Making Things Worse For the Rest of Us</a><br>
+## <a href="#linky9" id="linky8">28 Entitled Jerks Making Things Worse For the Rest of Us</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218739.jpg" style="width:100%"><br>
 
@@ -521,87 +489,119 @@ Last updated: 07/21/2022-01:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">40 Scorching Pics to Melt Your Face Off</a><br>
+## <a href="#linky10" id="linky9">21 Disgusting Pics That Are Also Super Satisfying</a><br>
 
-<span style="font-size:4em">1. Take it to ocean.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114734/87220194/beach.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Plantar warts Laser removal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Garbage bins are quite literally buckling under the heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114757/87220196/bin.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. It’s gross, I know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Um, yeah. Its hot.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114805/87220197/black.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Terribly gross, but what a great feeling seeing the culprit of a clogged drain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A beer can exploded because of the heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114807/87220198/can.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Was having trouble hearing all day yesterday until my mom took her tweezers and pulled this thing out of my ear. Gross, but satisfying. Needless to say, I can hear now!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Wildfires are becoming a real problem in London.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114816/87220199/brit.png" style="width:100%"><br>
+<span style="font-size:4em">5. Gross but satisfying colour pallet of each clothes wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Candles have totally given up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114819/87220200/candle.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. When you buy a used DualShock 3… gross, but oddly satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217096.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. People are getting water from wherever they can.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114827/87220201/emergency.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. You can see how much my hair has grown since I dyed it 26 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Flip flops dont stand a chance.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114831/87220202/flipflop.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I left my mop outside and it grew grass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Children are putting their feet in water buckets to stay cool.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114838/87220203/feet.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Cut the hair off my old round brush.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Water fountains are in full use.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114849/87220205/fountain.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Kinda gross but this dead skin I pulled off my thumb sort of looks like the continental USA.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. A police officer gives a guard water.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114746/87220195/bottle.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. One of two fly traps I set out Saturday evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A water truck spraying down the Tour de France route.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114853/87220206/france.png" style="width:100%"><br>
+<span style="font-size:4em">12. Pulled a hair out of my husband’s beard and it turned out to be several hairs growing out of one follicle… kinda gross but also interesting?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Roses have started burning at the fringes.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114948/87220215/roses.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My 4 year old slipper has outlined the arch and shape of my foot. Pretty gross but eh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. A pane of glass breaks under the heat pressure in an office.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114902/87220207/glass.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Wife said the shower drain was a little slow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Gingers! Stay safe.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114905/87220208/ging.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Oil cleansing – gross yet so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Animals are getting the extra water they need.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114913/87220209/horse.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. That feeling….so gross but so satisfying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Logos are just melting away.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114917/87220210/logo.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. My bruise looks like the eye of Sauron.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Fires are taking over in Great Britain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114924/87220211/london.png" style="width:100%"><br>
+<span style="font-size:4em">18. A tragic event unfolded months ago. My finger took a nasty beating. Yesterday the dead nail came off to reveal I’ve fathered a baby nail.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. This map.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114928/87220212/map.png" style="width:100%"><br>
+<span style="font-size:4em">19. A little gross, but this is the mark I left on the floor after my workout today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This candle said nah bro.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114936/87220213/melt.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Just learned you need to clean your bellybutton! So gross and yet so satisfying to clean it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Rhine Riverbed is dried up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114939/87220214/rhine.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. This eyeball cleaning…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87217111.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. Windows with foil to reflect the sun and heat away.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114841/87220204/foil.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">23. Roads are already buckling.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/114949/87220216/road.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">26 Pics and Memes That Technically Tell the Truth</a><br>
 
-<span style="font-size:4em">24. Road signs have started melting.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115000/87220217/signs.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012827/87219436/literallymemes25.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. An airstrip at Luton Airport had to be shut down due to melting.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115011/87220218/runway.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012825/87219435/literallymemes24.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. Smoke is overwhelming.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115022/87220219/smoke.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012628/87219415/literallymemes4.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. A good samaritan sprays down overheating bikers.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115034/87220220/spray.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012742/87219428/literallymemes17.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. The fires in Spain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115041/87220221/spain.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012652/87219419/literallymemes8.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. Hands down this has to be the worst job right now.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115045/87220222/sweat.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012802/87219431/literallymemes20.png" style="width:100%"><br>
 
-<span style="font-size:4em">30. Keeping cool anyway you can.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121204/87220269/footpoolbelgium.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012641/87219417/literallymemes6.png" style="width:100%"><br>
 
-<span style="font-size:4em">31. More stuff melting.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115052/87220223/traffic.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012753/87219430/literallymemes19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. Umbrellas used for everything but rain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115057/87220224/umbrella.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012611/87219412/literallymemes1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. A nice train ride through the country (Spain.)</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115104/87220225/train.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012616/87219413/literallymemes3.png" style="width:100%"><br>
 
-<span style="font-size:4em">34. Delis/Bodegas selling walk-in cooler time.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115109/87220226/walkin.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012633/87219416/literallymemes5.png" style="width:100%"><br>
 
-<span style="font-size:4em">35. Tracks are now being painted white to decrease heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115116/87220227/white.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012644/87219418/literallymemes7.png" style="width:100%"><br>
 
-<span style="font-size:4em">36. Water. All of the water.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/115120/87220228/wet.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012656/87219420/literallymemes9.png" style="width:100%"><br>
 
-<span style="font-size:4em">37. A UPS driver literally collapses in Arizona dude to heat.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/120712/87220266/ups.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012704/87219421/literallymemes10.png" style="width:100%"><br>
 
-<span style="font-size:4em">38. Boats on dry riverbeds.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121153/87220268/germanboats.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012708/87219422/literallymemes11.png" style="width:100%"><br>
 
-<span style="font-size:4em">39. More water.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121142/87220267/francepool.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012716/87219423/literallymemes12.png" style="width:100%"><br>
 
-<span style="font-size:4em">40. Trying to fight off the wildfires in Spain.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/121216/87220270/spainwildfire.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012728/87219425/literallymemes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012730/87219426/literallymemes15.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012719/87219424/literallymemes13.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012740/87219427/literallymemes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012751/87219429/literallymemes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Work dress code states no shorts.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012804/87219432/literallymemes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012814/87219433/literallymemes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012815/87219434/literallymemes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012837/87219437/literallymemes26.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/012838/87219438/literallymemes27.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Man Enters Woman’s Unlocked Apartment Weeks after They Shared a Taxi</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122719/87219349/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122737/87219352/two.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122730/87219351/three.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122726/87219350/four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/19/122714/87219348/five.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
