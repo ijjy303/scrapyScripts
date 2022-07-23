@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/23/2022-06:47:18
+Last updated: 07/23/2022-07:47:18
 <br>
 ## <a href="#linky2" id="linky1">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
 
@@ -130,174 +130,57 @@ It would seem normal, at that moment I understood her, but after 2 days I found 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 Thor Facts Disney Doesn’t Want You to Know</a><br>
+## <a href="#linky3" id="linky2">23 Awesome Photos of Our Fascinating World</a><br>
 
-<span style="font-size:4em">1. In Norse mythology at the end of the world (Ragnarok) the gods--Odin, Thor, Loki and the others--as well as all humans, will die. Evil triumphs over good, and the world will be engulfed in water.
-
--u/George_E_Hale
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220527.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. This tree growing in the middle of a parking spot.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034135/87220417/facinating1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. There are around 1000 people in Scandanavia/Denmark that follow the old Norse belief system, worshiping the gods Odin, Thor, Njörd, Freya, etc. and the giants as well as their ancestors. This religious revival is referred as Asatro and meet for ceremonies related to the changing seasons.
-
--u/ProtContQB1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220528.png" style="width:100%"><br>
+<span style="font-size:4em">2. The way this can of spray foam exploded.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034147/87220418/facinating2.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. In Norse mythology, Thor once dressed as a bride and was presented to the giant Thrym with Loki as his bridesmaid. Thrym got a bit suspicious When Thor ate an entire ox, eight salmon, and many barrels of mead.
-
--u/kulayeb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220529.png" style="width:100%"><br>
+<span style="font-size:4em">3. This manhole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034157/87220419/facinating4.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Freya, the Norse goddess of love, traveled by a chariot that was pulled by 2 cats. The cats are thought to be gifts from Thor.
-
--u/a_bem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220530.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. When lightning hits a sandy beach, it creates otherworldly glass sculptures known as fulgurites or “petrified lightning.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/21/100524/87221000/add.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Thursday actually means Thors Day, named after the Norse God of Thunder.
-
--u/Minewrecker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220531.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Gas is cheaper if you buy THREE subway foot longs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034206/87220420/facinating3.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Hammer of Thor is an approved religious symbol for veteran gravestones in the US and two soldiers have such headstones.
-
--u/coderotten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220532.png" style="width:100%"><br>
+<span style="font-size:4em">6. McDonalds using reusable packaging when you order to eat indoors.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034208/87220421/facinating5.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Shia LaBeouf was once considered to play Thor in lieu of then “unknown” Chris Hemsworth.
-
--u/RedpilledChris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220533.png" style="width:100%"><br>
+<span style="font-size:4em">7. Accidentally cut open a cheap kids baseball with my lawn mower.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034216/87220422/facinating6.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. According to Norse mythology, Thors hammer Mjölnir was originally intended to be wielded with both hands. Its characteristically short handle is due to a manufacturing defect caused by Loki who harassed the dwarven brothers Sindri and Brokkr while they were forging the weapon.
-
--u/huphelmeyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220534.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This shadow in the mountains looks like a girl reading.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034219/87220423/facinating7.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Thor (MARVEL comics) conceived himself after he had incestuous sex with his sister. In Mighty THOR #296-298, Thor in a mortal form named Siegmund, rescues and falls in love with Sieglinda, his twin sister. After his death, Sieglinda gives birth to his child Siegfried, who is actually Thor.
-
--u/Initial_XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220535.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034228/87220424/facinating8.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. The man who scored Thor: Ragnarok was part of Devo in the 1980s when they released their hit song, Whip It, and is actually the one whipping peoples clothes off in the music video.
-
--u/queenyeeeezy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220536.png" style="width:100%"><br>
+<span style="font-size:4em">10. The egg one of my chickens laid today.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034230/87220425/facinating9.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Ancient pagans in Germany had a special, sacred tree called Thors oak but the Christians cut it down.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220537.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The damage on this bumper looks like the Michael Jordan logo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034240/87220426/facinating10.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Swastika was at one point used as a symbol of the hammer and lightning of Thor.
-
--u/J_S_M_K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220538.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. This camo printed fabric has unexpected shreks in it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034241/87220427/facinating11.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. In the Norse myth Þrymskviða, Thor and Loki crossdress as wedding brides to retrieve the stolen Mjöllnir. The thieves got suspicious when the ladies ate everything in sight.
-
--u/MyTILAccount</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220539.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Apparently the Shark Week Blimp is a thing, and it just flew by our office.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034251/87220428/facinating12.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. A guy created a replica of Thors hammer that, through electromagnets and a fingerprint scanner, will only allow him to lift it.
-
--u/lmtysamlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220540.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034253/87220429/facinating13.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Thors chariot was pulled by two goats Tanngrisnir and Tanngnjóstr that Thor could eat and then resurrect the following day intact with his hammer if no bones were broken.
-
--u/Nihilistic_dawn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220541.png" style="width:100%"><br>
+<span style="font-size:4em">15. This is what happens to the grain pattern when a branch has to strengthen its top side to support its weight without breaking off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034302/87220430/facinating14.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. In “Thor: The Dark World” Natalie Portman wasn’t available to reshoot the final kiss scene, so Chris Hemsworth’s Wife took her place dressed as Natalie.
-
--u/gmcl86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220543.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Found my cat laying in my cat shape light that fell.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034306/87220431/facinating15.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. A man in Florida high on a PVP (“Flakka”) was arrested after running naked through a neighborhood, assaulting an officer, and attempted having sex with a tree. He also identified himself as God and Thor.
-
--u/redmambo_no6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220542.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034320/87220432/facinating16.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. Some people campaigned against the casting of Idris Elba to play Heimdall in Thor because it was wrong for a black man to play a Nordic god.
-
--u/alexc90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220544.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. This single of of Ob-La-Di, Ob-La-Da came into the record store today that has serial N⁰ 000003.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034323/87220433/facinating17.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Prose Edda identified Memnon (the Ethiopian King who defended Troy in The Iliad) rather than Odin as the Father of Thor.
-
--u/hahaha01357</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220545.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Edible coffee cup made from oats and grains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034331/87220434/facinating18.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Thor from Norse Mythology is supposed to be a redhead w/ a big red beard (in some retellings).
-
--u/flowerb0mbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220546.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Stop lights with a timer until it turns green.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034336/87220435/facinating19.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. Thor: Ragnarok director Taika Waititi was doing nothing while filming for Green Lantern, so he went to his hotel room and stood there all night, saying he would buy everything he saw on TV that night, eventually buying a shake weight. He went to add a shake weight as an easter egg on Ragnarok.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220547.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. My moms copy of “To Kill a Mockingbird” has a printing problem. It stops at page 408 and the rest is the end of another book.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034342/87220436/facinating20.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. Superman once wielded Thors Hammer. Not because he was a Super-man but because he was Worthy.
-
--u/blueberrybadguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220548.png" style="width:100%"><br>
+<span style="font-size:4em">22. My slightly outdated water heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034348/87220437/facinating21.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. Tom Hiddleston auditioned for Thor before getting the part of Loki.
-
--u/raofzainuddin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In Norse mythology, Thor kicked a random passing dwarf into Baldrs funeral pyre, and he burned.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The mechanic mistaken for Thor in *Adventures In Babysitting* was played by Vincent Donofrio.
-
--u/belial77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220551.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Forgot about a can of wolf brand chili in back of fridge and the mold growing looks like wolf hair.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034353/87220438/facinating22.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221054.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221056.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221031.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221045.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221041.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221029.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221030.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221038.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221034.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221033.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221035.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221036.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221037.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221032.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221039.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221046.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221040.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221043.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221044.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221047.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221048.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221051.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221049.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221050.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221052.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221055.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221042.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221053.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221057.jpeg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">29 Cringe Pics of Complete Facepalm</a><br>
+## <a href="#linky4" id="linky3">29 Cringe Pics of Complete Facepalm</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114425/87222006/facep1.png" style="width:100%"><br>
 
@@ -359,161 +242,69 @@ It would seem normal, at that moment I understood her, but after 2 days I found 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Taco Bell Facts To Read While You’re Blowing Up the Bathroom</a><br>
+## <a href="#linky5" id="linky4">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
 
-<span style="font-size:4em">1. It took Taco Bell food engineers two years and 40 different recipes to create the Doritos Loco taco. It became so popular that it led to Taco Bell adding 15,000 jobs, propelling the company to outgrow Pizza Hut, KFC and even McDonald’s.
-
--u/SappyGilmore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220501.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221054.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Taco Bell once trolled McDonalds with a commercial featuring 25 real-life Ronald McDonalds endorsing their brand.
-
--u/MoryTober</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220515.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221056.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In 2001, when the space station Mir was set to return to earth, Taco Bell set up a floating target in the Pacific Ocean, promising free tacos to everyone in the US if the space station hit it.
-
--u/toin9898</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220503.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221031.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Taco Bell has failed twice to expand their operations to Mexico. In 1992, Mexican customers found their tacos too expensive, and in 2010 their expansion restaurant closed because customers were unfamiliar with the menu items.
-
--u/bawledannephat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220502.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221045.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. On April 1st, 1996 Taco Bell made an announcement that they bought the Liberty Bell and renamed it the Taco Liberty Bell causing outrage and a huge spike in Taco Bell sales.
-
--u/Severe_Comfort</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220504.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221041.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. NASA used Taco Bell tortillas for space missions - bread had too many crumbs so they used tortillas for sandwiches, and NASA started making space tortillas. Taco Bell made a tortilla in the 90s with a 9-month shelf life, so NASA started using those instead.
-
--u/spudmonk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220505.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221029.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A guy awoke from a coma and his first words were I want Taco Bell.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220506.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221030.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In 2012, pranksters posted flyers falsely claiming a Taco Bell would be opening in their small Alaskan city of 6,000. When Taco Bell discovered this, they shipped in the ingredients for 10,000 tacos.
-
--u/randomstranger76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220507.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221038.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The Taco Bell Chihuahua, Gidget, went on to play Bruisers mom in Legally Blonde 2: Red, White, and Blonde.
-
--u/nrossj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220508.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221034.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The creator of Taco Bell reverse engineered his taco recipe from a Mexican taco stand that was outselling his hot dog stand. The name of his new taco restaurant underwent several changes, from Taco-Tia through El Taco, before settling on Taco Bell.
-
--u/bhaggith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220509.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221033.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Pizza Hut was substituted for Taco Bell and lines were redubbed and logos replaced for the European version of Demolition Man.
-
--u/QualityKoalaTeacher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220510.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221035.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Taco Bell failed to pay two Michigan men who created the Taco Bell Chihuahua mascot and were court-ordered to pay back $42 million dollars.
-
--u/dysgraphical</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220511.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221036.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The first-ever product recall of a food because of its genetically engineered ingredients was when Taco Bell brand taco shells were pulled from stores after tests confirmed the presence of an ingredient not approved for human consumption.
-
--u/DystopianAdvocate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220512.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221037.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. In 2010, Taco Bell secretly reduced the sodium content of its food at 150 Dallas area restaurants by 23%. Without telling anyone, they replaced the salt with other spices and other ingredients.” Two months later, they had received exactly zero complaints about the changes.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220513.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221032.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. In 2019 Taco Bell opened a pop-up hotel called The Bell: A Taco Bell Hotel and Resort which opened for one weekend in August. Upon the announcement, the hotel was booked up in two minutes.
-
--u/86-Everything</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220514.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221039.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Taco Bell restaurants used to have a real bell on the roof.
-
--u/02K30C1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220516.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221046.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Taco Bell sold 100 Million Doritos Locos tacos in the first 10 weeks. It took McDonalds 18 years to sell the same amount of burgers.
-
--u/adobe1kinobe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220517.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221040.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. There is a literary magazine titled Taco Bell Quarterly dedicated to writing about any and all elements of Taco Bell.
-
--u/muffinartillery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220518.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221043.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. In order to open a Taco Bell franchise, Taco Bell requires you to have a minimum net worth of $1.5 million and at least $750,000 in liquid assets.
-
--u/Miskatonica</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220519.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221044.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. In 2019, a Florida man captures a WWII grenade while magnet fishing. Instead of reporting it immediately to the authorities, he placed it on his trunk and headed to a Taco Bell before calling 911.
-
--u/Stardust029</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220520.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221047.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Taco Bell is one of Americas healthiest fast food chains.
-
--u/JoelLCreations</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220521.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221048.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. The rock band Slaughter played a free show at a Miami Taco Bell because it was their favorite restaurant.
-
--u/Toodlum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220522.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221051.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. There is a Taco Bell in the Center of the Pentagon.
-
--u/ImmaculateJones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220523.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221049.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. In 2008, Curtis 50 Cent Jackson sued Taco Bell over an ad campaign in which it invited him to change his name for one day from 50 Cent to 79 Cent, 89 Cent, or 99 Cent, in line with pricing for some of its items, and they would donate $10,000 to the charity of his choice.
-
--u/ReubenFroster56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220524.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221050.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. A federal prison inmate sued Taco Bell for stealing his Doritos Taco idea.
-
--u/Heritaged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220525.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221052.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221055.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221042.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221053.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221057.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">23 Awesome Photos of Our Fascinating World</a><br>
-
-<span style="font-size:4em">1. This tree growing in the middle of a parking spot.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034135/87220417/facinating1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. The way this can of spray foam exploded.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034147/87220418/facinating2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. This manhole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034157/87220419/facinating4.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. When lightning hits a sandy beach, it creates otherworldly glass sculptures known as fulgurites or “petrified lightning.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/21/100524/87221000/add.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gas is cheaper if you buy THREE subway foot longs.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034206/87220420/facinating3.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. McDonalds using reusable packaging when you order to eat indoors.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034208/87220421/facinating5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Accidentally cut open a cheap kids baseball with my lawn mower.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034216/87220422/facinating6.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. This shadow in the mountains looks like a girl reading.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034219/87220423/facinating7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034228/87220424/facinating8.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. The egg one of my chickens laid today.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034230/87220425/facinating9.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. The damage on this bumper looks like the Michael Jordan logo.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034240/87220426/facinating10.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. This camo printed fabric has unexpected shreks in it.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034241/87220427/facinating11.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Apparently the Shark Week Blimp is a thing, and it just flew by our office.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034251/87220428/facinating12.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034253/87220429/facinating13.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. This is what happens to the grain pattern when a branch has to strengthen its top side to support its weight without breaking off.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034302/87220430/facinating14.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Found my cat laying in my cat shape light that fell.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034306/87220431/facinating15.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034320/87220432/facinating16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. This single of of Ob-La-Di, Ob-La-Da came into the record store today that has serial N⁰ 000003.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034323/87220433/facinating17.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Edible coffee cup made from oats and grains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034331/87220434/facinating18.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Stop lights with a timer until it turns green.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034336/87220435/facinating19.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. My moms copy of “To Kill a Mockingbird” has a printing problem. It stops at page 408 and the rest is the end of another book.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034342/87220436/facinating20.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. My slightly outdated water heater.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034348/87220437/facinating21.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. Forgot about a can of wolf brand chili in back of fridge and the mold growing looks like wolf hair.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/034353/87220438/facinating22.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">What Can a Dollar Get You All around the World?</a><br>
+## <a href="#linky6" id="linky5">What Can a Dollar Get You All around the World?</a><br>
 
 <span style="font-size:4em">1. A thumbs up from a homeless person on the subway.
 
@@ -616,7 +407,7 @@ Its depressing, prices have doubled in the blink of an eye. Netherlands, by the 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">46 People Whose Day Went from Bad to Worse</a><br>
+## <a href="#linky7" id="linky6">46 People Whose Day Went from Bad to Worse</a><br>
 
 <span style="font-size:4em">1. “I went to a new barber. And got this. I didn’t say anything, and even tipped her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219288.jpg" style="width:100%"><br>
 
@@ -709,6 +500,111 @@ Its depressing, prices have doubled in the blink of an eye. Netherlands, by the 
 <span style="font-size:4em">45. “And that was our dinner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219304.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">46. “My girlfriend told me she had never cooked fish before. But I never expected this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219305.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">25 Thor Facts Disney Doesn’t Want You to Know</a><br>
+
+<span style="font-size:4em">1. In Norse mythology at the end of the world (Ragnarok) the gods--Odin, Thor, Loki and the others--as well as all humans, will die. Evil triumphs over good, and the world will be engulfed in water.
+
+-u/George_E_Hale
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There are around 1000 people in Scandanavia/Denmark that follow the old Norse belief system, worshiping the gods Odin, Thor, Njörd, Freya, etc. and the giants as well as their ancestors. This religious revival is referred as Asatro and meet for ceremonies related to the changing seasons.
+
+-u/ProtContQB1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220528.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. In Norse mythology, Thor once dressed as a bride and was presented to the giant Thrym with Loki as his bridesmaid. Thrym got a bit suspicious When Thor ate an entire ox, eight salmon, and many barrels of mead.
+
+-u/kulayeb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220529.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Freya, the Norse goddess of love, traveled by a chariot that was pulled by 2 cats. The cats are thought to be gifts from Thor.
+
+-u/a_bem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Thursday actually means Thors Day, named after the Norse God of Thunder.
+
+-u/Minewrecker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Hammer of Thor is an approved religious symbol for veteran gravestones in the US and two soldiers have such headstones.
+
+-u/coderotten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220532.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Shia LaBeouf was once considered to play Thor in lieu of then “unknown” Chris Hemsworth.
+
+-u/RedpilledChris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220533.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. According to Norse mythology, Thors hammer Mjölnir was originally intended to be wielded with both hands. Its characteristically short handle is due to a manufacturing defect caused by Loki who harassed the dwarven brothers Sindri and Brokkr while they were forging the weapon.
+
+-u/huphelmeyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Thor (MARVEL comics) conceived himself after he had incestuous sex with his sister. In Mighty THOR #296-298, Thor in a mortal form named Siegmund, rescues and falls in love with Sieglinda, his twin sister. After his death, Sieglinda gives birth to his child Siegfried, who is actually Thor.
+
+-u/Initial_XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220535.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The man who scored Thor: Ragnarok was part of Devo in the 1980s when they released their hit song, Whip It, and is actually the one whipping peoples clothes off in the music video.
+
+-u/queenyeeeezy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220536.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ancient pagans in Germany had a special, sacred tree called Thors oak but the Christians cut it down.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Swastika was at one point used as a symbol of the hammer and lightning of Thor.
+
+-u/J_S_M_K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In the Norse myth Þrymskviða, Thor and Loki crossdress as wedding brides to retrieve the stolen Mjöllnir. The thieves got suspicious when the ladies ate everything in sight.
+
+-u/MyTILAccount</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A guy created a replica of Thors hammer that, through electromagnets and a fingerprint scanner, will only allow him to lift it.
+
+-u/lmtysamlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220540.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Thors chariot was pulled by two goats Tanngrisnir and Tanngnjóstr that Thor could eat and then resurrect the following day intact with his hammer if no bones were broken.
+
+-u/Nihilistic_dawn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220541.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. In “Thor: The Dark World” Natalie Portman wasn’t available to reshoot the final kiss scene, so Chris Hemsworth’s Wife took her place dressed as Natalie.
+
+-u/gmcl86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. A man in Florida high on a PVP (“Flakka”) was arrested after running naked through a neighborhood, assaulting an officer, and attempted having sex with a tree. He also identified himself as God and Thor.
+
+-u/redmambo_no6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220542.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Some people campaigned against the casting of Idris Elba to play Heimdall in Thor because it was wrong for a black man to play a Nordic god.
+
+-u/alexc90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Prose Edda identified Memnon (the Ethiopian King who defended Troy in The Iliad) rather than Odin as the Father of Thor.
+
+-u/hahaha01357</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Thor from Norse Mythology is supposed to be a redhead w/ a big red beard (in some retellings).
+
+-u/flowerb0mbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Thor: Ragnarok director Taika Waititi was doing nothing while filming for Green Lantern, so he went to his hotel room and stood there all night, saying he would buy everything he saw on TV that night, eventually buying a shake weight. He went to add a shake weight as an easter egg on Ragnarok.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Superman once wielded Thors Hammer. Not because he was a Super-man but because he was Worthy.
+
+-u/blueberrybadguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220548.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. Tom Hiddleston auditioned for Thor before getting the part of Loki.
+
+-u/raofzainuddin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In Norse mythology, Thor kicked a random passing dwarf into Baldrs funeral pyre, and he burned.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The mechanic mistaken for Thor in *Adventures In Babysitting* was played by Vincent Donofrio.
+
+-u/belial77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220551.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
