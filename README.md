@@ -1,7 +1,61 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/23/2022-10:47:19
+Last updated: 07/23/2022-11:47:19
 <br>
-## <a href="#linky2" id="linky1">What Can a Dollar Get You All around the World?</a><br>
+## <a href="#linky2" id="linky1">25 Funny Memes That Are "Just So Wrong"</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">What Can a Dollar Get You All around the World?</a><br>
 
 <span style="font-size:4em">1. A thumbs up from a homeless person on the subway.
 
@@ -104,103 +158,69 @@ Its depressing, prices have doubled in the blink of an eye. Netherlands, by the 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">46 People Whose Day Went from Bad to Worse</a><br>
+## <a href="#linky4" id="linky3">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
 
-<span style="font-size:4em">1. “I went to a new barber. And got this. I didn’t say anything, and even tipped her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219288.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221054.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Honey, have you seen my other AirPod?”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015705/87220342/87218425.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221056.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Bought a house in a bidding war so inspection waived. Moving in I dented the wall and made a hole. This was behind the hole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015716/87220343/87218429.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221031.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Got new cargo shorts and accidentally sat on a stool that my sister was cleaning with Clorox…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015735/87220345/87218426.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221045.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Heard a loud ass bang come from my living room…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015739/87220346/87218432.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221041.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. And that was our dinner.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015747/87220347/87218434.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221029.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Girlfriend was helping cut my hair , she was doing a fantastic job until I heard a gasp.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015749/87220348/87218439.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221030.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Group of rich girls from Stanford came to my bar, tried a million samples, held up the line, and all tipped like this.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015757/87220349/87218444.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221038.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Good. Now, I get to learn how garages work.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015826/87220351/87218450.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221034.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “There was a piece of sand on my glasses’ cleaning cloth.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015838/87220352/87218456.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221033.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “A pipe broke upstairs.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015849/87220353/87218458.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221035.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015857/87220354/87218445.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221036.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I didn’t wear bug spray today. I think I should have.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015727/87220344/87218427.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221037.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Asked my wife to keep the oven on low for the burgers. Puts it on low, broil, and forgot to take the plastic cover off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219272.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221032.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Left to the store for an hour, came back to this. It went through my ENTIRE house like this and at the end emptied itself into its dock. Kill me now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219273.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221039.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Stray bullet hit the hood of my car on the 4th.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219274.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221046.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “NYC Fireworks- guy films for 15 mins but forgets to hit ‘record’.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219275.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221040.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “I’m not gonna be in the pool that long, I won’t need sunscreen”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219276.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221043.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Broccoli crowns and stems…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219277.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221044.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “It took me 15 minutes to finally get the key out of the ignition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219278.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221047.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Maple syrup spilling in my fridge….”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219279.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221048.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “First day in months I’ve had off to play games…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219280.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221051.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “The last place I saw my truck before running into the store for 10 minutes. All my work tools were in it too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219281.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221049.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “I’m feeling all around awful and have one of the worst sore throats of my life and the doctor prescribed these pills.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219282.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221050.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Someone’s shoveling bugs tomorrow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219283.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221052.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. “Slipped and fell into my shower door this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219284.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221055.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">27. “Oh, that’s where my prescription sunglasses went…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219285.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221042.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">28. “Finally decided to use my bbq, only to find out its home to a squirrel now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219286.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221053.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">29. “None of the pieces fit…this was supposed to be relaxing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “The start of my weight loss journey”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “It got so hot in my apartment last night, my butter melted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “I’ve just hung my new TV set on the wall and turned it on. Cool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “I got home really late, and finally got the motivation to make dinner. While putting the dressing away, my big cat came bulldozing through.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “The first 5 minutes of my first ride of the season”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “On my first day off after working 14 days straight, the power company is doing a planned outage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “My puppy chewed up my hand carved coffee table I had shipped from Japan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “I ordered a Ben 10 action figure, and got a used baby sock instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “The bag with coal ripped in the back of my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. “My headphones have just upgraded themselves to Bluetooth.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. “I was getting ready for bed and the soap dispenser fell off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. “I shattered my wedding ring 2 weeks before my anniversary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. “I thought I ordered 5 bananas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. “I cleaned my glasses too hard. I’m at work, and don’t have a spare pair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. “My 2-year-old was playing in the bedroom as usual today, I went to get her and found this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. “And that was our dinner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. “My girlfriend told me she had never cooked fish before. But I never expected this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219305.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221057.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">29 Cringe Pics of Complete Facepalm</a><br>
+## <a href="#linky5" id="linky4">29 Cringe Pics of Complete Facepalm</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114425/87222006/facep1.png" style="width:100%"><br>
 
@@ -262,7 +282,112 @@ Its depressing, prices have doubled in the blink of an eye. Netherlands, by the 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
+## <a href="#linky6" id="linky5">25 Thor Facts Disney Doesn’t Want You to Know</a><br>
+
+<span style="font-size:4em">1. In Norse mythology at the end of the world (Ragnarok) the gods--Odin, Thor, Loki and the others--as well as all humans, will die. Evil triumphs over good, and the world will be engulfed in water.
+
+-u/George_E_Hale
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There are around 1000 people in Scandanavia/Denmark that follow the old Norse belief system, worshiping the gods Odin, Thor, Njörd, Freya, etc. and the giants as well as their ancestors. This religious revival is referred as Asatro and meet for ceremonies related to the changing seasons.
+
+-u/ProtContQB1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220528.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. In Norse mythology, Thor once dressed as a bride and was presented to the giant Thrym with Loki as his bridesmaid. Thrym got a bit suspicious When Thor ate an entire ox, eight salmon, and many barrels of mead.
+
+-u/kulayeb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220529.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Freya, the Norse goddess of love, traveled by a chariot that was pulled by 2 cats. The cats are thought to be gifts from Thor.
+
+-u/a_bem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Thursday actually means Thors Day, named after the Norse God of Thunder.
+
+-u/Minewrecker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Hammer of Thor is an approved religious symbol for veteran gravestones in the US and two soldiers have such headstones.
+
+-u/coderotten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220532.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Shia LaBeouf was once considered to play Thor in lieu of then “unknown” Chris Hemsworth.
+
+-u/RedpilledChris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220533.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. According to Norse mythology, Thors hammer Mjölnir was originally intended to be wielded with both hands. Its characteristically short handle is due to a manufacturing defect caused by Loki who harassed the dwarven brothers Sindri and Brokkr while they were forging the weapon.
+
+-u/huphelmeyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Thor (MARVEL comics) conceived himself after he had incestuous sex with his sister. In Mighty THOR #296-298, Thor in a mortal form named Siegmund, rescues and falls in love with Sieglinda, his twin sister. After his death, Sieglinda gives birth to his child Siegfried, who is actually Thor.
+
+-u/Initial_XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220535.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The man who scored Thor: Ragnarok was part of Devo in the 1980s when they released their hit song, Whip It, and is actually the one whipping peoples clothes off in the music video.
+
+-u/queenyeeeezy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220536.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ancient pagans in Germany had a special, sacred tree called Thors oak but the Christians cut it down.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Swastika was at one point used as a symbol of the hammer and lightning of Thor.
+
+-u/J_S_M_K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In the Norse myth Þrymskviða, Thor and Loki crossdress as wedding brides to retrieve the stolen Mjöllnir. The thieves got suspicious when the ladies ate everything in sight.
+
+-u/MyTILAccount</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A guy created a replica of Thors hammer that, through electromagnets and a fingerprint scanner, will only allow him to lift it.
+
+-u/lmtysamlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220540.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Thors chariot was pulled by two goats Tanngrisnir and Tanngnjóstr that Thor could eat and then resurrect the following day intact with his hammer if no bones were broken.
+
+-u/Nihilistic_dawn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220541.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. In “Thor: The Dark World” Natalie Portman wasn’t available to reshoot the final kiss scene, so Chris Hemsworth’s Wife took her place dressed as Natalie.
+
+-u/gmcl86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. A man in Florida high on a PVP (“Flakka”) was arrested after running naked through a neighborhood, assaulting an officer, and attempted having sex with a tree. He also identified himself as God and Thor.
+
+-u/redmambo_no6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220542.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Some people campaigned against the casting of Idris Elba to play Heimdall in Thor because it was wrong for a black man to play a Nordic god.
+
+-u/alexc90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Prose Edda identified Memnon (the Ethiopian King who defended Troy in The Iliad) rather than Odin as the Father of Thor.
+
+-u/hahaha01357</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Thor from Norse Mythology is supposed to be a redhead w/ a big red beard (in some retellings).
+
+-u/flowerb0mbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Thor: Ragnarok director Taika Waititi was doing nothing while filming for Green Lantern, so he went to his hotel room and stood there all night, saying he would buy everything he saw on TV that night, eventually buying a shake weight. He went to add a shake weight as an easter egg on Ragnarok.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Superman once wielded Thors Hammer. Not because he was a Super-man but because he was Worthy.
+
+-u/blueberrybadguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220548.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. Tom Hiddleston auditioned for Thor before getting the part of Loki.
+
+-u/raofzainuddin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In Norse mythology, Thor kicked a random passing dwarf into Baldrs funeral pyre, and he burned.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The mechanic mistaken for Thor in *Adventures In Babysitting* was played by Vincent Donofrio.
+
+-u/belial77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220551.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
 
 <span style="font-size:4em">1. My husband and I took our teenage son and his friend (I’ll call him Alex) to an amusement park recently.
 
@@ -388,227 +513,6 @@ It would seem normal, at that moment I understood her, but after 2 days I found 
 <span style="font-size:4em">37. How can she be my wife? I have no idea who she is. said my husband of 8 years after a bad car wreck and 4 weeks in a coma. He lost about 12 years of memories. Including our whole relationship. We got divorced 2 years after as his memory never returned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220883.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">38. Someone said they hated me, that was pretty soul crushing for me. I thought they were my friend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220917.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">25 Thor Facts Disney Doesn’t Want You to Know</a><br>
-
-<span style="font-size:4em">1. In Norse mythology at the end of the world (Ragnarok) the gods--Odin, Thor, Loki and the others--as well as all humans, will die. Evil triumphs over good, and the world will be engulfed in water.
-
--u/George_E_Hale
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There are around 1000 people in Scandanavia/Denmark that follow the old Norse belief system, worshiping the gods Odin, Thor, Njörd, Freya, etc. and the giants as well as their ancestors. This religious revival is referred as Asatro and meet for ceremonies related to the changing seasons.
-
--u/ProtContQB1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220528.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. In Norse mythology, Thor once dressed as a bride and was presented to the giant Thrym with Loki as his bridesmaid. Thrym got a bit suspicious When Thor ate an entire ox, eight salmon, and many barrels of mead.
-
--u/kulayeb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220529.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Freya, the Norse goddess of love, traveled by a chariot that was pulled by 2 cats. The cats are thought to be gifts from Thor.
-
--u/a_bem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Thursday actually means Thors Day, named after the Norse God of Thunder.
-
--u/Minewrecker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Hammer of Thor is an approved religious symbol for veteran gravestones in the US and two soldiers have such headstones.
-
--u/coderotten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220532.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Shia LaBeouf was once considered to play Thor in lieu of then “unknown” Chris Hemsworth.
-
--u/RedpilledChris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220533.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. According to Norse mythology, Thors hammer Mjölnir was originally intended to be wielded with both hands. Its characteristically short handle is due to a manufacturing defect caused by Loki who harassed the dwarven brothers Sindri and Brokkr while they were forging the weapon.
-
--u/huphelmeyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Thor (MARVEL comics) conceived himself after he had incestuous sex with his sister. In Mighty THOR #296-298, Thor in a mortal form named Siegmund, rescues and falls in love with Sieglinda, his twin sister. After his death, Sieglinda gives birth to his child Siegfried, who is actually Thor.
-
--u/Initial_XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220535.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. The man who scored Thor: Ragnarok was part of Devo in the 1980s when they released their hit song, Whip It, and is actually the one whipping peoples clothes off in the music video.
-
--u/queenyeeeezy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220536.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ancient pagans in Germany had a special, sacred tree called Thors oak but the Christians cut it down.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Swastika was at one point used as a symbol of the hammer and lightning of Thor.
-
--u/J_S_M_K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In the Norse myth Þrymskviða, Thor and Loki crossdress as wedding brides to retrieve the stolen Mjöllnir. The thieves got suspicious when the ladies ate everything in sight.
-
--u/MyTILAccount</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A guy created a replica of Thors hammer that, through electromagnets and a fingerprint scanner, will only allow him to lift it.
-
--u/lmtysamlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220540.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Thors chariot was pulled by two goats Tanngrisnir and Tanngnjóstr that Thor could eat and then resurrect the following day intact with his hammer if no bones were broken.
-
--u/Nihilistic_dawn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220541.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. In “Thor: The Dark World” Natalie Portman wasn’t available to reshoot the final kiss scene, so Chris Hemsworth’s Wife took her place dressed as Natalie.
-
--u/gmcl86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. A man in Florida high on a PVP (“Flakka”) was arrested after running naked through a neighborhood, assaulting an officer, and attempted having sex with a tree. He also identified himself as God and Thor.
-
--u/redmambo_no6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220542.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Some people campaigned against the casting of Idris Elba to play Heimdall in Thor because it was wrong for a black man to play a Nordic god.
-
--u/alexc90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The Prose Edda identified Memnon (the Ethiopian King who defended Troy in The Iliad) rather than Odin as the Father of Thor.
-
--u/hahaha01357</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Thor from Norse Mythology is supposed to be a redhead w/ a big red beard (in some retellings).
-
--u/flowerb0mbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Thor: Ragnarok director Taika Waititi was doing nothing while filming for Green Lantern, so he went to his hotel room and stood there all night, saying he would buy everything he saw on TV that night, eventually buying a shake weight. He went to add a shake weight as an easter egg on Ragnarok.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Superman once wielded Thors Hammer. Not because he was a Super-man but because he was Worthy.
-
--u/blueberrybadguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220548.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. Tom Hiddleston auditioned for Thor before getting the part of Loki.
-
--u/raofzainuddin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In Norse mythology, Thor kicked a random passing dwarf into Baldrs funeral pyre, and he burned.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The mechanic mistaken for Thor in *Adventures In Babysitting* was played by Vincent Donofrio.
-
--u/belial77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220551.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">25 Funny Memes That Are "Just So Wrong"</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221054.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221056.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221031.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221045.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221041.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221029.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221030.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221038.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221034.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221033.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221035.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221036.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221037.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221032.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221039.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221046.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221040.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221043.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221044.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221047.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221048.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221051.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221049.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221050.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221052.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221055.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221042.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221053.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221057.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
