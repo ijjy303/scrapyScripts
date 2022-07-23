@@ -1,61 +1,206 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/23/2022-09:47:19
+Last updated: 07/23/2022-10:47:19
 <br>
-## <a href="#linky2" id="linky1">25 Funny Memes That Are "Just So Wrong"</a><br>
+## <a href="#linky2" id="linky1">What Can a Dollar Get You All around the World?</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A thumbs up from a homeless person on the subway.
+
+-u/MamaOna</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220553.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. 4 Moomin lollipops.
+
+-u/kvartzi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220554.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I would say just about anything at the Dollar Tree, but they just raised all their prices to $1.25. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220555.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Four ramen packs.
+
+-u/Personmanwomantv</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220556.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A quick 30 seconds of being jostled around on the cheap Elmo ride at the mall.
+
+-u/rich_mula</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220557.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Individually wrapped little candies from a gas station counter. Not a candy bar, its not enough, but mints or a lollipop maybe.
+
+-u/stephowl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220558.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. 4 cheap croissants (no, Im not French).
+
+-u/ChaoticFucker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220561.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Two tacos or a can of beer.
+
+-u/CptnStarkos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220559.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. A weird look at the cash register.
+
+-u/IncomeNatural8178</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220562.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. 1$ gets me 10,34 NOK.
+For 10 NOK I get about 0.4L of diesel or 0.35L of petrol.
+ 
+-u/Jungeltelegrafen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220563.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. A cup of Vietnamese coffee.
+-u/Professional_Ad4764</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220564.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A dollar is about INR 80. Street food in India starts at around INR 10. Water bottles and packaged snacks such as chips and cookies cost between INR 10 to 20. 
+
+-u/sayfriend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220565.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Mugged by a crackhead.
+
+-u/AvianProtogen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220566.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Rent on a shopping trolley.
+
+-u/soloapeproject</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220567.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Half a kilo of potatoes.
+Its depressing, prices have doubled in the blink of an eye. Netherlands, by the way.
+
+-u/JCXIII-R</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220568.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Shout out to my boys at Arizona sweet tea keeping that sh*t 99 cents since day one.
+
+-u/Full_Consideration_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220560.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Luckily dollar drink days are on at McDonalds so Iced Coffee (if you ignore the tax). Otherwise, not much.
+
+-u/CalgaryChris77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220569.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. A chocolate bar at Dollorama.
+
+-u/TheClayroo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220570.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A packet of crisps.
+
+-u/Ondreas_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220571.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. The best street food meal you can imagine.
+
+-u/blackheart_1708</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220572.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. NYC. I got a bag of Brussel sprouts for $1 last week.
+
+-u/018474826</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220573.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. A cup of coffee from the coffee machine at the hospital after receiving any medical treatment whatsoever for free.
+
+-u/upuprightstartdownbb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220574.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. In Switzerland, $1 or ~1CHF gets you a glass of cheap jam, some 100g of butter maybe.
+
+-u/AhhCaffeine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220575.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. 2 cans of Faygo!
+
+-u/monkeyz_unkle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220576.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Vietnamese here. Broken rice with grilled pork chop and meatloaf (or a fried egg) along with soup and iced tea.
+
+-u/manz55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220577.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">29 Cringe Pics of Complete Facepalm</a><br>
+## <a href="#linky3" id="linky2">46 People Whose Day Went from Bad to Worse</a><br>
+
+<span style="font-size:4em">1. “I went to a new barber. And got this. I didn’t say anything, and even tipped her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Honey, have you seen my other AirPod?”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015705/87220342/87218425.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Bought a house in a bidding war so inspection waived. Moving in I dented the wall and made a hole. This was behind the hole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015716/87220343/87218429.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Got new cargo shorts and accidentally sat on a stool that my sister was cleaning with Clorox…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015735/87220345/87218426.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Heard a loud ass bang come from my living room…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015739/87220346/87218432.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. And that was our dinner.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015747/87220347/87218434.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Girlfriend was helping cut my hair , she was doing a fantastic job until I heard a gasp.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015749/87220348/87218439.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Group of rich girls from Stanford came to my bar, tried a million samples, held up the line, and all tipped like this.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015757/87220349/87218444.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Good. Now, I get to learn how garages work.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015826/87220351/87218450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “There was a piece of sand on my glasses’ cleaning cloth.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015838/87220352/87218456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “A pipe broke upstairs.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015849/87220353/87218458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015857/87220354/87218445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I didn’t wear bug spray today. I think I should have.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015727/87220344/87218427.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Asked my wife to keep the oven on low for the burgers. Puts it on low, broil, and forgot to take the plastic cover off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Left to the store for an hour, came back to this. It went through my ENTIRE house like this and at the end emptied itself into its dock. Kill me now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Stray bullet hit the hood of my car on the 4th.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “NYC Fireworks- guy films for 15 mins but forgets to hit ‘record’.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “I’m not gonna be in the pool that long, I won’t need sunscreen”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Broccoli crowns and stems…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “It took me 15 minutes to finally get the key out of the ignition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Maple syrup spilling in my fridge….”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “First day in months I’ve had off to play games…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “The last place I saw my truck before running into the store for 10 minutes. All my work tools were in it too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “I’m feeling all around awful and have one of the worst sore throats of my life and the doctor prescribed these pills.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Someone’s shoveling bugs tomorrow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Slipped and fell into my shower door this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “Oh, that’s where my prescription sunglasses went…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Finally decided to use my bbq, only to find out its home to a squirrel now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “None of the pieces fit…this was supposed to be relaxing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “The start of my weight loss journey”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “It got so hot in my apartment last night, my butter melted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “I’ve just hung my new TV set on the wall and turned it on. Cool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “I got home really late, and finally got the motivation to make dinner. While putting the dressing away, my big cat came bulldozing through.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “The first 5 minutes of my first ride of the season”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “On my first day off after working 14 days straight, the power company is doing a planned outage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “My puppy chewed up my hand carved coffee table I had shipped from Japan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “I ordered a Ben 10 action figure, and got a used baby sock instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “The bag with coal ripped in the back of my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. “My headphones have just upgraded themselves to Bluetooth.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. “I was getting ready for bed and the soap dispenser fell off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. “I shattered my wedding ring 2 weeks before my anniversary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. “I thought I ordered 5 bananas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. “I cleaned my glasses too hard. I’m at work, and don’t have a spare pair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. “My 2-year-old was playing in the bedroom as usual today, I went to get her and found this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. “And that was our dinner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. “My girlfriend told me she had never cooked fish before. But I never expected this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219305.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">29 Cringe Pics of Complete Facepalm</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114425/87222006/facep1.png" style="width:100%"><br>
 
@@ -117,7 +262,7 @@ Last updated: 07/23/2022-09:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
+## <a href="#linky5" id="linky4">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
 
 <span style="font-size:4em">1. My husband and I took our teenage son and his friend (I’ll call him Alex) to an amusement park recently.
 
@@ -246,109 +391,6 @@ It would seem normal, at that moment I understood her, but after 2 days I found 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">What Can a Dollar Get You All around the World?</a><br>
-
-<span style="font-size:4em">1. A thumbs up from a homeless person on the subway.
-
--u/MamaOna</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. 4 Moomin lollipops.
-
--u/kvartzi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220554.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. I would say just about anything at the Dollar Tree, but they just raised all their prices to $1.25. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Four ramen packs.
-
--u/Personmanwomantv</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A quick 30 seconds of being jostled around on the cheap Elmo ride at the mall.
-
--u/rich_mula</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Individually wrapped little candies from a gas station counter. Not a candy bar, its not enough, but mints or a lollipop maybe.
-
--u/stephowl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. 4 cheap croissants (no, Im not French).
-
--u/ChaoticFucker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Two tacos or a can of beer.
-
--u/CptnStarkos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A weird look at the cash register.
-
--u/IncomeNatural8178</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220562.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. 1$ gets me 10,34 NOK.
-For 10 NOK I get about 0.4L of diesel or 0.35L of petrol.
- 
--u/Jungeltelegrafen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A cup of Vietnamese coffee.
--u/Professional_Ad4764</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220564.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. A dollar is about INR 80. Street food in India starts at around INR 10. Water bottles and packaged snacks such as chips and cookies cost between INR 10 to 20. 
-
--u/sayfriend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220565.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Mugged by a crackhead.
-
--u/AvianProtogen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Rent on a shopping trolley.
-
--u/soloapeproject</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Half a kilo of potatoes.
-Its depressing, prices have doubled in the blink of an eye. Netherlands, by the way.
-
--u/JCXIII-R</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Shout out to my boys at Arizona sweet tea keeping that sh*t 99 cents since day one.
-
--u/Full_Consideration_4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220560.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Luckily dollar drink days are on at McDonalds so Iced Coffee (if you ignore the tax). Otherwise, not much.
-
--u/CalgaryChris77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220569.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. A chocolate bar at Dollorama.
-
--u/TheClayroo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220570.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. A packet of crisps.
-
--u/Ondreas_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220571.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. The best street food meal you can imagine.
-
--u/blackheart_1708</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. NYC. I got a bag of Brussel sprouts for $1 last week.
-
--u/018474826</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. A cup of coffee from the coffee machine at the hospital after receiving any medical treatment whatsoever for free.
-
--u/upuprightstartdownbb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. In Switzerland, $1 or ~1CHF gets you a glass of cheap jam, some 100g of butter maybe.
-
--u/AhhCaffeine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. 2 cans of Faygo!
-
--u/monkeyz_unkle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Vietnamese here. Broken rice with grilled pork chop and meatloaf (or a fried egg) along with soup and iced tea.
-
--u/manz55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220577.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
 ## <a href="#linky6" id="linky5">25 Thor Facts Disney Doesn’t Want You to Know</a><br>
 
 <span style="font-size:4em">1. In Norse mythology at the end of the world (Ragnarok) the gods--Odin, Thor, Loki and the others--as well as all humans, will die. Evil triumphs over good, and the world will be engulfed in water.
@@ -454,7 +496,61 @@ Its depressing, prices have doubled in the blink of an eye. Netherlands, by the 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
+## <a href="#linky7" id="linky6">25 Funny Memes That Are "Just So Wrong"</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221054.jpeg" style="width:100%"><br>
 
@@ -513,102 +609,6 @@ Its depressing, prices have doubled in the blink of an eye. Netherlands, by the 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221053.jpeg" style="width:100%"><br>
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221057.jpeg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">46 People Whose Day Went from Bad to Worse</a><br>
-
-<span style="font-size:4em">1. “I went to a new barber. And got this. I didn’t say anything, and even tipped her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Honey, have you seen my other AirPod?”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015705/87220342/87218425.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Bought a house in a bidding war so inspection waived. Moving in I dented the wall and made a hole. This was behind the hole.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015716/87220343/87218429.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Got new cargo shorts and accidentally sat on a stool that my sister was cleaning with Clorox…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015735/87220345/87218426.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Heard a loud ass bang come from my living room…</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015739/87220346/87218432.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. And that was our dinner.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015747/87220347/87218434.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Girlfriend was helping cut my hair , she was doing a fantastic job until I heard a gasp.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015749/87220348/87218439.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Group of rich girls from Stanford came to my bar, tried a million samples, held up the line, and all tipped like this.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015757/87220349/87218444.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Good. Now, I get to learn how garages work.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015826/87220351/87218450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “There was a piece of sand on my glasses’ cleaning cloth.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015838/87220352/87218456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “A pipe broke upstairs.”</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015849/87220353/87218458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015857/87220354/87218445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I didn’t wear bug spray today. I think I should have.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/20/015727/87220344/87218427.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Asked my wife to keep the oven on low for the burgers. Puts it on low, broil, and forgot to take the plastic cover off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Left to the store for an hour, came back to this. It went through my ENTIRE house like this and at the end emptied itself into its dock. Kill me now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Stray bullet hit the hood of my car on the 4th.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “NYC Fireworks- guy films for 15 mins but forgets to hit ‘record’.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “I’m not gonna be in the pool that long, I won’t need sunscreen”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Broccoli crowns and stems…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “It took me 15 minutes to finally get the key out of the ignition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Maple syrup spilling in my fridge….”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “First day in months I’ve had off to play games…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “The last place I saw my truck before running into the store for 10 minutes. All my work tools were in it too.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “I’m feeling all around awful and have one of the worst sore throats of my life and the doctor prescribed these pills.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Someone’s shoveling bugs tomorrow…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Slipped and fell into my shower door this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “Oh, that’s where my prescription sunglasses went…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Finally decided to use my bbq, only to find out its home to a squirrel now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “None of the pieces fit…this was supposed to be relaxing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “The start of my weight loss journey”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “It got so hot in my apartment last night, my butter melted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “I’ve just hung my new TV set on the wall and turned it on. Cool.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “I got home really late, and finally got the motivation to make dinner. While putting the dressing away, my big cat came bulldozing through.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “The first 5 minutes of my first ride of the season”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “On my first day off after working 14 days straight, the power company is doing a planned outage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “My puppy chewed up my hand carved coffee table I had shipped from Japan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “I ordered a Ben 10 action figure, and got a used baby sock instead.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “The bag with coal ripped in the back of my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. “My headphones have just upgraded themselves to Bluetooth.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. “I was getting ready for bed and the soap dispenser fell off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. “I shattered my wedding ring 2 weeks before my anniversary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. “I thought I ordered 5 bananas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. “I cleaned my glasses too hard. I’m at work, and don’t have a spare pair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. “My 2-year-old was playing in the bedroom as usual today, I went to get her and found this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. “And that was our dinner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. “My girlfriend told me she had never cooked fish before. But I never expected this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87219305.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
