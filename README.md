@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/23/2022-12:47:19
+Last updated: 07/23/2022-13:47:19
 <br>
 ## <a href="#linky2" id="linky1">25 Funny Memes That Are "Just So Wrong"</a><br>
 
@@ -158,69 +158,7 @@ Its depressing, prices have doubled in the blink of an eye. Netherlands, by the 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">29 Cringe Pics of Complete Facepalm</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114425/87222006/facep1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114436/87222007/facep2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114447/87222008/facep3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114514/87222009/facep4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114607/87222010/facep5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114630/87222011/facep6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114655/87222012/facep8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Yes, this is an actual YouTube video.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114658/87222013/facep9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114707/87222014/facep7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114709/87222015/facep10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114718/87222016/facep11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114720/87222017/facep12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114729/87222018/facep13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114732/87222019/facep15.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114740/87222020/facep14.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114743/87222021/facep16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114752/87222022/facep17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114755/87222023/facep18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114803/87222024/facep19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114807/87222025/facep20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114814/87222026/facep21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114818/87222027/facep22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114825/87222028/facep24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114829/87222029/facep23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. Liberian flag confusion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114837/87222030/facep25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114843/87222031/facep26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114848/87222032/facep28.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114854/87222033/facep27.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114900/87222034/facep29.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
+## <a href="#linky4" id="linky3">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
 
 <span style="font-size:4em">1. My husband and I took our teenage son and his friend (I’ll call him Alex) to an amusement park recently.
 
@@ -349,112 +287,69 @@ It would seem normal, at that moment I understood her, but after 2 days I found 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Thor Facts Disney Doesn’t Want You to Know</a><br>
+## <a href="#linky5" id="linky4">29 Cringe Pics of Complete Facepalm</a><br>
 
-<span style="font-size:4em">1. In Norse mythology at the end of the world (Ragnarok) the gods--Odin, Thor, Loki and the others--as well as all humans, will die. Evil triumphs over good, and the world will be engulfed in water.
-
--u/George_E_Hale
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220527.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114425/87222006/facep1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. There are around 1000 people in Scandanavia/Denmark that follow the old Norse belief system, worshiping the gods Odin, Thor, Njörd, Freya, etc. and the giants as well as their ancestors. This religious revival is referred as Asatro and meet for ceremonies related to the changing seasons.
-
--u/ProtContQB1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220528.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114436/87222007/facep2.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. In Norse mythology, Thor once dressed as a bride and was presented to the giant Thrym with Loki as his bridesmaid. Thrym got a bit suspicious When Thor ate an entire ox, eight salmon, and many barrels of mead.
-
--u/kulayeb</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220529.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114447/87222008/facep3.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Freya, the Norse goddess of love, traveled by a chariot that was pulled by 2 cats. The cats are thought to be gifts from Thor.
-
--u/a_bem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220530.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114514/87222009/facep4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Thursday actually means Thors Day, named after the Norse God of Thunder.
-
--u/Minewrecker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220531.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114607/87222010/facep5.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Hammer of Thor is an approved religious symbol for veteran gravestones in the US and two soldiers have such headstones.
-
--u/coderotten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220532.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114630/87222011/facep6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Shia LaBeouf was once considered to play Thor in lieu of then “unknown” Chris Hemsworth.
-
--u/RedpilledChris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220533.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114655/87222012/facep8.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. According to Norse mythology, Thors hammer Mjölnir was originally intended to be wielded with both hands. Its characteristically short handle is due to a manufacturing defect caused by Loki who harassed the dwarven brothers Sindri and Brokkr while they were forging the weapon.
-
--u/huphelmeyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220534.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Yes, this is an actual YouTube video.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114658/87222013/facep9.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Thor (MARVEL comics) conceived himself after he had incestuous sex with his sister. In Mighty THOR #296-298, Thor in a mortal form named Siegmund, rescues and falls in love with Sieglinda, his twin sister. After his death, Sieglinda gives birth to his child Siegfried, who is actually Thor.
-
--u/Initial_XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220535.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114707/87222014/facep7.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. The man who scored Thor: Ragnarok was part of Devo in the 1980s when they released their hit song, Whip It, and is actually the one whipping peoples clothes off in the music video.
-
--u/queenyeeeezy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220536.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114709/87222015/facep10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Ancient pagans in Germany had a special, sacred tree called Thors oak but the Christians cut it down.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220537.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114718/87222016/facep11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Swastika was at one point used as a symbol of the hammer and lightning of Thor.
-
--u/J_S_M_K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220538.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114720/87222017/facep12.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. In the Norse myth Þrymskviða, Thor and Loki crossdress as wedding brides to retrieve the stolen Mjöllnir. The thieves got suspicious when the ladies ate everything in sight.
-
--u/MyTILAccount</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220539.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114729/87222018/facep13.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. A guy created a replica of Thors hammer that, through electromagnets and a fingerprint scanner, will only allow him to lift it.
-
--u/lmtysamlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220540.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114732/87222019/facep15.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Thors chariot was pulled by two goats Tanngrisnir and Tanngnjóstr that Thor could eat and then resurrect the following day intact with his hammer if no bones were broken.
-
--u/Nihilistic_dawn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220541.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114740/87222020/facep14.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. In “Thor: The Dark World” Natalie Portman wasn’t available to reshoot the final kiss scene, so Chris Hemsworth’s Wife took her place dressed as Natalie.
-
--u/gmcl86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220543.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114743/87222021/facep16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. A man in Florida high on a PVP (“Flakka”) was arrested after running naked through a neighborhood, assaulting an officer, and attempted having sex with a tree. He also identified himself as God and Thor.
-
--u/redmambo_no6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220542.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114752/87222022/facep17.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. Some people campaigned against the casting of Idris Elba to play Heimdall in Thor because it was wrong for a black man to play a Nordic god.
-
--u/alexc90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220544.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114755/87222023/facep18.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Prose Edda identified Memnon (the Ethiopian King who defended Troy in The Iliad) rather than Odin as the Father of Thor.
-
--u/hahaha01357</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220545.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114803/87222024/facep19.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Thor from Norse Mythology is supposed to be a redhead w/ a big red beard (in some retellings).
-
--u/flowerb0mbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220546.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114807/87222025/facep20.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. Thor: Ragnarok director Taika Waititi was doing nothing while filming for Green Lantern, so he went to his hotel room and stood there all night, saying he would buy everything he saw on TV that night, eventually buying a shake weight. He went to add a shake weight as an easter egg on Ragnarok.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220547.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114814/87222026/facep21.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. Superman once wielded Thors Hammer. Not because he was a Super-man but because he was Worthy.
-
--u/blueberrybadguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220548.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114818/87222027/facep22.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. Tom Hiddleston auditioned for Thor before getting the part of Loki.
-
--u/raofzainuddin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220549.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114825/87222028/facep24.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. In Norse mythology, Thor kicked a random passing dwarf into Baldrs funeral pyre, and he burned.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220550.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114829/87222029/facep23.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. The mechanic mistaken for Thor in *Adventures In Babysitting* was played by Vincent Donofrio.
-
--u/belial77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87220551.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Liberian flag confusion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114837/87222030/facep25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114843/87222031/facep26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114848/87222032/facep28.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114854/87222033/facep27.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114900/87222034/facep29.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
+## <a href="#linky6" id="linky5">29 Frigid Pics to Make the Heat Wave Fun Again</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87221054.jpeg" style="width:100%"><br>
 
