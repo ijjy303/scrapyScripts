@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/24/2022-04:47:19
+Last updated: 07/24/2022-05:47:19
 <br>
 ## <a href="#linky2" id="linky1">50 Everyday Items Worn Down By Time</a><br>
 
@@ -105,7 +105,187 @@ Last updated: 07/24/2022-04:47:19
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
+## <a href="#linky3" id="linky2">30 Trippy Pics That Need an Explanation </a><br>
+
+<span style="font-size:4em">1. Guy Behind Wife Snuck His Rather Large Hand On Her Shoulder, While Kid Behind Me Cupped A Feel Around My Love Handles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Bert From Sesame Street Spotted On The Street</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Giant Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Its Not A Guy Putting His Hand In The Front Of His Friends Pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. When You Can’t Find Your Sandwich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Charles Davis Captured This Image Of Australian Budgerigars (Budgies) In A Tree. Theres No Leaves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Mr. Tiny Legs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Dog Reading A Pamphlet On The Bus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Floating Cat?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Thought They Were Miming Their Awards</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My Friend Learning To Snowboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. These Clouds In Minnesota Look Like The Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My Pet Bird Taking A Bath Looks Like Its Being Boiled Alive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Trees With Christmas Lights Under The Snow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Dirt Bike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. From An Ask-A-Vet Group. I Thought It Was About A Birth Defect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Never Skip Arm Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Truck Looks Like It Has A Possum Logo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Conjoined Canines</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Had No Idea My Wife Was Part Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Flexible Footballer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Buff Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. 8 Hours Worth Of Detailing A Black Car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Getting A Real Handful</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. We Can Now Project The News Into The Sky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. What A Great Pic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. My Dog & I Recreated Van Gogh’s Smoking Skull Painting With Fabric, Clothes Etc. Original Painting On The Left, Our Recreation On The Right</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Bodiless Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Face Off</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The Eagle Statue Turns Into A Pirate At Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220875.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">29 Cringe Pics of Complete Facepalm</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114425/87222006/facep1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114436/87222007/facep2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114447/87222008/facep3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114514/87222009/facep4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114607/87222010/facep5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114630/87222011/facep6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114655/87222012/facep8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Yes, this is an actual YouTube video.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114658/87222013/facep9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114707/87222014/facep7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114709/87222015/facep10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114718/87222016/facep11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114720/87222017/facep12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114729/87222018/facep13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114732/87222019/facep15.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114740/87222020/facep14.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114743/87222021/facep16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114752/87222022/facep17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114755/87222023/facep18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114803/87222024/facep19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114807/87222025/facep20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114814/87222026/facep21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114818/87222027/facep22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114825/87222028/facep24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114829/87222029/facep23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. Liberian flag confusion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114837/87222030/facep25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114843/87222031/facep26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114848/87222032/facep28.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114854/87222033/facep27.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114900/87222034/facep29.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">25 Funny Memes That Are "Just So Wrong"</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
 
 <span style="font-size:4em">1. My husband and I took our teenage son and his friend (I’ll call him Alex) to an amusement park recently.
 
@@ -231,186 +411,6 @@ It would seem normal, at that moment I understood her, but after 2 days I found 
 <span style="font-size:4em">37. How can she be my wife? I have no idea who she is. said my husband of 8 years after a bad car wreck and 4 weeks in a coma. He lost about 12 years of memories. Including our whole relationship. We got divorced 2 years after as his memory never returned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220883.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">38. Someone said they hated me, that was pretty soul crushing for me. I thought they were my friend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220917.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">29 Cringe Pics of Complete Facepalm</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114425/87222006/facep1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114436/87222007/facep2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114447/87222008/facep3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114514/87222009/facep4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114607/87222010/facep5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114630/87222011/facep6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114655/87222012/facep8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Yes, this is an actual YouTube video.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114658/87222013/facep9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114707/87222014/facep7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114709/87222015/facep10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114718/87222016/facep11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114720/87222017/facep12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114729/87222018/facep13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114732/87222019/facep15.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114740/87222020/facep14.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114743/87222021/facep16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114752/87222022/facep17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114755/87222023/facep18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114803/87222024/facep19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114807/87222025/facep20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114814/87222026/facep21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114818/87222027/facep22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114825/87222028/facep24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114829/87222029/facep23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. Liberian flag confusion.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114837/87222030/facep25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114843/87222031/facep26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114848/87222032/facep28.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114854/87222033/facep27.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/22/114900/87222034/facep29.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">25 Funny Memes That Are "Just So Wrong"</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">30 Trippy Pics That Need an Explanation </a><br>
-
-<span style="font-size:4em">1. Guy Behind Wife Snuck His Rather Large Hand On Her Shoulder, While Kid Behind Me Cupped A Feel Around My Love Handles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Bert From Sesame Street Spotted On The Street</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Giant Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Its Not A Guy Putting His Hand In The Front Of His Friends Pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. When You Can’t Find Your Sandwich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Charles Davis Captured This Image Of Australian Budgerigars (Budgies) In A Tree. Theres No Leaves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Mr. Tiny Legs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Dog Reading A Pamphlet On The Bus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Floating Cat?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Thought They Were Miming Their Awards</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Friend Learning To Snowboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. These Clouds In Minnesota Look Like The Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My Pet Bird Taking A Bath Looks Like Its Being Boiled Alive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Trees With Christmas Lights Under The Snow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Dirt Bike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. From An Ask-A-Vet Group. I Thought It Was About A Birth Defect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Never Skip Arm Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Truck Looks Like It Has A Possum Logo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Conjoined Canines</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Had No Idea My Wife Was Part Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Flexible Footballer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Buff Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. 8 Hours Worth Of Detailing A Black Car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Getting A Real Handful</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. We Can Now Project The News Into The Sky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. What A Great Pic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. My Dog & I Recreated Van Gogh’s Smoking Skull Painting With Fabric, Clothes Etc. Original Painting On The Left, Our Recreation On The Right</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Bodiless Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Face Off</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The Eagle Statue Turns Into A Pirate At Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220875.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
