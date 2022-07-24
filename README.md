@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/24/2022-17:03:57
+Last updated: 07/24/2022-17:04:53
 <br>
 ## <a href="#linky2" id="linky1">35 Hilariously WTF Signs from Around the World</a><br>
 
@@ -73,71 +73,7 @@ Last updated: 07/24/2022-17:03:57
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 Trippy Pics That Need an Explanation </a><br>
-
-<span style="font-size:4em">1. Guy Behind Wife Snuck His Rather Large Hand On Her Shoulder, While Kid Behind Me Cupped A Feel Around My Love Handles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Bert From Sesame Street Spotted On The Street</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Giant Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Its Not A Guy Putting His Hand In The Front Of His Friends Pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. When You Can’t Find Your Sandwich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Charles Davis Captured This Image Of Australian Budgerigars (Budgies) In A Tree. Theres No Leaves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Mr. Tiny Legs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Dog Reading A Pamphlet On The Bus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Floating Cat?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Thought They Were Miming Their Awards</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Friend Learning To Snowboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. These Clouds In Minnesota Look Like The Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My Pet Bird Taking A Bath Looks Like Its Being Boiled Alive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Trees With Christmas Lights Under The Snow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Dirt Bike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. From An Ask-A-Vet Group. I Thought It Was About A Birth Defect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Never Skip Arm Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Truck Looks Like It Has A Possum Logo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Conjoined Canines</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Had No Idea My Wife Was Part Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Flexible Footballer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Buff Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. 8 Hours Worth Of Detailing A Black Car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Getting A Real Handful</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. We Can Now Project The News Into The Sky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. What A Great Pic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. My Dog & I Recreated Van Gogh’s Smoking Skull Painting With Fabric, Clothes Etc. Original Painting On The Left, Our Recreation On The Right</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Bodiless Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Face Off</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The Eagle Statue Turns Into A Pirate At Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220875.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">24 Times Life Defied All Logic </a><br>
+## <a href="#linky3" id="linky2">24 Times Life Defied All Logic </a><br>
 
 <span style="font-size:4em">1. One of our chickens just laid a jumbo egg with another egg inside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218681.jpg" style="width:100%"><br>
 
@@ -189,61 +125,111 @@ Last updated: 07/24/2022-17:03:57
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">25 Funny Memes That Are "Just So Wrong"</a><br>
+## <a href="#linky4" id="linky3">50 Everyday Items Worn Down By Time</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Old dice vs new dice, can you imagine how many times those things have been rolled? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. A Key After 12 Years of Use vs. The Spare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My 14 years old well worn toy compared to a new one found from second hand shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. If you dont poke a whole in your eraser, did you even use it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. X-mas of 2019 I got two pillows and used 1 of them every night for a year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Time for a new cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Basketball i got 5 years ago vs basketball I got today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. New notebook next to one used the last year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. New compared to well traveled 3yr old boot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Left plate used regularly for 23 years. Right plate never used in 23 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My 10+ year old wallet vs a new one of the exact same design</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. A stack of old $5 bills compared to a stack of new ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I received two identical cases for Christmas last year. This is what 10½ months of daily use looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. One pillowcase has been used nearly everyday for 40 years. The other has been in a closet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Replaced my mom’s gardening gloves for Mother’s Day this year!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. My 20 year old toy phone and my daughters brand new one! Both fisher price.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Does this count? Highlighter after a week of nonstop studying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221122.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. It takes 10,000 hugs to reach the center of the teddy bear. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221123.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221124.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221125.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221126.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221127.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Polish that thing up and its good as new, well not exactly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. New vs old $20 bills in ATM dispenser.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. These golf balls at the mini golf course I work at became smooth after spending a lot of time in a stream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. My old 54 mm skateboard wheels next to my new 54 mm skateboard wheels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. Brass Hammer. 1 year Vs Brand new.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. My dad found a ~20 year old banana in his coat pocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. 3 days of studio work, barely hanging on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. My bike saddle after 5 years of commuting (~30k km) vs. a brand new one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. My wood fired oven brush after a year of heavy use vs a new one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221153.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
+## <a href="#linky5" id="linky4">38 of the Most Soul-Crushing Things People Have Ever Heard</a><br>
 
 <span style="font-size:4em">1. My husband and I took our teenage son and his friend (I’ll call him Alex) to an amusement park recently.
 
@@ -372,107 +358,121 @@ It would seem normal, at that moment I understood her, but after 2 days I found 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">50 Everyday Items Worn Down By Time</a><br>
+## <a href="#linky6" id="linky5">25 Funny Memes That Are "Just So Wrong"</a><br>
 
-<span style="font-size:4em">1. Old dice vs new dice, can you imagine how many times those things have been rolled? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221104.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221105.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221106.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A Key After 12 Years of Use vs. The Spare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221107.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. My 14 years old well worn toy compared to a new one found from second hand shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221108.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. If you dont poke a whole in your eraser, did you even use it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221109.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. X-mas of 2019 I got two pillows and used 1 of them every night for a year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221110.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Time for a new cap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221111.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Basketball i got 5 years ago vs basketball I got today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221112.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. New notebook next to one used the last year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221113.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. New compared to well traveled 3yr old boot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221114.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Left plate used regularly for 23 years. Right plate never used in 23 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221115.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My 10+ year old wallet vs a new one of the exact same design</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221116.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. A stack of old $5 bills compared to a stack of new ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221117.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I received two identical cases for Christmas last year. This is what 10½ months of daily use looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221118.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. One pillowcase has been used nearly everyday for 40 years. The other has been in a closet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221119.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Replaced my mom’s gardening gloves for Mother’s Day this year!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221120.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220988.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My 20 year old toy phone and my daughters brand new one! Both fisher price.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221121.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Does this count? Highlighter after a week of nonstop studying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221122.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. It takes 10,000 hugs to reach the center of the teddy bear. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221123.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221124.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221125.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221126.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221127.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221128.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Polish that thing up and its good as new, well not exactly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221129.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221130.jpg" style="width:100%"><br>
+## <a href="#linky7" id="linky6">30 Trippy Pics That Need an Explanation </a><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221131.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Guy Behind Wife Snuck His Rather Large Hand On Her Shoulder, While Kid Behind Me Cupped A Feel Around My Love Handles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221132.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Bert From Sesame Street Spotted On The Street</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221133.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Giant Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221134.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Its Not A Guy Putting His Hand In The Front Of His Friends Pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221135.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. When You Can’t Find Your Sandwich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221136.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Charles Davis Captured This Image Of Australian Budgerigars (Budgies) In A Tree. Theres No Leaves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221137.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Mr. Tiny Legs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221138.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Dog Reading A Pamphlet On The Bus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. New vs old $20 bills in ATM dispenser.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221139.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Floating Cat?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221140.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Thought They Were Miming Their Awards</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. These golf balls at the mini golf course I work at became smooth after spending a lot of time in a stream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221141.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My Friend Learning To Snowboard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. My old 54 mm skateboard wheels next to my new 54 mm skateboard wheels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221142.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. These Clouds In Minnesota Look Like The Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. Brass Hammer. 1 year Vs Brand new.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221143.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My Pet Bird Taking A Bath Looks Like Its Being Boiled Alive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. My dad found a ~20 year old banana in his coat pocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221144.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Trees With Christmas Lights Under The Snow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. 3 days of studio work, barely hanging on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221145.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Dirt Bike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. My bike saddle after 5 years of commuting (~30k km) vs. a brand new one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221146.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. From An Ask-A-Vet Group. I Thought It Was About A Birth Defect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">44. My wood fired oven brush after a year of heavy use vs a new one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221147.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Never Skip Arm Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221148.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Truck Looks Like It Has A Possum Logo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221149.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Conjoined Canines</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221150.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Had No Idea My Wife Was Part Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221151.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Flexible Footballer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221152.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Buff Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221153.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. 8 Hours Worth Of Detailing A Black Car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Getting A Real Handful</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. We Can Now Project The News Into The Sky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. What A Great Pic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. My Dog & I Recreated Van Gogh’s Smoking Skull Painting With Fabric, Clothes Etc. Original Painting On The Left, Our Recreation On The Right</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Bodiless Dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Face Off</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The Eagle Statue Turns Into A Pirate At Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220875.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
