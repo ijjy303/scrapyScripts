@@ -1,39 +1,7 @@
 # We Haz Da Meatz<br>
-Last updated: 07/25/2022-07:47:17
+Last updated: 07/25/2022-08:47:18
 <br>
-## <a href="#linky2" id="linky1">This Weeks Batch Of Accurate Dating App Tweets  </a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689688320/h315256BB/my-dog-needs-new-mom-my-brother-christ-dog-needs-up-date-shots-535-pm-jul-13-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689689088/hABD927A7/apps-again-putting-this-as-an-objective-on-my-bio-346-pm-jul-17-2022-brooklyn-ny-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689688576/h1A5267E7/an-incredible-idea-blog-so-yknow-guess-apps-arent-always-useless-245-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689689344/hA379553F/these-premium-prices-are-insane-hello-no-thanks-dont-need-bad-807-am-jul-18-2022-twitter-web-app" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689688064/h08B31B27/put-crypto-as-their-career-as-if-s-not-proven-vagina-repellent-812-am-jul-15-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689688832/hF7B42B68/match-and-just-say-hey-blocking-like-wtf-do-want-say-top-morning-121-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689690112/h72A8C2D4/say-easy-on-eyes-hard-on-stomach-if-cannibalize-spit-right-back-641-pm-jul-17-2022-twitter-android" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689690880/h130B80D5/why-are-still-single-seeing-same-guys-on-dating-apps-last-3-years-306-pm-jul-12-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689689856/h38CF8C55/1-2-so-hes-acting-up-can-put-him-my-purse-till-he-settles-down-702-am-jul-15-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689690368/hEFCBE9B8/dating-apps-with-astonishing-frequency-where-are-all-hot-people-746-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689689600/h21D4E183/dating-apps-make-realise-sometimes-god-just-be-making-anybody-1129-pm-jul-15-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689691136/h9D810EFC/on-dating-apps-b-like-1-pretty-girl-and-ugliest-man-ever-seen-611-pm-jul-18-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9689690624/hA18D1BDB/go-park-and-scream-maybe-do-little-dance-just-like-wild-animal-620-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9689691392/h8517DC3F/dating-apps-een-hoice-awards-2004-on-fox-fed-up-need-freedors-d-unity-teen-choice-award-2004-on-fox" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">Creepy MotherInLaw Insists On Having Her Afternoon Naps In Her Son And DaughterInLaws Bed During Her Stay </a><br>
+## <a href="#linky2" id="linky1">Creepy MotherInLaw Insists On Having Her Afternoon Naps In Her Son And DaughterInLaws Bed During Her Stay </a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689761536/hC1C43510/posted-by-uthrowra4t33-14-hours-ago-43-aita-refusing-let-my-husbands-mom-nap-my-room" style="width:100%"><br>
 
@@ -58,6 +26,40 @@ Last updated: 07/25/2022-07:47:17
 <span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689759744/h0494DB78/is-my-sanctuary-get-lock-bedroom-door-if-must-but-this-is-ridiculous-and-tell-husband-grow-fu" style="width:100%"><br>
 
 <span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689761024/hB754A505/husband-he-needs-support-dealings-with-his-family-but-instead-doing-he-is-making-situation-worse" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">Funniest Marriage Tweets We Saw This Past Week </a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689712640/h4E52F173/on-gas-which-is-why-my-wife-is-charge-our-household-finances-728-pm-jul-4-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689714432/h79AD8793/s-just-45-minutes-asking-my-wife-where-various-things-are-house-1153-pm-jun-23-2022-twitter-web-app" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689712896/h59447261/has-made-friends-with-family-next-us-so-now-have-file-divorce-735-pm-jun-29-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689713152/h35022E22/and-told-him-long-s-been-since-check-engine-light-turned-on-539-am-jun-28-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689713664/h4024271D/upon-time-year-2005-asked-her-wrong-and-she-still-hasnt-finished-508-pm-jun-21-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689714176/hCD7D0D64/minute-s-wise-drop-whatever-doing-and-immediately-have-minute-110-pm-jul-5-2022-twitter-android" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689713920/hB47F12B4/dont-know-became-his-job-either-but-glad-he-agrees-s-his-job-1250-am-jun-28-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689713408/h47737B51/baby-but-he-pulled-his-back-process-so-feel-like-s-fair-trade-655-pm-jun-30-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689714944/h6F80DDD0/and-they-were-so-excited-about-and-s-weird-be-married-son-never-602-am-jul-1-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689714688/h7716FAC4/say-are-handsome-havent-recovered-5-1204-pm-jul-1-2022-bloemfontein-south-africa-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689715200/h05D5F138/pretty-sure-sharing-dessert-wasnt-part-my-marriage-vows-750-pm-jun-28-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689715456/h366ECCCB/cheese-platter-and-s-second-thing-been-super-right-about-today-1017-pm-jun-28-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9689715968/h5DEB689E/row-case-anyone-is-wondering-marriage-looks-like-after-17-years-258-pm-jul-2-2022-twitter-android" style="width:100%"><br>
+
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9689715712/h2017D8B1/tell-as-much-as-showed-by-using-my-coffee-cup-drink-her-tea-330-pm-jun-24-2022-twitter-android" style="width:100%"><br>
+
+<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9689716224/h8BD9C2DC/up-after-night-partying-and-being-first-one-say-have-hangover-402-pm-jun-27-2022-twitter-iphone" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -93,71 +95,7 @@ Last updated: 07/25/2022-07:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Funniest Marriage Tweets We Saw This Past Week </a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689712640/h4E52F173/on-gas-which-is-why-my-wife-is-charge-our-household-finances-728-pm-jul-4-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689714432/h79AD8793/s-just-45-minutes-asking-my-wife-where-various-things-are-house-1153-pm-jun-23-2022-twitter-web-app" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689712896/h59447261/has-made-friends-with-family-next-us-so-now-have-file-divorce-735-pm-jun-29-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689713152/h35022E22/and-told-him-long-s-been-since-check-engine-light-turned-on-539-am-jun-28-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689713664/h4024271D/upon-time-year-2005-asked-her-wrong-and-she-still-hasnt-finished-508-pm-jun-21-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689714176/hCD7D0D64/minute-s-wise-drop-whatever-doing-and-immediately-have-minute-110-pm-jul-5-2022-twitter-android" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689713920/hB47F12B4/dont-know-became-his-job-either-but-glad-he-agrees-s-his-job-1250-am-jun-28-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689713408/h47737B51/baby-but-he-pulled-his-back-process-so-feel-like-s-fair-trade-655-pm-jun-30-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689714944/h6F80DDD0/and-they-were-so-excited-about-and-s-weird-be-married-son-never-602-am-jul-1-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689714688/h7716FAC4/say-are-handsome-havent-recovered-5-1204-pm-jul-1-2022-bloemfontein-south-africa-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689715200/h05D5F138/pretty-sure-sharing-dessert-wasnt-part-my-marriage-vows-750-pm-jun-28-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689715456/h366ECCCB/cheese-platter-and-s-second-thing-been-super-right-about-today-1017-pm-jun-28-2022-twitter-iphone" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9689715968/h5DEB689E/row-case-anyone-is-wondering-marriage-looks-like-after-17-years-258-pm-jul-2-2022-twitter-android" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9689715712/h2017D8B1/tell-as-much-as-showed-by-using-my-coffee-cup-drink-her-tea-330-pm-jun-24-2022-twitter-android" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9689716224/h8BD9C2DC/up-after-night-partying-and-being-first-one-say-have-hangover-402-pm-jun-27-2022-twitter-iphone" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Wife Fuming After She Was Excluded From Husbands Trip Refuses To Pay For Him</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689682432/hE3AF14D2/aita-refusing-give-my-husband-money-go-on-trip-his-friend-excluded" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689682688/hB1597CB7/together-they-extended-their-friend-group-now-group-has-over-7-guys-who-hang-out-together-all-time" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689683456/hCFE3DD43/and-him-make-constant-topic-conversation-hurts-my-husband-thinks-s-just-being-hypersensitive" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689683712/hC51D8DBB/first-time-okay-with-being-away-austin-but-said-he-still-wants-go-on-trip-said-nothing-til-h" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689682944/h1BEFBEC8/bigger-than-just-few-comments-austin-made-and-bigger-than-my-exaggerated-sensitivity-and-insecurity" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689683200/h3A6DBCBF/now-hes-sulking-until-cave-and-give-him-money-aita-insisting-on-not-paying" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689683968/h6B004C40/nta-consider-leaving-my-partner-over-crap-like-sure-have-other-stories-here-ps-do-not-pay-dime-him" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689684224/hAF2AC830/with-him-and-get-out-maybe-hell-be-more-willing-get-off-his-ass-and-get-job-if-austin-tells-him" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689684480/h87C3FA70/premeditated-and-planned-way-like-should-be-legally-liable-imo-s-thousands-dollars-down-drain" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689684992/hE0711356/sunglasses-domhaynie-8-days-ago-s-well-just-makes-sense-hes-married-austin-and-op-is-side-piece" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689685504/h0F756544/usually-jump-on-divorce-bandwagon-but-this-is-inexcusable-let-him-be-single-and-find-his-own-money" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689684736/hA04DBE63/sunglasses-megzesq-8-days-ago-yeah-hate-come-on-here-and-constantly-say-divorce-but-like-divorce" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9689685248/h464DED12/upno-contact-but-this-is-one-those-situations-where-100-divorce-do-mock-someone-their-infertility" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">Women Disclose What Their Biggest Insecurities Are In A Romantic Relationship</a><br>
+## <a href="#linky5" id="linky4">Women Disclose What Their Biggest Insecurities Are In A Romantic Relationship</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689700864/h0DC2622C/is-biggest-insecurity-romantic-relationships" style="width:100%"><br>
 
@@ -189,6 +127,68 @@ Last updated: 07/25/2022-07:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky6" id="linky5">This Weeks Batch Of Accurate Dating App Tweets  </a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689688320/h315256BB/my-dog-needs-new-mom-my-brother-christ-dog-needs-up-date-shots-535-pm-jul-13-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689689088/hABD927A7/apps-again-putting-this-as-an-objective-on-my-bio-346-pm-jul-17-2022-brooklyn-ny-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689688576/h1A5267E7/an-incredible-idea-blog-so-yknow-guess-apps-arent-always-useless-245-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689689344/hA379553F/these-premium-prices-are-insane-hello-no-thanks-dont-need-bad-807-am-jul-18-2022-twitter-web-app" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689688064/h08B31B27/put-crypto-as-their-career-as-if-s-not-proven-vagina-repellent-812-am-jul-15-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689688832/hF7B42B68/match-and-just-say-hey-blocking-like-wtf-do-want-say-top-morning-121-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689690112/h72A8C2D4/say-easy-on-eyes-hard-on-stomach-if-cannibalize-spit-right-back-641-pm-jul-17-2022-twitter-android" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689690880/h130B80D5/why-are-still-single-seeing-same-guys-on-dating-apps-last-3-years-306-pm-jul-12-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689689856/h38CF8C55/1-2-so-hes-acting-up-can-put-him-my-purse-till-he-settles-down-702-am-jul-15-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689690368/hEFCBE9B8/dating-apps-with-astonishing-frequency-where-are-all-hot-people-746-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689689600/h21D4E183/dating-apps-make-realise-sometimes-god-just-be-making-anybody-1129-pm-jul-15-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689691136/h9D810EFC/on-dating-apps-b-like-1-pretty-girl-and-ugliest-man-ever-seen-611-pm-jul-18-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9689690624/hA18D1BDB/go-park-and-scream-maybe-do-little-dance-just-like-wild-animal-620-am-jul-19-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9689691392/h8517DC3F/dating-apps-een-hoice-awards-2004-on-fox-fed-up-need-freedors-d-unity-teen-choice-award-2004-on-fox" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">Wife Fuming After She Was Excluded From Husbands Trip Refuses To Pay For Him</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689682432/hE3AF14D2/aita-refusing-give-my-husband-money-go-on-trip-his-friend-excluded" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689682688/hB1597CB7/together-they-extended-their-friend-group-now-group-has-over-7-guys-who-hang-out-together-all-time" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689683456/hCFE3DD43/and-him-make-constant-topic-conversation-hurts-my-husband-thinks-s-just-being-hypersensitive" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689683712/hC51D8DBB/first-time-okay-with-being-away-austin-but-said-he-still-wants-go-on-trip-said-nothing-til-h" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689682944/h1BEFBEC8/bigger-than-just-few-comments-austin-made-and-bigger-than-my-exaggerated-sensitivity-and-insecurity" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689683200/h3A6DBCBF/now-hes-sulking-until-cave-and-give-him-money-aita-insisting-on-not-paying" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689683968/h6B004C40/nta-consider-leaving-my-partner-over-crap-like-sure-have-other-stories-here-ps-do-not-pay-dime-him" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689684224/hAF2AC830/with-him-and-get-out-maybe-hell-be-more-willing-get-off-his-ass-and-get-job-if-austin-tells-him" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689684480/h87C3FA70/premeditated-and-planned-way-like-should-be-legally-liable-imo-s-thousands-dollars-down-drain" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689684992/hE0711356/sunglasses-domhaynie-8-days-ago-s-well-just-makes-sense-hes-married-austin-and-op-is-side-piece" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689685504/h0F756544/usually-jump-on-divorce-bandwagon-but-this-is-inexcusable-let-him-be-single-and-find-his-own-money" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689684736/hA04DBE63/sunglasses-megzesq-8-days-ago-yeah-hate-come-on-here-and-constantly-say-divorce-but-like-divorce" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9689685248/h464DED12/upno-contact-but-this-is-one-those-situations-where-100-divorce-do-mock-someone-their-infertility" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky8" id="linky7">A Concise Collection Of Cheeky Situationship Tweets  </a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689800192/hFD9E3CBC/kale-kalesterr-as-my-ex-situationship-please-do-not-like-my-story-357-am-jul-15-2022-twitter-iphone" style="width:100%"><br>
@@ -213,31 +213,31 @@ Last updated: 07/25/2022-07:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Man Claims To Be A Good Guy After Threatening To Leak A Womans Nudes </a><br>
+## <a href="#linky9" id="linky8">Creepy Man Tries To Hook Up With Girl He Used To Babysit Claims She Owes Him When She Rejects His Advances </a><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689900800/h5836C74E/person-aubry-andrews-aubryandrews-such-good-guy-only-threatened-leak-nudes" style="width:100%"><br>
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689931520/hA7026F35/person-aubry-andrews-aubryandrews-holy-predator-batman" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689900288/hED27D99C/s-not-an-harassment-but-u-always-disrespect-all-time-by-blocking-makes-so-much-angry-about-1104" style="width:100%"><br>
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689931776/hCAD13421/were-little-and-were-such-brat-but-seem-really-mature-and-chill-now-so-wondering-if-wanted-hook-up" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689900032/h5E9B9586/yes-is-harassment-blocked-on-all-accounts-so-far-do-not-think-is-problem-seen-s-not-disrespecting" style="width:100%"><br>
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689931264/h5BC57EF2/no-dude-could-have-had-my-way-with-back-then-and-didnt-feel-like-owe-this-after-tolerated-all-bull" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689899520/hBB5A4732/do-u-know-can-still-ruin-life-by-leaking-pic-but-yes-wont-leak-anything-because-am-good-guy-everyone" style="width:100%"><br>
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689929216/h36677647/woop-woop-thats-sound-da-police-woop-woop-thats-sound-da-beast-717-pm-jul-17-2022-twitter-web-app" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689898752/h19E01167/these-dudes-have-about-themselves-and-they-interact-with-women-236-am-jul-20-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689930240/hA8887310/shows-saint-compared-other-men-and-owe-there-is-no-bar-too-low-208-am-jul-18-2022-twitter-web-app" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689897984/h3B4FF9F8/replying-aubryandrews-going-blackmail-because-good-person-610-pm-jul-19-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689929472/hFABEB6DE/only-thing-she-owes-him-is-blast-this-exchange-everyone-he-knows-500-pm-jul-17-2022-twitter-iphone" style="width:100%"><br>
 
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689898240/hF0F563C4/replying-aubryandrews-why-roll-our-eyes-at-just-block-him-532-pm-jul-19-2022-twitter-web-app" style="width:100%"><br>
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689929728/h446B8A84/jane-samuels-janesamuels-replying-aubryandrews-ohhh-s-one-cops-500-pm-jul-17-2022-twitter-android" style="width:100%"><br>
 
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689898496/hF755F280/guytm-go-right-and-leak-them-so-can-go-jail-being-nice-guy-tm-632-pm-jul-19-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689929984/h502BC196/thought-could-have-raped-as-child-line-good-idea-put-into-writing-505-pm-jul-17-2022-twitter-iphone" style="width:100%"><br>
 
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689899264/h6FF4AE89/has-he-looked-into-omegle-or-chatroulette-is-he-new-internet-258-am-jul-20-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689930496/hCA72BBE7/if-he-babysat-her-she-obviously-knows-family-send-texts-his-mom-512-pm-jul-17-2022-twitter-android" style="width:100%"><br>
 
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689899008/h08A830FD/lookup-cyberstalking-laws-and-be-informed-consequences-actions-427-pm-jul-19-2022-twitter-web-app" style="width:100%"><br>
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689930752/h66567E53/life-made-feel-someone-owed-sex-find-such-odd-way-thinking-511-pm-jul-17-2022-twitter-iphone" style="width:100%"><br>
 
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689899776/h6BEDA61F/guy-he-had-constantly-complain-about-bad-good-guys-are-treated-558-pm-jul-19-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689931008/h1FDE5BE7/did-he-babysit-anyone-else-might-be-worth-sharing-this-with-them-707-pm-jul-17-2022-twitter-web-app" style="width:100%"><br>
 
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689900544/h36058AFF/such-good-guy-almost-dead-certain-he-is-not-412-pm-jul-19-2022-new-hampshire-usa-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689932032/h15F6A853/person-incogmeato-thubtumper-replying-aubryandrews-541-pm-jul-17-2022-twitter-android" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -273,31 +273,31 @@ Last updated: 07/25/2022-07:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Creepy Man Tries To Hook Up With Girl He Used To Babysit Claims She Owes Him When She Rejects His Advances </a><br>
+## <a href="#linky11" id="linky10">Man Claims To Be A Good Guy After Threatening To Leak A Womans Nudes </a><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689931520/hA7026F35/person-aubry-andrews-aubryandrews-holy-predator-batman" style="width:100%"><br>
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9689900800/h5836C74E/person-aubry-andrews-aubryandrews-such-good-guy-only-threatened-leak-nudes" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689931776/hCAD13421/were-little-and-were-such-brat-but-seem-really-mature-and-chill-now-so-wondering-if-wanted-hook-up" style="width:100%"><br>
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9689900288/hED27D99C/s-not-an-harassment-but-u-always-disrespect-all-time-by-blocking-makes-so-much-angry-about-1104" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689931264/h5BC57EF2/no-dude-could-have-had-my-way-with-back-then-and-didnt-feel-like-owe-this-after-tolerated-all-bull" style="width:100%"><br>
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9689900032/h5E9B9586/yes-is-harassment-blocked-on-all-accounts-so-far-do-not-think-is-problem-seen-s-not-disrespecting" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689929216/h36677647/woop-woop-thats-sound-da-police-woop-woop-thats-sound-da-beast-717-pm-jul-17-2022-twitter-web-app" style="width:100%"><br>
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9689899520/hBB5A4732/do-u-know-can-still-ruin-life-by-leaking-pic-but-yes-wont-leak-anything-because-am-good-guy-everyone" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689930240/hA8887310/shows-saint-compared-other-men-and-owe-there-is-no-bar-too-low-208-am-jul-18-2022-twitter-web-app" style="width:100%"><br>
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9689898752/h19E01167/these-dudes-have-about-themselves-and-they-interact-with-women-236-am-jul-20-2022-twitter-iphone" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689929472/hFABEB6DE/only-thing-she-owes-him-is-blast-this-exchange-everyone-he-knows-500-pm-jul-17-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9689897984/h3B4FF9F8/replying-aubryandrews-going-blackmail-because-good-person-610-pm-jul-19-2022-twitter-android" style="width:100%"><br>
 
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689929728/h446B8A84/jane-samuels-janesamuels-replying-aubryandrews-ohhh-s-one-cops-500-pm-jul-17-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9689898240/hF0F563C4/replying-aubryandrews-why-roll-our-eyes-at-just-block-him-532-pm-jul-19-2022-twitter-web-app" style="width:100%"><br>
 
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689929984/h502BC196/thought-could-have-raped-as-child-line-good-idea-put-into-writing-505-pm-jul-17-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9689898496/hF755F280/guytm-go-right-and-leak-them-so-can-go-jail-being-nice-guy-tm-632-pm-jul-19-2022-twitter-iphone" style="width:100%"><br>
 
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689930496/hCA72BBE7/if-he-babysat-her-she-obviously-knows-family-send-texts-his-mom-512-pm-jul-17-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9689899264/h6FF4AE89/has-he-looked-into-omegle-or-chatroulette-is-he-new-internet-258-am-jul-20-2022-twitter-android" style="width:100%"><br>
 
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689930752/h66567E53/life-made-feel-someone-owed-sex-find-such-odd-way-thinking-511-pm-jul-17-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9689899008/h08A830FD/lookup-cyberstalking-laws-and-be-informed-consequences-actions-427-pm-jul-19-2022-twitter-web-app" style="width:100%"><br>
 
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689931008/h1FDE5BE7/did-he-babysit-anyone-else-might-be-worth-sharing-this-with-them-707-pm-jul-17-2022-twitter-web-app" style="width:100%"><br>
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9689899776/h6BEDA61F/guy-he-had-constantly-complain-about-bad-good-guys-are-treated-558-pm-jul-19-2022-twitter-iphone" style="width:100%"><br>
 
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689932032/h15F6A853/person-incogmeato-thubtumper-replying-aubryandrews-541-pm-jul-17-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9689900544/h36058AFF/such-good-guy-almost-dead-certain-he-is-not-412-pm-jul-19-2022-new-hampshire-usa-twitter-android" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 

@@ -1,7 +1,131 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/25/2022-07:47:21
+Last updated: 07/25/2022-08:47:21
 <br>
-## <a href="#linky2" id="linky1">29 Funny Tweets From Twitter This Week.</a><br>
+## <a href="#linky2" id="linky1">Monday Morning Randomness - User Edition</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222227.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222230.gif" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222232.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222237.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222239.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222245.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222246.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222247.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222248.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87222249.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115921/87222908/87221327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115925/87222909/87221326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115932/87222910/87221328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115936/87222911/87221325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115943/87222912/87221329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115946/87222913/87221330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115955/87222914/87221331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/115958/87222915/87221333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120006/87222916/87221332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120009/87222917/87221340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120017/87222918/87221334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120020/87222919/87221341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120028/87222920/87221343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120031/87222921/87221344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120040/87222922/87221346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120043/87222923/87221348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120054/87222925/87221350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120102/87222926/87221351.png" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120105/87222927/87221359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120113/87222928/87221353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/24/120117/87222929/87221361.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">29 Funny Tweets From Twitter This Week.</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222504.jpg" style="width:100%"><br>
 
@@ -63,7 +187,7 @@ Last updated: 07/25/2022-07:47:21
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">25 Funny Memes That Are "Just So Wrong"</a><br>
+## <a href="#linky4" id="linky3">25 Funny Memes That Are "Just So Wrong"</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87220972.jpg" style="width:100%"><br>
 
@@ -117,7 +241,7 @@ Last updated: 07/25/2022-07:47:21
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">50 Everyday Items Worn Down By Time</a><br>
+## <a href="#linky5" id="linky4">50 Everyday Items Worn Down By Time</a><br>
 
 <span style="font-size:4em">1. Old dice vs new dice, can you imagine how many times those things have been rolled? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221104.jpg" style="width:100%"><br>
 
@@ -221,7 +345,7 @@ Last updated: 07/25/2022-07:47:21
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">30 Trippy Pics That Need an Explanation </a><br>
+## <a href="#linky6" id="linky5">30 Trippy Pics That Need an Explanation </a><br>
 
 <span style="font-size:4em">1. Guy Behind Wife Snuck His Rather Large Hand On Her Shoulder, While Kid Behind Me Cupped A Feel Around My Love Handles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87220862.jpg" style="width:100%"><br>
 
@@ -285,7 +409,7 @@ Last updated: 07/25/2022-07:47:21
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">35 Hilariously WTF Signs from Around the World</a><br>
+## <a href="#linky7" id="linky6">35 Hilariously WTF Signs from Around the World</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86948955.jpg" style="width:100%"><br>
 
@@ -357,7 +481,7 @@ Last updated: 07/25/2022-07:47:21
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">24 Times Life Defied All Logic </a><br>
+## <a href="#linky8" id="linky7">24 Times Life Defied All Logic </a><br>
 
 <span style="font-size:4em">1. One of our chickens just laid a jumbo egg with another egg inside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87218681.jpg" style="width:100%"><br>
 
