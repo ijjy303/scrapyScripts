@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/26/2022-07:47:21
+Last updated: 07/26/2022-08:47:21
 <br>
 ## <a href="#linky2" id="linky1">27 Clever People Doing Clever Things</a><br>
 
@@ -183,7 +183,21 @@ Last updated: 07/26/2022-07:47:21
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky4" id="linky3">Homeowner’s Association Gets Instant Karma after Saying Fence Is Too High</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030458/87223624/IMG_3547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030510/87223626/IMG_3548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030501/87223625/IMG_3549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030513/87223627/IMG_3550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030522/87223628/IMG_3551.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87223262.jpeg" style="width:100%"><br>
 
@@ -243,7 +257,7 @@ Last updated: 07/26/2022-07:47:21
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Mister Rogers Facts Proving He Was a National Treasure</a><br>
+## <a href="#linky6" id="linky5">Mister Rogers Facts Proving He Was a National Treasure</a><br>
 
 <span style="font-size:4em">1. Mr. Rogers Neighborhood theme song is played upon a unique instrument called the Celesta.
 
@@ -340,20 +354,6 @@ Last updated: 07/26/2022-07:47:21
 <span style="font-size:4em">24. Fundamentalist preachers asked Fred Rogers to denounce homosexuality. In response, Mr. Rogers would pat the target on the shoulder and say, “God loves you just as you are.”
 
 -u/adeebchowdhury</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222634.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Homeowner’s Association Gets Instant Karma after Saying Fence Is Too High</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030458/87223624/IMG_3547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030510/87223626/IMG_3548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030501/87223625/IMG_3549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030513/87223627/IMG_3550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/25/030522/87223628/IMG_3551.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
