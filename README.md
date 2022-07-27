@@ -1,61 +1,69 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/27/2022-06:47:22
+Last updated: 07/27/2022-07:47:22
 <br>
-## <a href="#linky2" id="linky1">27 People Who Don't Care If They're Wrong Or Right</a><br>
+## <a href="#linky2" id="linky1">31 Things That Escalated Quickly</a><br>
 
-<span style="font-size:4em">1. “My girlfriend wore these to her anatomy and physiology exam.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222637.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223728.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “This sign I saw yesterday”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222651.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A sun tan that Satan himself would approve of. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223724.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Tattooed socks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222662.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223727.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “A diner sign I saw the other day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222645.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Theres a fine line between bravery and outright stupidity. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223729.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “So yeah — I have these now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222649.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223730.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “My brother made a mini cardboard cut-out of my Top Gun cosplay. It arrived today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222640.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. If you were a Roomba, wouldnt you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223731.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My self-made Lightyear suit!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222641.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223732.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “If someone asks for tools for their birthday, it’s important to artfully wrap them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222642.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “I made a shower and it’s pretty legit.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222644.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. A great excuse for sketchy, Tesla-owning husbands everywhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223734.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I found a phone that is shaped like a ketchup bottle at a thrift store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222643.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223735.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “My mom paints rocks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222646.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “The pizza saver on my pizza makes the photo look like a video with a play button.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222647.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I’ve been reusing the same scallion scraps for 2 months by growing them in water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222648.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223726.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I bought a handful of tiny rubber dinosaurs and made me some tiny rubber T-rex earrings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222638.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. When youre both a really good boy and a really, really bad boy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I converted a bike bell into a tiny grill. Who wants baby bike ribs?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222639.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223725.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “The struggle is real.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222650.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Slightly used.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Crocheted tacos my mother made for the cancer center with a note: ’It’s okay to fall apart sometimes.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222652.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “This donut box looks like a giant VHS tape.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222653.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Based only on what Im seeing here, you better keep her happy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Change, anyone?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222654.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “I asked the local coffee shop to not put ketchup on my bagel or I’d cry. They complied.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222655.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “This origami dragon I folded”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222656.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “A picnic table for squirrels — it has a screw to put corn on it for them to eat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222657.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Are trains supposed to have turbulence?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “My dentist has jokes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222658.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. The bathroom sign at the Honolulu airport is wearing a Hawaiian shirt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222659.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Theres a story here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. This comic cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222660.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. “Some pencils I tried carving”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222661.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Just a stones throw from the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. “A car wash designed to look like a washing machine”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222663.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. When God specifically hates you in particular. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Well, its not the Sharpies fault.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223754.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -117,29 +125,7 @@ Last updated: 07/27/2022-06:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Employee Treats Company Lies as Truth, Calls the News to Report Them</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224433/text-1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224434/text-2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122359/87224430/text-3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122411/87224431/text-4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122423/87224432/text-5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122434/87224435/text-6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122440/87224436/text-7.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">20 Memes and Memorials Honoring the Late Choco Taco</a><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">55 Funny, Cool, and Interesting Randoms that Demand Your Attention</a><br>
+## <a href="#linky4" id="linky3">55 Funny, Cool, and Interesting Randoms that Demand Your Attention</a><br>
 
 <span style="font-size:4em">1. I have the same exact reaction any time I see something that is edible.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/115324/87224427/87224282.jpg" style="width:100%"><br>
 
@@ -253,7 +239,127 @@ Last updated: 07/27/2022-06:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">33 Fascinating Photos to Feast Your Eyes On</a><br>
+## <a href="#linky5" id="linky4">20 WTF Pics Doused in Disappointment</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011407/87224478/cup.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011409/87224479/cow.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011418/87224480/fundie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011420/87224481/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011429/87224482/hands.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011431/87224483/jean.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011521/87224496/thumbs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011437/87224484/flies.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011440/87224485/kleen.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011443/87224486/nips.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011448/87224487/poke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011451/87224488/pooh.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011459/87224490/shoe.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011502/87224491/slide.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011505/87224492/smile.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011510/87224493/stairs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011454/87224489/poop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011513/87224494/taco.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011517/87224495/tat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011525/87224497/wet.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">27 People Who Don't Care If They're Wrong Or Right</a><br>
+
+<span style="font-size:4em">1. “My girlfriend wore these to her anatomy and physiology exam.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “This sign I saw yesterday”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Tattooed socks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “A diner sign I saw the other day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “So yeah — I have these now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My brother made a mini cardboard cut-out of my Top Gun cosplay. It arrived today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My self-made Lightyear suit!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “If someone asks for tools for their birthday, it’s important to artfully wrap them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I made a shower and it’s pretty legit.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I found a phone that is shaped like a ketchup bottle at a thrift store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My mom paints rocks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “The pizza saver on my pizza makes the photo look like a video with a play button.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I’ve been reusing the same scallion scraps for 2 months by growing them in water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I bought a handful of tiny rubber dinosaurs and made me some tiny rubber T-rex earrings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I converted a bike bell into a tiny grill. Who wants baby bike ribs?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “The struggle is real.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Crocheted tacos my mother made for the cancer center with a note: ’It’s okay to fall apart sometimes.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “This donut box looks like a giant VHS tape.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Change, anyone?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “I asked the local coffee shop to not put ketchup on my bagel or I’d cry. They complied.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “This origami dragon I folded”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A picnic table for squirrels — it has a screw to put corn on it for them to eat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “My dentist has jokes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The bathroom sign at the Honolulu airport is wearing a Hawaiian shirt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. This comic cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Some pencils I tried carving”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “A car wash designed to look like a washing machine”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222663.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">Employee Treats Company Lies as Truth, Calls the News to Report Them</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224433/text-1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224434/text-2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122359/87224430/text-3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122411/87224431/text-4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122423/87224432/text-5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122434/87224435/text-6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122440/87224436/text-7.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">33 Fascinating Photos to Feast Your Eyes On</a><br>
 
 <span style="font-size:4em">1. “This really old fanta can I found between some rocks while hiking.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223633.jpg" style="width:100%"><br>
 
@@ -323,47 +429,7 @@ Last updated: 07/27/2022-06:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">20 WTF Pics Doused in Disappointment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011407/87224478/cup.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011409/87224479/cow.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011418/87224480/fundie.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011420/87224481/hair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011429/87224482/hands.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011431/87224483/jean.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011521/87224496/thumbs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011437/87224484/flies.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011440/87224485/kleen.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011443/87224486/nips.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011448/87224487/poke.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011451/87224488/pooh.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011459/87224490/shoe.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011502/87224491/slide.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011505/87224492/smile.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011510/87224493/stairs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011454/87224489/poop.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011513/87224494/taco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011517/87224495/tat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011525/87224497/wet.jpg" style="width:100%"><br>
+## <a href="#linky9" id="linky8">20 Memes and Memorials Honoring the Late Choco Taco</a><br>
 
 <a href="#linky1">GO TO TOP</a>
 
