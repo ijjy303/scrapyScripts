@@ -1,115 +1,37 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/27/2022-13:47:22
+Last updated: 07/27/2022-14:47:23
 <br>
-## <a href="#linky2" id="linky1">30 Historical Photos to Give You Chills</a><br>
+## <a href="#linky2" id="linky1">13 Times Entitled Jerks Were Taxed for Their Rudeness</a><br>
 
-<span style="font-size:4em">1. Terry Fox, A 21 Year Old Canadian Who Lost A Leg To Cancer, Began A Cross-Canada Run To Raise Money For Cancer Research. He Ran The Equivalent Of A Full Marathon A Day. He Made It 143 Days And 5,373 Km Before The Spread Of His Cancer Forced Him To Quit. He Died June 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225371.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030625/87225631/32.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Albert Einstein Teaching At Lincoln, The United State’s First Historical Black University, 1946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225372.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030629/87225632/4pp.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Sophia Loren, 1960</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225398.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030636/87225633/9p0.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Camberley Kate, A.k.a. Kate Ward, And Her Stray Dogs In England In 1962. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225373.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030640/87225634/33grt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sister Mary Kenneth Keller, The First Woman To Earn A Doctorate In Computer Science In The United States, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225374.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030649/87225635/55f.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Girls In The Windows Taken By Ormond Gigli In 1960 In NYC. The Building Was Knocked Down The Next Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225375.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030702/87225637/332sd.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A Baby Lamb Snuggles Up To A Sleeping Boy, March 16, 1940</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225376.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030713/87225638/323243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. London Punks And A Surprised Grandmother, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225377.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030730/87225640/as.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Dr. Religa Monitors His Patient’s Vitals After 23-Hour-Long (Successful) Heart Transplant. His Assistant Is Sleeping In The Corner, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225378.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030740/87225641/ds.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Betty White Dressed In Vintage 1940s Clothing To Celebrate The 75th Tournament Of Roses, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225379.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030751/87225642/ssd.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Wedding Rings Removed From Holocaust Victims Before They Were Executed, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225380.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030803/87225643/fds4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. 4000-Year-Old Writing Board By An Egyptian Student With Teachers Spelling Corrections In Red</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225381.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030921/87225644/332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The Beatles On What Kind Of Girl Do They Prefer, 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. 1,500-Year-Old Ceramic Maya Figurine With Removable Helmet, From El Perú-Waka, Petén, Guatemala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Monty Python Crew, 1976</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. This 1955 Photo Is One Of Walter Chandoha’s Most Famous Shots. “My Daughter Paula And The Kitten Both ‘Smiled’ For The Camera At The Same Time. …but The Cat’s Not Smiling, He’s Meowing”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Buzz Aldrin, First Self-Portrait In Space. 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Queen Isabel II, Veiled, 1855 C By Camillo Torreggiani. Masterful Use Of Light And Shadows To Make It Look Like Real Lace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Mom Uses A Trash Can To Contain Her Baby While She Crochets In The Park, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. People In Times Square, New York City Celebrate The Surrender Of Germany, May 7th, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. One Of The Most Beautiful Trains Ever Made, The ‘Mercury’ Streamliner, Designed In Art Deco-Style By Henry Dreyfuss For The New York Central Railroad. Heres One Captured In Chicago In 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Blackfoot Chief Two Guns White Calf, Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. A California Teacher Teaching The Physics Of Surfing, 1970</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Electric Cars Charging, 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Wedding Portrait Of A Married Khalkha Mongolian Couple, 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Hattie Tom, A Young Chiricahua Apache, 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Children In Minobashi Raincoats Going To A New Years Event, Niigata Prefecture, Japan, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. 7000-Year-Old Neolithic Figurines From Romania, Called The Thinker And The Sitting Woman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Portrait Of A Filipina/Chinese Woman From The Philippines, 1875 Photo By Francisco Van Camp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A 4,500-Year-Old Egyptian Bead Dre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225400.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/031026/87225646/32323232.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 WTF Pics Doused in Disappointment</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011407/87224478/cup.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011409/87224479/cow.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011418/87224480/fundie.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011420/87224481/hair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011429/87224482/hands.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011431/87224483/jean.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011521/87224496/thumbs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011437/87224484/flies.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011440/87224485/kleen.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011443/87224486/nips.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011448/87224487/poke.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011451/87224488/pooh.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011459/87224490/shoe.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011502/87224491/slide.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011505/87224492/smile.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011510/87224493/stairs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011454/87224489/poop.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011513/87224494/taco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011517/87224495/tat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011525/87224497/wet.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">55 Funny, Cool, and Interesting Randoms that Demand Your Attention</a><br>
+## <a href="#linky3" id="linky2">55 Funny, Cool, and Interesting Randoms that Demand Your Attention</a><br>
 
 <span style="font-size:4em">1. I have the same exact reaction any time I see something that is edible.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/115324/87224427/87224282.jpg" style="width:100%"><br>
 
@@ -223,7 +145,7 @@ Last updated: 07/27/2022-13:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">30 Charts Filled With Random Knowledge</a><br>
+## <a href="#linky4" id="linky3">30 Charts Filled With Random Knowledge</a><br>
 
 <span style="font-size:4em">1. Different Electrical Outlets Per Countries</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224141.jpg" style="width:100%"><br>
 
@@ -287,7 +209,7 @@ Last updated: 07/27/2022-13:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">31 Reminders That Kids Can Be Really Dumb Sometimes</a><br>
+## <a href="#linky5" id="linky4">31 Reminders That Kids Can Be Really Dumb Sometimes</a><br>
 
 <span style="font-size:4em">1. Grandpa didnt expect this!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035859/87224652/children9.jpg" style="width:100%"><br>
 
@@ -353,91 +275,71 @@ Last updated: 07/27/2022-13:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Employee Treats Company Lies as Truth, Calls the News to Report Them</a><br>
+## <a href="#linky6" id="linky5">30 Historical Photos to Give You Chills</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224433/text-1.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Terry Fox, A 21 Year Old Canadian Who Lost A Leg To Cancer, Began A Cross-Canada Run To Raise Money For Cancer Research. He Ran The Equivalent Of A Full Marathon A Day. He Made It 143 Days And 5,373 Km Before The Spread Of His Cancer Forced Him To Quit. He Died June 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224434/text-2.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Albert Einstein Teaching At Lincoln, The United State’s First Historical Black University, 1946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225372.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122359/87224430/text-3.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Sophia Loren, 1960</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122411/87224431/text-4.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Camberley Kate, A.k.a. Kate Ward, And Her Stray Dogs In England In 1962. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122423/87224432/text-5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sister Mary Kenneth Keller, The First Woman To Earn A Doctorate In Computer Science In The United States, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122434/87224435/text-6.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Girls In The Windows Taken By Ormond Gigli In 1960 In NYC. The Building Was Knocked Down The Next Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225375.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122440/87224436/text-7.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A Baby Lamb Snuggles Up To A Sleeping Boy, March 16, 1940</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225376.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">8. London Punks And A Surprised Grandmother, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225377.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">31 People Who Experienced Something Unexpected</a><br>
+<span style="font-size:4em">9. Dr. Religa Monitors His Patient’s Vitals After 23-Hour-Long (Successful) Heart Transplant. His Assistant Is Sleeping In The Corner, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Took a picture of a green heron this weekend. Thought he looked meme-worthy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222770.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Betty White Dressed In Vintage 1940s Clothing To Celebrate The 75th Tournament Of Roses, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225379.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “I was looking at makeup with my friends and couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222787.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. Wedding Rings Removed From Holocaust Victims Before They Were Executed, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225380.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “The snowman came out a little differently than expected.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222771.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. 4000-Year-Old Writing Board By An Egyptian Student With Teachers Spelling Corrections In Red</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225381.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Pixelated dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222794.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. The Beatles On What Kind Of Girl Do They Prefer, 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “This sign by my building.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222796.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. 1,500-Year-Old Ceramic Maya Figurine With Removable Helmet, From El Perú-Waka, Petén, Guatemala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225383.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “So I hung up my gloves to dry and ended up scaring the daylights out of my roommate.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222776.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Monty Python Crew, 1976</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225384.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “I ordered wrapping paper online but there was a mistake, and now I have a massive poster of my face. I’m not even mad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222773.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. This 1955 Photo Is One Of Walter Chandoha’s Most Famous Shots. “My Daughter Paula And The Kitten Both ‘Smiled’ For The Camera At The Same Time. …but The Cat’s Not Smiling, He’s Meowing”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225385.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Not what I was expecting when I removed ’red eye.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222777.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Buzz Aldrin, First Self-Portrait In Space. 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My husband is accidentally a watermelon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222778.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Queen Isabel II, Veiled, 1855 C By Camillo Torreggiani. Masterful Use Of Light And Shadows To Make It Look Like Real Lace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Tried to take a cute pic of my kitty but forgot that the flash was on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222775.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Mom Uses A Trash Can To Contain Her Baby While She Crochets In The Park, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225388.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Felt needling did not go the way I thought it would.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222779.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. People In Times Square, New York City Celebrate The Surrender Of Germany, May 7th, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Accidentally locked my cat in the shed. Figured it out hours later. He was not pleased.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222781.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. One Of The Most Beautiful Trains Ever Made, The ‘Mercury’ Streamliner, Designed In Art Deco-Style By Henry Dreyfuss For The New York Central Railroad. Heres One Captured In Chicago In 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225390.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Burnt a hole on my hard hat, so I decided to put it to good use.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222782.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Blackfoot Chief Two Guns White Calf, Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “My wife accidentally used my beard-trimmings towel to dry her face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222780.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. A California Teacher Teaching The Physics Of Surfing, 1970</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Attempted the hedgehog cake and ended up with nightmare fuel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222783.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Electric Cars Charging, 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. . “My wife and I bought a car and we accidentally took a panorama photo. Guess I’m an alien.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222784.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. The Wedding Portrait Of A Married Khalkha Mongolian Couple, 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Sooo my face swap did not go as expected...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222785.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Hattie Tom, A Young Chiricahua Apache, 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Bought XL-sized tank tops from Walmart so they wouldn’t be skin tight. This is not what I expected.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222772.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Children In Minobashi Raincoats Going To A New Years Event, Niigata Prefecture, Japan, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “I was determined not to lose my earrings last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222786.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. 7000-Year-Old Neolithic Figurines From Romania, Called The Thinker And The Sitting Woman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “My dad and I at Disney World.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222788.png" style="width:100%"><br>
+<span style="font-size:4em">29. Portrait Of A Filipina/Chinese Woman From The Philippines, 1875 Photo By Francisco Van Camp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Wherever he’s going, I’m coming with him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222789.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Girlfriend’s brother snapped my new favorite picture of me last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222790.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Too tired to sit properly I guess...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222791.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “My coffee went from concerned to terrified after my first sip this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “My wife has always said I look miserable on rollercoasters. After a recent visit to Orlando, turns out she’s right.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222793.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Wife sent me a lovely text while she was in the shower.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “I accidentally boiled a cracked egg.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “My son knew a Penny Farthing bike was called so because of the old coins. This is him confused. ’Mum I didn’t know the old money was so big.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222797.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “My cat farts, and then gives me this look.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222798.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “My daughter bought a new sleeping cushion for her dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222799.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “I hope they get more soon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222800.jpeg" style="width:100%"><br>
+<span style="font-size:4em">30. A 4,500-Year-Old Egyptian Bead Dre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225400.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">31 Things That Escalated Quickly</a><br>
+## <a href="#linky7" id="linky6">31 Things That Escalated Quickly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87223728.jpg" style="width:100%"><br>
 
@@ -503,7 +405,95 @@ Last updated: 07/27/2022-13:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">27 People Who Don't Care If They're Wrong Or Right</a><br>
+## <a href="#linky8" id="linky7">20 Memes and Memorials Honoring the Late Choco Taco</a><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">31 People Who Experienced Something Unexpected</a><br>
+
+<span style="font-size:4em">1. “Took a picture of a green heron this weekend. Thought he looked meme-worthy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I was looking at makeup with my friends and couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222787.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “The snowman came out a little differently than expected.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Pixelated dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222794.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “This sign by my building.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222796.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “So I hung up my gloves to dry and ended up scaring the daylights out of my roommate.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “I ordered wrapping paper online but there was a mistake, and now I have a massive poster of my face. I’m not even mad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Not what I was expecting when I removed ’red eye.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My husband is accidentally a watermelon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222778.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Tried to take a cute pic of my kitty but forgot that the flash was on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Felt needling did not go the way I thought it would.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Accidentally locked my cat in the shed. Figured it out hours later. He was not pleased.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Burnt a hole on my hard hat, so I decided to put it to good use.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My wife accidentally used my beard-trimmings towel to dry her face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Attempted the hedgehog cake and ended up with nightmare fuel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. . “My wife and I bought a car and we accidentally took a panorama photo. Guess I’m an alien.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Sooo my face swap did not go as expected...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Bought XL-sized tank tops from Walmart so they wouldn’t be skin tight. This is not what I expected.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “I was determined not to lose my earrings last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222786.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “My dad and I at Disney World.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222788.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Wherever he’s going, I’m coming with him.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222789.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Girlfriend’s brother snapped my new favorite picture of me last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222790.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Too tired to sit properly I guess...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222791.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “My coffee went from concerned to terrified after my first sip this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “My wife has always said I look miserable on rollercoasters. After a recent visit to Orlando, turns out she’s right.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222793.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Wife sent me a lovely text while she was in the shower.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “I accidentally boiled a cracked egg.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “My son knew a Penny Farthing bike was called so because of the old coins. This is him confused. ’Mum I didn’t know the old money was so big.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222797.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “My cat farts, and then gives me this look.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222798.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “My daughter bought a new sleeping cushion for her dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222799.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “I hope they get more soon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222800.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">Employee Treats Company Lies as Truth, Calls the News to Report Them</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224433/text-1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122429/87224434/text-2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122359/87224430/text-3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122411/87224431/text-4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122423/87224432/text-5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122434/87224435/text-6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/122440/87224436/text-7.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">27 People Who Don't Care If They're Wrong Or Right</a><br>
 
 <span style="font-size:4em">1. “My girlfriend wore these to her anatomy and physiology exam.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222637.jpg" style="width:100%"><br>
 
@@ -561,41 +551,47 @@ Last updated: 07/27/2022-13:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">20 Memes and Memorials Honoring the Late Choco Taco</a><br>
+## <a href="#linky12" id="linky11">20 WTF Pics Doused in Disappointment</a><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011407/87224478/cup.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Gwen Stefani Facts as Wild as the Artist Herself</a><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011409/87224479/cow.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Gwen Stefani’s older brother, Eric, was the brainchild behind No Doubt and also worked as an animator on Rugrats and The Simpsons. - u/itsgoodsalad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224935.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011418/87224480/fundie.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The band No Doubt was actually formed in 1986 by Gwen Stefani’s brother in their parent’s garage. There were 9 members in the first lineup, but by the time they had their breakthrough album, Tragic Kingdom, Gwen was the only original one left. - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224936.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011420/87224481/hair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Unprovoked, Courtney Love picked on Gwen Stefani saying Being famous is just like being in high school. But Im not interested in being the cheerleader. Im not interested in being Gwen Stefani. After that quote Gwen recorded her first solo album with the cheerleader anthem Hollaback Girl. - u/shaka_sulu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224937.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011429/87224482/hands.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Gwen Stefani discovered her husband, Gavin Rossdale, was having an affair with their nanny after explicit photos and messages popped up on the family iPad. It was signed into his iCloud account. - u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224938.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011431/87224483/jean.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Linda Perry, the lead singer of 4 Non Blondes, went on to be a successful songwriter that wrote several hits for artists including Christina Agulara, Gwen Stefani, and P!nk. She was inducted into the Songwriters Hall of Fame in 2015.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224939.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011521/87224496/thumbs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. No Doubts Dont Speak was originally written as a happy love song with lyrics like Were always together/We will be forever/such a special treasure; after breaking up with the bands bassist, Gwen Stefani re-wrote it to reflect her emotional anguish - u/holyfruits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224940.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011437/87224484/flies.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. there was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224941.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011440/87224485/kleen.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Gwen Stefanis brother Eric was originally the keyboardist for No Doubt but left to become an animator for The Simpsons. - u/haddock420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224942.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011443/87224486/nips.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Hollaback Girl by Gwen Stefani was the first song to be downloaded digitally 1,000,000 times. - u/1uu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224943.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011448/87224487/poke.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Dr. Dre produced the song  Rich Girl by Gwen Stefani - u/TitoMcGlocklin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224944.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011451/87224488/pooh.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Gwen Stefani fought with dyslexia as a child. - u/daddaman1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224945.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011459/87224490/shoe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Gwen Stefani (No Doubt) sounds a lot like Matt Bellamy (Muse) when the pitch of her voice is lowered - u/doctorquien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224946.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011502/87224491/slide.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Gwen Stefanis Grammy-nominated single, Rich Girl, was a remake of a 1993 song by Louchie Lou & Michie One, which in turn was an adaptation of the song If I Were a Rich Man from the Broadway musical Fiddler on the Roof. - u/eindickeSchlampe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224947.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011505/87224492/smile.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. in the Homerpalooza episode of The Simpsons, No Doubt briefly appears as background characters. Gwen Stefanis brother, Eric, animated them in - u/CoolHeadedLogician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224948.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011510/87224493/stairs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Matt Smith (Doctor Who) has dated Gwen Stefanis step-daughter. - u/IAMAnerdAMA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224949.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011454/87224489/poop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011513/87224494/taco.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011517/87224495/tat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/011525/87224497/wet.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
