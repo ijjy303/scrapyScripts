@@ -1,135 +1,125 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/28/2022-11:47:22
+Last updated: 07/28/2022-12:47:24
 <br>
-## <a href="#linky2" id="linky1">30 Charts Filled With Random Knowledge</a><br>
+## <a href="#linky2" id="linky1">25 Photos That Should Be Album Covers</a><br>
 
-<span style="font-size:4em">1. Different Electrical Outlets Per Countries</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224141.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105856/87226198/baz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. How to pack your backpack efficiently. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224140.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105904/87226199/bear.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224142.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105907/87226201/bird.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Most Popular Tourist Scams To Avoid When Traveling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224143.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105916/87226202/bus.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. AKA Europes (mostly) cool with ding-dong-ditching. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224144.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105921/87226203/cra.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A handy checklist so you dont have to facepalm halfway to the airport. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224145.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105928/87226204/deer.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224146.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110045/87226213/red.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Backpacking Tip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224147.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105947/87226206/fire.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Never presume. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224148.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110001/87226207/fugg.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224149.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110025/87226209/knobs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Essential Travel Guide To Rome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224150.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110027/87226210/lava.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224151.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110040/87226212/plane.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A quick guide on where the tap waters mostly okay. Just make sure you trust the local pipes too. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224152.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110053/87226214/richard.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224153.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110057/87226215/ship.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224154.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110104/87226216/sink.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224155.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110109/87226217/skull.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224156.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110117/87226218/sky.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Canadian Travel Advisory Country Safety Ratings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224157.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110142/87226219/smoke.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224158.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110158/87226222/swim.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224159.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110146/87226220/space.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. A hyper-specific guide to enjoying Paris. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224160.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110156/87226221/star.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. A solid checklist to keep in mind. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224161.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110207/87226223/trophy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224162.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110209/87226224/willem.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Regions Considered Safe To Travel To By The French Ministry Of Foreign Affairs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224163.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110421/87226226/cat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Which Side Of The Road Should You Drive On In Each Country?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. The cheat-sheet to a better flying experience. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The Eurovelo Is A Net Of Cycleways With More Than 70000 Kilometres Of Extension Which Crosses The Whole European Continent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A guide to staying green on the road for eco-minded travelers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224169.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110434/87226227/fish.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky3" id="linky2">30 Historical Photos to Give You Chills</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225156.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Terry Fox, A 21 Year Old Canadian Who Lost A Leg To Cancer, Began A Cross-Canada Run To Raise Money For Cancer Research. He Ran The Equivalent Of A Full Marathon A Day. He Made It 143 Days And 5,373 Km Before The Spread Of His Cancer Forced Him To Quit. He Died June 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225157.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Albert Einstein Teaching At Lincoln, The United State’s First Historical Black University, 1946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225372.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225158.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Sophia Loren, 1960</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225160.png" style="width:100%"><br>
+<span style="font-size:4em">4. Camberley Kate, A.k.a. Kate Ward, And Her Stray Dogs In England In 1962. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225161.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sister Mary Kenneth Keller, The First Woman To Earn A Doctorate In Computer Science In The United States, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225162.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Girls In The Windows Taken By Ormond Gigli In 1960 In NYC. The Building Was Knocked Down The Next Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225375.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225163.png" style="width:100%"><br>
+<span style="font-size:4em">7. A Baby Lamb Snuggles Up To A Sleeping Boy, March 16, 1940</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225376.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225164.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. London Punks And A Surprised Grandmother, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225377.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225165.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Dr. Religa Monitors His Patient’s Vitals After 23-Hour-Long (Successful) Heart Transplant. His Assistant Is Sleeping In The Corner, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225166.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Betty White Dressed In Vintage 1940s Clothing To Celebrate The 75th Tournament Of Roses, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225379.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225167.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Wedding Rings Removed From Holocaust Victims Before They Were Executed, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225380.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225168.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. 4000-Year-Old Writing Board By An Egyptian Student With Teachers Spelling Corrections In Red</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225381.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225169.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The Beatles On What Kind Of Girl Do They Prefer, 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225171.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. 1,500-Year-Old Ceramic Maya Figurine With Removable Helmet, From El Perú-Waka, Petén, Guatemala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225383.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225172.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Monty Python Crew, 1976</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225384.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225173.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. This 1955 Photo Is One Of Walter Chandoha’s Most Famous Shots. “My Daughter Paula And The Kitten Both ‘Smiled’ For The Camera At The Same Time. …but The Cat’s Not Smiling, He’s Meowing”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225385.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225174.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Buzz Aldrin, First Self-Portrait In Space. 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225175.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Queen Isabel II, Veiled, 1855 C By Camillo Torreggiani. Masterful Use Of Light And Shadows To Make It Look Like Real Lace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225176.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Mom Uses A Trash Can To Contain Her Baby While She Crochets In The Park, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225388.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225177.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. People In Times Square, New York City Celebrate The Surrender Of Germany, May 7th, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. One Of The Most Beautiful Trains Ever Made, The ‘Mercury’ Streamliner, Designed In Art Deco-Style By Henry Dreyfuss For The New York Central Railroad. Heres One Captured In Chicago In 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Blackfoot Chief Two Guns White Calf, Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. A California Teacher Teaching The Physics Of Surfing, 1970</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Electric Cars Charging, 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The Wedding Portrait Of A Married Khalkha Mongolian Couple, 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Hattie Tom, A Young Chiricahua Apache, 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Children In Minobashi Raincoats Going To A New Years Event, Niigata Prefecture, Japan, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. 7000-Year-Old Neolithic Figurines From Romania, Called The Thinker And The Sitting Woman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Portrait Of A Filipina/Chinese Woman From The Philippines, 1875 Photo By Francisco Van Camp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. A 4,500-Year-Old Egyptian Bead Dre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225400.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226138.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226139.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226140.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226141.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226142.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226143.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226144.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226145.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">19 People Who Used the Dark Web Reveal What They Saw</a><br>
+## <a href="#linky4" id="linky3">19 People Who Used the Dark Web Reveal What They Saw</a><br>
 
 <span style="font-size:4em">1. To bypass the censors in a country I was visiting, then I realized VPN is faster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224735.jpg" style="width:100%"><br>
 
@@ -171,61 +161,7 @@ Last updated: 07/28/2022-11:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Red Flags To Know Before Accepting A Job</a><br>
-
-<span style="font-size:4em">1. Having to take an online IQ test before even being considered for an interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. They try to sell you their service during your interview. It was really really bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The CEO/boss/whatever drives a conspicuously expensive car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. If its a private/family company, do a Google search for [company name] defendant and [company name] plaintiff. If the company has been sued, or is in the habit of suing others, that can be a red flag - although sometimes there are legit reasons for either. But its something worth paying attention to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If the company brings alcohol into the office for end of week sessions on a regular basis. I know they can be fun but its a stupendously bad idea for all kinds of reasons and if leadership hasnt figured that out then Id think twice before joining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Open interviews. It tells me that people leave faster than you can bring them in, and with good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. If when youre visiting the company for the first time and you pass someone in a hallway, do they smile and acknowledge your presence with a nod or maybe a hello, or do they ignore you? Its a small thing but very telling about the workplace culture. Similarly, do people seem healthy and energized or grey-faced and tired?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. To me it was a, we will start you low and will give you a ton of money later. They never do. Never happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. If the job description has a nondescriptively massive salary range ($25,000-$100,000).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Interviewed with a regional vp of a billion dollar company for a sales role. When I asked if the position was a backfill or open due to growth, he stated a backfill. I asked if the person was promoted or moved to a new role, and his response was, “we have had more people quit in 2021 than ever, and it’s because they can’t handle the pressure.” Needless to say, I declined the next step in the hiring process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I know people (rightfully) like to hate on HR, but if a company brags about not having an HR department to deal with, expect them to be very disorganized at a minimum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Anything that the manager says in the interview that doesn’t line up with the job description.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When you don’t get a review until you ask for a raise. Then, all of a sudden, you work is being questioned and you’re being berated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Trying to rush a decision out of you once the offer is made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I always ask the question, why is this role open? Is it a new role, or am I replacing someone? Why did that person leave? This really helps you seeing their reaction and if they look nervous its because the person who left did it because they were not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The “sink or swim” technique. It was my first day as a cashier. I got a couple of hours of training, then I was by myself and we were dead. All of a sudden this rush came in and I was asking for help. The manager goes “sink or swim, we’re busy back here, figure it out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. If when you are asked to come in for an interview, you are not treated with total respect for your time. For example, if you find yourself waiting for extended periods for an interview because so and so is in a really important meeting. Similarly, if you are not offered at least water and/or coffee if youre in for several interviews. I once interviewed at a place for seven straight hours with no break, no food, not even a glass of water. Fortunately I wasnt offered the job as it was at Michael Milkens firm... before he went to prison.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Are you here just for the money?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A couple old senior partners, lots of young employees and nothing in between. That means there’s no opportunity to move up, they can’t get people to stay, and can’t get lateral transfers. They work young folks for as long as they can, and the young folks leave once they figure out the company sucks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When an employee quits or gets fired from the job and the company doesnt hire anyone new to replace them. It can be hard to tell as a red flag at first, but the temporary workload they added to your own, on top of what was left after the person quit, slowly becomes your new permanent workload, without any changes to your pay or benefits to compensate for the additional tasks. The further out it goes without the position being filled, the larger and more obvious the red flag becomes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Everybody is very young in a very old company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Competitive pay, but they wont tell you what the pay actually is in the posting or even the interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Asking if I planned to have children in the interview. (I was 19.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Asking if you are somebody whos willing to put in the time to make sure deadlines are met/work is done, or if youre the type of person who leaves when the workday is finished?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I interviewed once at a very huge organization that had a site in the town I was living in, and these guys were so proud of the new top of the line facilities. When they took me on a tour they pointed out the lovely zen garden area that was made for employees to go “unwind and clear their heads”. The problem with it was this area was positioned directly across from all the higher ups offices. Yeah… no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225029.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">30 Hot Tweets Roasted to Perfection </a><br>
+## <a href="#linky5" id="linky4">30 Hot Tweets Roasted to Perfection </a><br>
 
 <span style="font-size:4em">1. Friends dont let their friends get bad tattoos. You better warn this man of the error of his ways. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225241.jpg" style="width:100%"><br>
 
@@ -291,158 +227,275 @@ Last updated: 07/28/2022-11:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">22 Rare Things That Happened to People</a><br>
+## <a href="#linky6" id="linky5">25 Red Flags To Know Before Accepting A Job</a><br>
 
-<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Having to take an online IQ test before even being considered for an interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. They try to sell you their service during your interview. It was really really bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The CEO/boss/whatever drives a conspicuously expensive car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. If its a private/family company, do a Google search for [company name] defendant and [company name] plaintiff. If the company has been sued, or is in the habit of suing others, that can be a red flag - although sometimes there are legit reasons for either. But its something worth paying attention to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. If the company brings alcohol into the office for end of week sessions on a regular basis. I know they can be fun but its a stupendously bad idea for all kinds of reasons and if leadership hasnt figured that out then Id think twice before joining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Open interviews. It tells me that people leave faster than you can bring them in, and with good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If when youre visiting the company for the first time and you pass someone in a hallway, do they smile and acknowledge your presence with a nod or maybe a hello, or do they ignore you? Its a small thing but very telling about the workplace culture. Similarly, do people seem healthy and energized or grey-faced and tired?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. To me it was a, we will start you low and will give you a ton of money later. They never do. Never happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. If the job description has a nondescriptively massive salary range ($25,000-$100,000).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Interviewed with a regional vp of a billion dollar company for a sales role. When I asked if the position was a backfill or open due to growth, he stated a backfill. I asked if the person was promoted or moved to a new role, and his response was, “we have had more people quit in 2021 than ever, and it’s because they can’t handle the pressure.” Needless to say, I declined the next step in the hiring process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I know people (rightfully) like to hate on HR, but if a company brags about not having an HR department to deal with, expect them to be very disorganized at a minimum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Anything that the manager says in the interview that doesn’t line up with the job description.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. When you don’t get a review until you ask for a raise. Then, all of a sudden, you work is being questioned and you’re being berated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Trying to rush a decision out of you once the offer is made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I always ask the question, why is this role open? Is it a new role, or am I replacing someone? Why did that person leave? This really helps you seeing their reaction and if they look nervous its because the person who left did it because they were not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225021.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The “sink or swim” technique. It was my first day as a cashier. I got a couple of hours of training, then I was by myself and we were dead. All of a sudden this rush came in and I was asking for help. The manager goes “sink or swim, we’re busy back here, figure it out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. If when you are asked to come in for an interview, you are not treated with total respect for your time. For example, if you find yourself waiting for extended periods for an interview because so and so is in a really important meeting. Similarly, if you are not offered at least water and/or coffee if youre in for several interviews. I once interviewed at a place for seven straight hours with no break, no food, not even a glass of water. Fortunately I wasnt offered the job as it was at Michael Milkens firm... before he went to prison.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Are you here just for the money?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A couple old senior partners, lots of young employees and nothing in between. That means there’s no opportunity to move up, they can’t get people to stay, and can’t get lateral transfers. They work young folks for as long as they can, and the young folks leave once they figure out the company sucks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. When an employee quits or gets fired from the job and the company doesnt hire anyone new to replace them. It can be hard to tell as a red flag at first, but the temporary workload they added to your own, on top of what was left after the person quit, slowly becomes your new permanent workload, without any changes to your pay or benefits to compensate for the additional tasks. The further out it goes without the position being filled, the larger and more obvious the red flag becomes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Everybody is very young in a very old company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Competitive pay, but they wont tell you what the pay actually is in the posting or even the interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225026.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">23. Asking if I planned to have children in the interview. (I was 19.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225027.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">20 Cringe-Worthy Reality TV Facts</a><br>
+<span style="font-size:4em">24. Asking if you are somebody whos willing to put in the time to make sure deadlines are met/work is done, or if youre the type of person who leaves when the workday is finished?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jenna Jameson hosted a reality TV show where five contestants competed in a series of sexual performances for a panel of judges - u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Robert Kardashian (father of the reality TV family and defense attorney of O.J. Simpson) pioneered the idea of playing music between movies in theaters, parlaying the concept into a business called Movie Tunes. - u/pickycheestickeater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. the concept of putting strangers together in a limited environment for an extended period of time and recording the drama that ensued (ie. Reality TV) was originated by the Dutch series Nummer 28 in 1991. A year later, The Real World on MTV came out. - u/PatsBruinsCeltsSox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. After surviving a year-long experiment on an isolated island for a British reality TV show, ten contestants learned that the show had been canceled 4 months into production. - u/NYCityNYState10108</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. in 1973 before reality TV, an anthropologist sailed across the Atlantic with 11 attractive people of different races/sex/nationalities. Known as the sex raft hed purposely done this to stoke sexual relations, create tension, and purposely sought danger to see if humans would act like monkeys. - u/-doughboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. there was a dating/reality TV show with 12 American women and a Prince Harry impersonator. - u/throwaway_06-20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. American reality TV stars Heidi Montag and Spencer Pratt spent most of their $10 million of accumulated earnings by 2010 because they believed the world would end in 2012. - u/garamond89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An American Family is widely considered to be the first reality TV series, first airing on PBS in 1973. Over 300 hours of footage of the Loud family was condensed into 12, one hour episodes documenting family drama resulting from a separation of Bill and Pat Loud. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. the reality tv show Murder In Small Town X whose finale aired on September 4, 2001. The winner of the show Ángel Juarbe Jr. ,who was a firefighter in NYC, would be dead a week later, one of the 343 NY firefighters killed at the World Trade Center. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Melanie Martinez had her home destroyed four times by Hurricane: Betsy (1965), Juan (1985), George (1998), and Katrina (2005). The reality TV show Hideous Homes gave her home a $20,000 remodeling, only to have it destroyed again by Hurricane Issac in 2012. - u/fuckingblackmale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Survivalist reality TV host Bear Grylls was extremely popular in China including a best-selling book and a celebrity survivalist reality TV show. But his reputation took a hit when he made beloved Chinese celebrities drink their own urine on TV. - 
-u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. British reality TV personality Bernie Fineman used to fix cars that the Kray Twins used in their crimes. - u/YourOwnBiggestFan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. the true Gordon Ramsay Effect: that restaurants, salons, and other concerns featured on reality TV shoes such as “Kitchen Nightmares” that are aimed at turning around troubled businesses fail twice as often as the industry average. - u/HeroicContender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. that the woman responsible for turning The History Channel into yet another reality TV station was promoted to CEO of all of A&E Television Networks (History, A&E, BIO, H2, Military, Lifetime, Lifetime Movie Network) - u/Harvin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. David Hasselhoff starred in his own A&E reality TV show about his efforts to resuscitate his career. The series was canceled after the first night. - u/labtec901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Channel Drift which results in a shift from informative, quality programming aimed at educated viewers, toward sensational, ratings-based, and/or reality-TV programming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Eden, a Survivor style reality TV series. Located in a remote part of Scotland, the series was beset with reports of bullying, hunger, a split camp and sexual jealousy. Channel 4 axed it but did not inform the participants, ten of whom stayed for a year. An update was broadcast months later. - ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Cops is the longest running Reality TV show ever. It started due to a Writers Guild of America strike. - u/alertnotalarmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. in the U.K in 2005 a reality TV show managed to trick a group (selected for incredible levels of gullibility) of wannabe astronauts into thinking they had been launched into space! - u/thatsCaptainplanet2u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224849.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I interviewed once at a very huge organization that had a site in the town I was living in, and these guys were so proud of the new top of the line facilities. When they took me on a tour they pointed out the lovely zen garden area that was made for employees to go “unwind and clear their heads”. The problem with it was this area was positioned directly across from all the higher ups offices. Yeah… no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225029.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Top 10 MILFs from Millennial TV Shows</a><br>
+## <a href="#linky7" id="linky6">20 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225160.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225163.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225166.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225167.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">15 Gwen Stefani Facts as Wild as the Artist Herself</a><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Gwen Stefani’s older brother, Eric, was the brainchild behind No Doubt and also worked as an animator on Rugrats and The Simpsons. - u/itsgoodsalad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224935.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The band No Doubt was actually formed in 1986 by Gwen Stefani’s brother in their parent’s garage. There were 9 members in the first lineup, but by the time they had their breakthrough album, Tragic Kingdom, Gwen was the only original one left. - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224936.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225171.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Unprovoked, Courtney Love picked on Gwen Stefani saying Being famous is just like being in high school. But Im not interested in being the cheerleader. Im not interested in being Gwen Stefani. After that quote Gwen recorded her first solo album with the cheerleader anthem Hollaback Girl. - u/shaka_sulu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224937.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Gwen Stefani discovered her husband, Gavin Rossdale, was having an affair with their nanny after explicit photos and messages popped up on the family iPad. It was signed into his iCloud account. - u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224938.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Linda Perry, the lead singer of 4 Non Blondes, went on to be a successful songwriter that wrote several hits for artists including Christina Aguilera, Gwen Stefani, and P!nk. She was inducted into the Songwriters Hall of Fame in 2015.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224939.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. No Doubts Dont Speak was originally written as a happy love song with lyrics like Were always together/We will be forever/such a special treasure; after breaking up with the bands bassist, Gwen Stefani re-wrote it to reflect her emotional anguish - u/holyfruits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224940.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Hollaback Girl by Gwen Stefani was the first song to be downloaded digitally 1,000,000 times. - u/1uu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224943.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Gwen Stefanis brother Eric was originally the keyboardist for No Doubt but left to become an animator for The Simpsons. - u/haddock420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Dr. Dre produced the song Rich Girl by Gwen Stefani. - u/TitoMcGlocklin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Gwen Stefani fought with dyslexia as a child. - u/daddaman1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Gwen Stefani (No Doubt) sounds a lot like Matt Bellamy (Muse) when the pitch of her voice is lowered. - u/doctorquien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Gwen Stefanis Grammy-nominated single, Rich Girl, was a remake of a 1993 song by Louchie Lou & Michie One, which in turn was an adaptation of the song If I Were a Rich Man from the Broadway musical Fiddler on the Roof. - u/eindickeSchlampe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In the Homerpalooza episode of The Simpsons, No Doubt briefly appears as background characters. Gwen Stefanis brother, Eric, animated them in. - u/CoolHeadedLogician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Matt Smith (Doctor Who) has dated Gwen Stefanis step-daughter. - u/IAMAnerdAMA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224949.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225177.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">30 Random Facts To Fill Your Noggin </a><br>
+## <a href="#linky8" id="linky7">13 Times Entitled Jerks Were Taxed for Their Rudeness</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030625/87225631/32.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030629/87225632/4pp.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030636/87225633/9p0.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030640/87225634/33grt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030649/87225635/55f.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030702/87225637/332sd.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030713/87225638/323243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030730/87225640/as.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030740/87225641/ds.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030751/87225642/ssd.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030803/87225643/fds4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030921/87225644/332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/031026/87225646/32323232.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">68 Randoms To Activate Your Laughter</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010108/87226262/87221469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010153/87226270/87221723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010221/87226274/87221731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010207/87226272/87221735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87225324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010038/87226259/87221435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010049/87226260/87221440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010059/87226261/87221474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010110/87226263/87221480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010119/87226264/87221700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010122/87226265/87221701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010130/87226266/87221704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010132/87226267/87221708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010141/87226268/87221720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010143/87226269/87221721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010155/87226271/87221734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010218/87226273/87221736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010230/87226275/87221852.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">30 Random Facts To Fill Your Noggin </a><br>
 
 <span style="font-size:4em">1. When Haiti was fighting the French in a civil war, the French sent some polish to deal with it, when they saw how the slaves were treated the Polish joined the Haiti revolution</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224212.jpg" style="width:100%"><br>
 
@@ -506,153 +559,85 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">13 Times Entitled Jerks Were Taxed for Their Rudeness</a><br>
+## <a href="#linky11" id="linky10">Top 10 MILFs from Millennial TV Shows</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030625/87225631/32.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030629/87225632/4pp.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030636/87225633/9p0.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030640/87225634/33grt.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030649/87225635/55f.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030702/87225637/332sd.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030713/87225638/323243.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030730/87225640/as.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030740/87225641/ds.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030751/87225642/ssd.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030803/87225643/fds4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030921/87225644/332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/031026/87225646/32323232.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">30 Historical Photos to Give You Chills</a><br>
+## <a href="#linky12" id="linky11">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
 
-<span style="font-size:4em">1. Terry Fox, A 21 Year Old Canadian Who Lost A Leg To Cancer, Began A Cross-Canada Run To Raise Money For Cancer Research. He Ran The Equivalent Of A Full Marathon A Day. He Made It 143 Days And 5,373 Km Before The Spread Of His Cancer Forced Him To Quit. He Died June 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225371.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226138.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Albert Einstein Teaching At Lincoln, The United State’s First Historical Black University, 1946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225372.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226139.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Sophia Loren, 1960</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225398.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226140.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Camberley Kate, A.k.a. Kate Ward, And Her Stray Dogs In England In 1962. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225373.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226141.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sister Mary Kenneth Keller, The First Woman To Earn A Doctorate In Computer Science In The United States, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225374.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226142.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Girls In The Windows Taken By Ormond Gigli In 1960 In NYC. The Building Was Knocked Down The Next Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225375.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226143.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. A Baby Lamb Snuggles Up To A Sleeping Boy, March 16, 1940</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225376.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226144.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. London Punks And A Surprised Grandmother, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Dr. Religa Monitors His Patient’s Vitals After 23-Hour-Long (Successful) Heart Transplant. His Assistant Is Sleeping In The Corner, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Betty White Dressed In Vintage 1940s Clothing To Celebrate The 75th Tournament Of Roses, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Wedding Rings Removed From Holocaust Victims Before They Were Executed, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. 4000-Year-Old Writing Board By An Egyptian Student With Teachers Spelling Corrections In Red</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The Beatles On What Kind Of Girl Do They Prefer, 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. 1,500-Year-Old Ceramic Maya Figurine With Removable Helmet, From El Perú-Waka, Petén, Guatemala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Monty Python Crew, 1976</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. This 1955 Photo Is One Of Walter Chandoha’s Most Famous Shots. “My Daughter Paula And The Kitten Both ‘Smiled’ For The Camera At The Same Time. …but The Cat’s Not Smiling, He’s Meowing”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Buzz Aldrin, First Self-Portrait In Space. 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Queen Isabel II, Veiled, 1855 C By Camillo Torreggiani. Masterful Use Of Light And Shadows To Make It Look Like Real Lace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Mom Uses A Trash Can To Contain Her Baby While She Crochets In The Park, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. People In Times Square, New York City Celebrate The Surrender Of Germany, May 7th, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. One Of The Most Beautiful Trains Ever Made, The ‘Mercury’ Streamliner, Designed In Art Deco-Style By Henry Dreyfuss For The New York Central Railroad. Heres One Captured In Chicago In 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Blackfoot Chief Two Guns White Calf, Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. A California Teacher Teaching The Physics Of Surfing, 1970</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Electric Cars Charging, 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Wedding Portrait Of A Married Khalkha Mongolian Couple, 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Hattie Tom, A Young Chiricahua Apache, 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Children In Minobashi Raincoats Going To A New Years Event, Niigata Prefecture, Japan, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. 7000-Year-Old Neolithic Figurines From Romania, Called The Thinker And The Sitting Woman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Portrait Of A Filipina/Chinese Woman From The Philippines, 1875 Photo By Francisco Van Camp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A 4,500-Year-Old Egyptian Bead Dre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225400.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226145.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">24 Nope Pics That Made Us Say ‘Nah I’m Good'</a><br>
+## <a href="#linky13" id="linky12">15 Gwen Stefani Facts as Wild as the Artist Herself</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225533.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Gwen Stefani’s older brother, Eric, was the brainchild behind No Doubt and also worked as an animator on Rugrats and The Simpsons. - u/itsgoodsalad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224935.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225514.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The band No Doubt was actually formed in 1986 by Gwen Stefani’s brother in their parent’s garage. There were 9 members in the first lineup, but by the time they had their breakthrough album, Tragic Kingdom, Gwen was the only original one left. - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224936.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225512.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Unprovoked, Courtney Love picked on Gwen Stefani saying Being famous is just like being in high school. But Im not interested in being the cheerleader. Im not interested in being Gwen Stefani. After that quote Gwen recorded her first solo album with the cheerleader anthem Hollaback Girl. - u/shaka_sulu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224937.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225513.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Gwen Stefani discovered her husband, Gavin Rossdale, was having an affair with their nanny after explicit photos and messages popped up on the family iPad. It was signed into his iCloud account. - u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224938.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225515.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Linda Perry, the lead singer of 4 Non Blondes, went on to be a successful songwriter that wrote several hits for artists including Christina Aguilera, Gwen Stefani, and P!nk. She was inducted into the Songwriters Hall of Fame in 2015.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224939.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225516.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. No Doubts Dont Speak was originally written as a happy love song with lyrics like Were always together/We will be forever/such a special treasure; after breaking up with the bands bassist, Gwen Stefani re-wrote it to reflect her emotional anguish - u/holyfruits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224940.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225510.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Hollaback Girl by Gwen Stefani was the first song to be downloaded digitally 1,000,000 times. - u/1uu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224943.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225517.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224941.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225518.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Gwen Stefanis brother Eric was originally the keyboardist for No Doubt but left to become an animator for The Simpsons. - u/haddock420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224942.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225519.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Dr. Dre produced the song Rich Girl by Gwen Stefani. - u/TitoMcGlocklin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224944.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225520.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Gwen Stefani fought with dyslexia as a child. - u/daddaman1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224945.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225521.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Gwen Stefani (No Doubt) sounds a lot like Matt Bellamy (Muse) when the pitch of her voice is lowered. - u/doctorquien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224946.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225522.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Gwen Stefanis Grammy-nominated single, Rich Girl, was a remake of a 1993 song by Louchie Lou & Michie One, which in turn was an adaptation of the song If I Were a Rich Man from the Broadway musical Fiddler on the Roof. - u/eindickeSchlampe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224947.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225523.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In the Homerpalooza episode of The Simpsons, No Doubt briefly appears as background characters. Gwen Stefanis brother, Eric, animated them in. - u/CoolHeadedLogician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224948.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225532.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Matt Smith (Doctor Who) has dated Gwen Stefanis step-daughter. - u/IAMAnerdAMA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224949.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">31 Reminders That Kids Can Be Really Dumb Sometimes</a><br>
+## <a href="#linky14" id="linky13">31 Reminders That Kids Can Be Really Dumb Sometimes</a><br>
 
 <span style="font-size:4em">1. Grandpa didnt expect this!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035859/87224652/children9.jpg" style="width:100%"><br>
 
@@ -715,6 +700,122 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040044/87224671/children28.png" style="width:100%"><br>
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040056/87224673/children30.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">30 Charts Filled With Random Knowledge</a><br>
+
+<span style="font-size:4em">1. Different Electrical Outlets Per Countries</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. How to pack your backpack efficiently. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Most Popular Tourist Scams To Avoid When Traveling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. AKA Europes (mostly) cool with ding-dong-ditching. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A handy checklist so you dont have to facepalm halfway to the airport. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Backpacking Tip</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Never presume. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The Essential Travel Guide To Rome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A quick guide on where the tap waters mostly okay. Just make sure you trust the local pipes too. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Canadian Travel Advisory Country Safety Ratings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. A hyper-specific guide to enjoying Paris. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A solid checklist to keep in mind. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Regions Considered Safe To Travel To By The French Ministry Of Foreign Affairs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Which Side Of The Road Should You Drive On In Each Country?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. The cheat-sheet to a better flying experience. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The Eurovelo Is A Net Of Cycleways With More Than 70000 Kilometres Of Extension Which Crosses The Whole European Continent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. A guide to staying green on the road for eco-minded travelers. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224169.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">24 Nope Pics That Made Us Say ‘Nah I’m Good'</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225532.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
