@@ -1,97 +1,89 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/28/2022-13:47:23
+Last updated: 07/28/2022-14:47:22
 <br>
-## <a href="#linky2" id="linky1">30 Historical Photos to Give You Chills</a><br>
+## <a href="#linky2" id="linky1">20 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. Terry Fox, A 21 Year Old Canadian Who Lost A Leg To Cancer, Began A Cross-Canada Run To Raise Money For Cancer Research. He Ran The Equivalent Of A Full Marathon A Day. He Made It 143 Days And 5,373 Km Before The Spread Of His Cancer Forced Him To Quit. He Died June 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225371.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Albert Einstein Teaching At Lincoln, The United State’s First Historical Black University, 1946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225372.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Sophia Loren, 1960</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225398.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Camberley Kate, A.k.a. Kate Ward, And Her Stray Dogs In England In 1962. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225373.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225160.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sister Mary Kenneth Keller, The First Woman To Earn A Doctorate In Computer Science In The United States, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225374.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Girls In The Windows Taken By Ormond Gigli In 1960 In NYC. The Building Was Knocked Down The Next Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225375.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A Baby Lamb Snuggles Up To A Sleeping Boy, March 16, 1940</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225376.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225163.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. London Punks And A Surprised Grandmother, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225377.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Dr. Religa Monitors His Patient’s Vitals After 23-Hour-Long (Successful) Heart Transplant. His Assistant Is Sleeping In The Corner, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225378.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Betty White Dressed In Vintage 1940s Clothing To Celebrate The 75th Tournament Of Roses, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225379.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Wedding Rings Removed From Holocaust Victims Before They Were Executed, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225380.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. 4000-Year-Old Writing Board By An Egyptian Student With Teachers Spelling Corrections In Red</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225381.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The Beatles On What Kind Of Girl Do They Prefer, 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225382.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. 1,500-Year-Old Ceramic Maya Figurine With Removable Helmet, From El Perú-Waka, Petén, Guatemala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225383.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225171.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Monty Python Crew, 1976</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225384.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. This 1955 Photo Is One Of Walter Chandoha’s Most Famous Shots. “My Daughter Paula And The Kitten Both ‘Smiled’ For The Camera At The Same Time. …but The Cat’s Not Smiling, He’s Meowing”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225385.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Buzz Aldrin, First Self-Portrait In Space. 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225386.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Queen Isabel II, Veiled, 1855 C By Camillo Torreggiani. Masterful Use Of Light And Shadows To Make It Look Like Real Lace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225387.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Mom Uses A Trash Can To Contain Her Baby While She Crochets In The Park, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225388.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. People In Times Square, New York City Celebrate The Surrender Of Germany, May 7th, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. One Of The Most Beautiful Trains Ever Made, The ‘Mercury’ Streamliner, Designed In Art Deco-Style By Henry Dreyfuss For The New York Central Railroad. Heres One Captured In Chicago In 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Blackfoot Chief Two Guns White Calf, Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. A California Teacher Teaching The Physics Of Surfing, 1970</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Electric Cars Charging, 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Wedding Portrait Of A Married Khalkha Mongolian Couple, 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Hattie Tom, A Young Chiricahua Apache, 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Children In Minobashi Raincoats Going To A New Years Event, Niigata Prefecture, Japan, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. 7000-Year-Old Neolithic Figurines From Romania, Called The Thinker And The Sitting Woman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Portrait Of A Filipina/Chinese Woman From The Philippines, 1875 Photo By Francisco Van Camp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A 4,500-Year-Old Egyptian Bead Dre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225400.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225177.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">13 Times Entitled Jerks Were Taxed for Their Rudeness</a><br>
+## <a href="#linky3" id="linky2">19 People Who Used the Dark Web Reveal What They Saw</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030625/87225631/32.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. To bypass the censors in a country I was visiting, then I realized VPN is faster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224735.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030629/87225632/4pp.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. About 10 years ago a friend of mine used it to buy 4 grams of cocaine. Cost him about 5 Bitcoins. Bitcoins were worth about $50 at the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030636/87225633/9p0.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. To download Internet explorer again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030640/87225634/33grt.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Every-once in a while I like to browse the dark market places for entertainment. They offer everything from drugs in small or massive quantities, firearms, fake documents, pirated software. I would never and have never actually bought anything, I just find it weirdly interesting, but its really time consuming to find the right URL, make and account, etc. so its not something I do often.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030649/87225635/55f.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Looking up the text of statutes which, as a deeply law-abiding person, I would never violate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030702/87225637/332sd.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. There are some other interesting things on these market places. Its not all super dark. But I did see human skulls for sale. But there are legal ways to buy those too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030713/87225638/323243.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I watched a friend of mine make a drug purchase. There are market place onion sites for such things. Idk if this is overkill, but he uses a VPN. And he purchases from a secure Linux distro running on a virtual machine. Ofc in the end you always have to give your address to a stranger. The exchange is done with a handshake involving asymmetric encryption. The market place tries to mitigate FBI bait with user reviews. He tries to buy from the same sellers each time if he can. Still feels risky to me, but its definitely still alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030730/87225640/as.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I looked at the dark web. Found what was probrably a fake sales website but a very real website talking about selling illegal guns and the same thing with drugs. Again, probs not real but thats what I saw.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030740/87225641/ds.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Raw Opium from Pakistan a few years back. Grapefruit size ball for ~$50. Came in a tagine pot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030751/87225642/ssd.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. To watch dark youtube, the sick and twisted version of youtube where smosh is still #1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030803/87225643/fds4.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I used TOR once because I thought maybe mushrooms would help my depression and that seemed like maybe a much better option vs trying to find them locally. 3/4 of the links on the hidden wiki were dead and those that werent, looked like they were going to infect my PC/Network the second I clicked on anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030921/87225644/332.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I recently installed a dark web in the trunk of my car. Helps immensely with the groceries, stops them from shifting around as I drive home. Although Amazon called it a cargo net for some reason, dunno why.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/031026/87225646/32323232.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I used to buy acid. I have no issue talking about it as it was about 8 years ago. Havent used the dark web since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. To rebroadcast baseball games without the express written consent of the Commissioner of Major League Baseball. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. To find out if somebody is selling my company’s or its employees information there. I work in cyber security.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The dark web is just filled with scam or bait drug sites by the FBI, its pretty boring honestly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. To watch specific YouTube videos about how to fix a door hinge or how to stop a smoke alarm from beeping or whatever, without the algorithm thinking Im just super into door hinges and smoke alarms forever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Part of my job! I am a Solutions Engineer for a Cyber Threat Intelligence service provider so I spend a good amount of time doing manual threat hunting in a lot of common dark web sources using Kali Linux VM and a lot of other tools besides TOR for looking up things like compromised credentials, data leakage, IOA (Indicators of Attack), chatter and even getting into IRCs and other covert communication platforms. I also do basic red-teaming tasks like open port scanning (NMAPing), vuln exploit correlation investigation, general attack surface assessments, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The only place where you can buy quality bat meat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224754.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -161,61 +153,7 @@ Last updated: 07/28/2022-13:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">25 Red Flags To Know Before Accepting A Job</a><br>
-
-<span style="font-size:4em">1. Having to take an online IQ test before even being considered for an interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. They try to sell you their service during your interview. It was really really bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The CEO/boss/whatever drives a conspicuously expensive car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. If its a private/family company, do a Google search for [company name] defendant and [company name] plaintiff. If the company has been sued, or is in the habit of suing others, that can be a red flag - although sometimes there are legit reasons for either. But its something worth paying attention to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If the company brings alcohol into the office for end of week sessions on a regular basis. I know they can be fun but its a stupendously bad idea for all kinds of reasons and if leadership hasnt figured that out then Id think twice before joining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Open interviews. It tells me that people leave faster than you can bring them in, and with good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. If when youre visiting the company for the first time and you pass someone in a hallway, do they smile and acknowledge your presence with a nod or maybe a hello, or do they ignore you? Its a small thing but very telling about the workplace culture. Similarly, do people seem healthy and energized or grey-faced and tired?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. To me it was a, we will start you low and will give you a ton of money later. They never do. Never happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. If the job description has a nondescriptively massive salary range ($25,000-$100,000).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Interviewed with a regional vp of a billion dollar company for a sales role. When I asked if the position was a backfill or open due to growth, he stated a backfill. I asked if the person was promoted or moved to a new role, and his response was, “we have had more people quit in 2021 than ever, and it’s because they can’t handle the pressure.” Needless to say, I declined the next step in the hiring process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I know people (rightfully) like to hate on HR, but if a company brags about not having an HR department to deal with, expect them to be very disorganized at a minimum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Anything that the manager says in the interview that doesn’t line up with the job description.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When you don’t get a review until you ask for a raise. Then, all of a sudden, you work is being questioned and you’re being berated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Trying to rush a decision out of you once the offer is made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I always ask the question, why is this role open? Is it a new role, or am I replacing someone? Why did that person leave? This really helps you seeing their reaction and if they look nervous its because the person who left did it because they were not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The “sink or swim” technique. It was my first day as a cashier. I got a couple of hours of training, then I was by myself and we were dead. All of a sudden this rush came in and I was asking for help. The manager goes “sink or swim, we’re busy back here, figure it out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. If when you are asked to come in for an interview, you are not treated with total respect for your time. For example, if you find yourself waiting for extended periods for an interview because so and so is in a really important meeting. Similarly, if you are not offered at least water and/or coffee if youre in for several interviews. I once interviewed at a place for seven straight hours with no break, no food, not even a glass of water. Fortunately I wasnt offered the job as it was at Michael Milkens firm... before he went to prison.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Are you here just for the money?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A couple old senior partners, lots of young employees and nothing in between. That means there’s no opportunity to move up, they can’t get people to stay, and can’t get lateral transfers. They work young folks for as long as they can, and the young folks leave once they figure out the company sucks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When an employee quits or gets fired from the job and the company doesnt hire anyone new to replace them. It can be hard to tell as a red flag at first, but the temporary workload they added to your own, on top of what was left after the person quit, slowly becomes your new permanent workload, without any changes to your pay or benefits to compensate for the additional tasks. The further out it goes without the position being filled, the larger and more obvious the red flag becomes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Everybody is very young in a very old company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Competitive pay, but they wont tell you what the pay actually is in the posting or even the interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Asking if I planned to have children in the interview. (I was 19.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Asking if you are somebody whos willing to put in the time to make sure deadlines are met/work is done, or if youre the type of person who leaves when the workday is finished?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I interviewed once at a very huge organization that had a site in the town I was living in, and these guys were so proud of the new top of the line facilities. When they took me on a tour they pointed out the lovely zen garden area that was made for employees to go “unwind and clear their heads”. The problem with it was this area was positioned directly across from all the higher ups offices. Yeah… no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225029.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">30 Random Facts To Fill Your Noggin </a><br>
+## <a href="#linky5" id="linky4">30 Random Facts To Fill Your Noggin </a><br>
 
 <span style="font-size:4em">1. When Haiti was fighting the French in a civil war, the French sent some polish to deal with it, when they saw how the slaves were treated the Polish joined the Haiti revolution</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224212.jpg" style="width:100%"><br>
 
@@ -279,31 +217,23 @@ Last updated: 07/28/2022-13:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Top 10 MILFs from Millennial TV Shows</a><br>
+## <a href="#linky6" id="linky5">Spoiled Student Gets Automatic ‘A’, So Teacher Gives Everyone Automatic ‘A'</a><br>
 
-<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093549/87226154/one.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093236/87226149/IMG_3648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093213/87226147/IMG_3649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093239/87226150/IMG_3650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093248/87226151/IMG_3652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093252/87226152/IMG_3653.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
+## <a href="#linky7" id="linky6">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226138.png" style="width:100%"><br>
 
@@ -323,80 +253,7 @@ Last updated: 07/28/2022-13:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Things People Are Boycotting & You Should Too</a><br>
-
-<span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Shaw Academy. Sleazy little fucks. Their lies in advertising, and nearly impossible to cancel a subscription with them. Tried doing a course that was a free 4-week course. The course was free for the first 4 weeks but the way they sold it was that the course itself was 4 weeks and free. They say you can finish a course as fast or long as you want, but I think it caps out at 3 lessons a week making you stay in the program for a few months, paying monthly.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
- Trying to cancel is a nightmare. Sifting through pages and pages of are you sure you want to cancel, heres a 5% discount, fill this form out, now this one, and now this one. All to get to a phone number that is only valid to call for a couple hours a day. When you finally get to call.. its an automated message. 10 minutes of a robot telling me it cares about me and wants me to stay. Only to FINALLY press 2 to cancel my subscription. Fuck. Shaw Academy. - AdoptedMexican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. EBay. Escaped an abusive relationship, and was changing all my passwords to random combinations. Set it to log out all devices and force the password to be re-entered. It wasnt actually doing that. (I tried from multiple devices so it wasnt a keylogger or anything my abusive ex was doing. I also confirmed if I logged in on other devices, reset password and clicked to log out all devices it was not logging other devices out). Abusive ex was bidding/winning auctions. I called ebay to report the issue. They said it isnt that my account has been hacked/fraud because I know who is doing it. They would do NOTHING. Said I would just have to take the bad feedback and be blacklisted and that I should pick better partners. Didnt matter that they had a major security flaw. All I could do was remove the payment methods from my account so he couldnt pay for his auctions. I will never use them again. - TribalMog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Expedia and all the sites they own/control. Which is a LOT of them. Expedia screwed me over in a bad way, and then their Customer Service people insulted me when I tried to call attention to the serious issues. Ultimately, they offered me a gift card as a Take It or Leave It solution to the entire issue. I left it, and went on a crusade to slam them on Twitter. I did it for a long time but got bored. - Darth_Corleone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Nestle. I may inadvertently grab one of its products, but when I see the name, i always put it back. - TradePrinceGobbo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Anything that even has a hint of MLM. Stop exploiting your personal relationships out of greed. - SH00TERxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Susan G. Koman Foundation - they employ alphabet soup & lawyer speak to defraud millions. NOTE: THEY DO NOT FUND RESEARCH NOR DO THEY HELP PATIENTS! THEY ARE AN ADVERTISING COMPANY. THEY ADVERTISE CANCER AWARENESS (because someone may be unaware of cancer \s) - msmame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Harvey Norman. They have terrible customer service and they took a whole lot of Australian government money that they didn’t deserve and are refusing to give it back. - 2exp77232917-1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Comcast - adogsgotcharacter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. FedEx - as much as I can help it.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I obviously cant boycott them if its the only delivery option on an e-commerce website, or if someone/company happens to ship me something via FedEx.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-But I have literally chosen to pay more on an e-commerce website, to specifically not use FedEx as a shipping service.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Reason: When I bought my Pixel 3, the first day it was supposed to arrive, I worked from home that day to sign for my package. They never arrived, and on the tracking, wrote that I wasnt home to receive the package.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I was furious, so I spent the next two days working from home, and even did my work in the kitchen, so that I could physically see if any delivery driver actually walks up to my door. 3 straight fucking days in a row, not a single person comes up. Ring doorbell even doesnt show them walking up, but they have THE MOTHER FUCKING AUDACITY to claim I wasnt home 3 straight days in a row.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I ended up having to pick it up at their facility. Just because they LIED 3 times in a row, even after a phone call each day the first two days, the customer service person even told me I probably missed them when I went to the restroom or something -_- Cant even own up to the fucking fact that everybody in their company are a bunch of fucking liars.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-So for that reason alone, I pay more for shipping as long as its not FedEx. Ive specifically driven a further distance to get something printed at Staples or Office Depot just so I dont step foot into a FedEx store.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Boycotting FedEx until the day I die. - needtobetterself31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was boycotting Blockbuster for charging me late fees because they lost the tape I returned in their evening return slot. Fuck those guys they ain’t getting my business! - c0nduit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Bank of America. Fucked me over for $10 back in 1993 on a mistake they made. Never getting my motherfucking business again. - sea_cricket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Pretty much anything in one of those unskippable YouTube ads. - coredenale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. State Farm. Thanks to some whistleblowers, they got busted committing fraud against their customers and the federal government after Hurricane Katrina. They told their claims adjusters to classify damage as flood damage, rather than wind damage, so that they could reject the claim and tell customers to file a federal flood insurance claim. - hells_cowbells</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Multi-level-marketing schemes. They’re shit companies that attract shitty, and sometimes desperate people, and train them on how to profit off of their friends and families. They destroy lives and I refuse to support them. - ClearBlue_Grace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Lifetime Fitness. It really pains me to write this, because I really love their gyms. I had a membership at Lifetime on and off through college. I went to a very large university with great amenities, so I didn’t need the membership during the school year. I tried to cancel at the end of one summer. I was at the gym one day and I asked about the cancellation. I was told to come back at a certain time frame the following Wednesday to cancel. I complied. When I showed up the “person doing the cancellations wasn’t there.” 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I was told to return the following Wednesday. Surprise, surprise, the person wasn’t there again. I told them I was going to stop the payment through the credit card company. They responded by telling me that they’d take me to collections then. I ended up escalating through their corporate offices to get the membership canceled. They managed to get 2 extra months of fees out of me. After that year of college, I shifted over to LA Fitness and maintained that membership for about 10 years. When I moved away from LA Fitness, I joined the YMCA, where I’ve been for the last 5-6 years. I will always have a gym membership, but I am committed to not joining Lifetime Fitness again until am reimbursed. It’s really a loss for both of us. - IGuessIamYouThen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225002.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">25 Photos That Should Be Album Covers</a><br>
+## <a href="#linky8" id="linky7">25 Photos That Should Be Album Covers</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105856/87226198/baz.jpg" style="width:100%"><br>
 
@@ -450,167 +307,61 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">20 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky9" id="linky8">25 Red Flags To Know Before Accepting A Job</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225156.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Having to take an online IQ test before even being considered for an interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225157.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. They try to sell you their service during your interview. It was really really bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225158.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The CEO/boss/whatever drives a conspicuously expensive car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225160.png" style="width:100%"><br>
+<span style="font-size:4em">4. If its a private/family company, do a Google search for [company name] defendant and [company name] plaintiff. If the company has been sued, or is in the habit of suing others, that can be a red flag - although sometimes there are legit reasons for either. But its something worth paying attention to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225161.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. If the company brings alcohol into the office for end of week sessions on a regular basis. I know they can be fun but its a stupendously bad idea for all kinds of reasons and if leadership hasnt figured that out then Id think twice before joining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225162.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Open interviews. It tells me that people leave faster than you can bring them in, and with good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225163.png" style="width:100%"><br>
+<span style="font-size:4em">7. If when youre visiting the company for the first time and you pass someone in a hallway, do they smile and acknowledge your presence with a nod or maybe a hello, or do they ignore you? Its a small thing but very telling about the workplace culture. Similarly, do people seem healthy and energized or grey-faced and tired?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225164.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. To me it was a, we will start you low and will give you a ton of money later. They never do. Never happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225165.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. If the job description has a nondescriptively massive salary range ($25,000-$100,000).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225166.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Interviewed with a regional vp of a billion dollar company for a sales role. When I asked if the position was a backfill or open due to growth, he stated a backfill. I asked if the person was promoted or moved to a new role, and his response was, “we have had more people quit in 2021 than ever, and it’s because they can’t handle the pressure.” Needless to say, I declined the next step in the hiring process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225167.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I know people (rightfully) like to hate on HR, but if a company brags about not having an HR department to deal with, expect them to be very disorganized at a minimum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225168.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Anything that the manager says in the interview that doesn’t line up with the job description.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225169.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. When you don’t get a review until you ask for a raise. Then, all of a sudden, you work is being questioned and you’re being berated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225171.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Trying to rush a decision out of you once the offer is made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225172.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I always ask the question, why is this role open? Is it a new role, or am I replacing someone? Why did that person leave? This really helps you seeing their reaction and if they look nervous its because the person who left did it because they were not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225021.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225173.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The “sink or swim” technique. It was my first day as a cashier. I got a couple of hours of training, then I was by myself and we were dead. All of a sudden this rush came in and I was asking for help. The manager goes “sink or swim, we’re busy back here, figure it out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225174.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. If when you are asked to come in for an interview, you are not treated with total respect for your time. For example, if you find yourself waiting for extended periods for an interview because so and so is in a really important meeting. Similarly, if you are not offered at least water and/or coffee if youre in for several interviews. I once interviewed at a place for seven straight hours with no break, no food, not even a glass of water. Fortunately I wasnt offered the job as it was at Michael Milkens firm... before he went to prison.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225175.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Are you here just for the money?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225176.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. A couple old senior partners, lots of young employees and nothing in between. That means there’s no opportunity to move up, they can’t get people to stay, and can’t get lateral transfers. They work young folks for as long as they can, and the young folks leave once they figure out the company sucks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87225177.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. When an employee quits or gets fired from the job and the company doesnt hire anyone new to replace them. It can be hard to tell as a red flag at first, but the temporary workload they added to your own, on top of what was left after the person quit, slowly becomes your new permanent workload, without any changes to your pay or benefits to compensate for the additional tasks. The further out it goes without the position being filled, the larger and more obvious the red flag becomes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225006.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">21. Everybody is very young in a very old company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225025.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Spoiled Student Gets Automatic ‘A’, So Teacher Gives Everyone Automatic ‘A'</a><br>
+<span style="font-size:4em">22. Competitive pay, but they wont tell you what the pay actually is in the posting or even the interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093549/87226154/one.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Asking if I planned to have children in the interview. (I was 19.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093236/87226149/IMG_3648.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Asking if you are somebody whos willing to put in the time to make sure deadlines are met/work is done, or if youre the type of person who leaves when the workday is finished?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093213/87226147/IMG_3649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093239/87226150/IMG_3650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093248/87226151/IMG_3652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093252/87226152/IMG_3653.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I interviewed once at a very huge organization that had a site in the town I was living in, and these guys were so proud of the new top of the line facilities. When they took me on a tour they pointed out the lovely zen garden area that was made for employees to go “unwind and clear their heads”. The problem with it was this area was positioned directly across from all the higher ups offices. Yeah… no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225029.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">15 Gwen Stefani Facts as Wild as the Artist Herself</a><br>
-
-<span style="font-size:4em">1. Gwen Stefani’s older brother, Eric, was the brainchild behind No Doubt and also worked as an animator on Rugrats and The Simpsons. - u/itsgoodsalad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The band No Doubt was actually formed in 1986 by Gwen Stefani’s brother in their parent’s garage. There were 9 members in the first lineup, but by the time they had their breakthrough album, Tragic Kingdom, Gwen was the only original one left. - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Unprovoked, Courtney Love picked on Gwen Stefani saying Being famous is just like being in high school. But Im not interested in being the cheerleader. Im not interested in being Gwen Stefani. After that quote Gwen recorded her first solo album with the cheerleader anthem Hollaback Girl. - u/shaka_sulu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Gwen Stefani discovered her husband, Gavin Rossdale, was having an affair with their nanny after explicit photos and messages popped up on the family iPad. It was signed into his iCloud account. - u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Linda Perry, the lead singer of 4 Non Blondes, went on to be a successful songwriter that wrote several hits for artists including Christina Aguilera, Gwen Stefani, and P!nk. She was inducted into the Songwriters Hall of Fame in 2015.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. No Doubts Dont Speak was originally written as a happy love song with lyrics like Were always together/We will be forever/such a special treasure; after breaking up with the bands bassist, Gwen Stefani re-wrote it to reflect her emotional anguish - u/holyfruits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Hollaback Girl by Gwen Stefani was the first song to be downloaded digitally 1,000,000 times. - u/1uu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Gwen Stefanis brother Eric was originally the keyboardist for No Doubt but left to become an animator for The Simpsons. - u/haddock420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Dr. Dre produced the song Rich Girl by Gwen Stefani. - u/TitoMcGlocklin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Gwen Stefani fought with dyslexia as a child. - u/daddaman1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Gwen Stefani (No Doubt) sounds a lot like Matt Bellamy (Muse) when the pitch of her voice is lowered. - u/doctorquien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Gwen Stefanis Grammy-nominated single, Rich Girl, was a remake of a 1993 song by Louchie Lou & Michie One, which in turn was an adaptation of the song If I Were a Rich Man from the Broadway musical Fiddler on the Roof. - u/eindickeSchlampe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In the Homerpalooza episode of The Simpsons, No Doubt briefly appears as background characters. Gwen Stefanis brother, Eric, animated them in. - u/CoolHeadedLogician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Matt Smith (Doctor Who) has dated Gwen Stefanis step-daughter. - u/IAMAnerdAMA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224949.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">31 Reminders That Kids Can Be Really Dumb Sometimes</a><br>
-
-<span style="font-size:4em">1. Grandpa didnt expect this!</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035859/87224652/children9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035948/87224661/children18.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035816/87224646/children2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035837/87224648/children4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035838/87224649/children6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035849/87224650/children7.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035850/87224651/children8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. They called me a madman.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035902/87224653/children10.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035911/87224654/children11.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Got his head stuck in the chair.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035805/87224645/children3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035914/87224655/children12.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. My little sister watched innerspace, and she collected 4 ants and put them in a lego spaceship. Her excuse? I wanna show the ants my organs and poop them out. I stopped her from swallowing it. The black dots are the ants.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040055/87224672/children29.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035922/87224656/children13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. We bought our son an “invisible suit.” He thinks the neighbors can’t see him.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040010/87224665/children22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035925/87224657/children14.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. One of my kids made this mask of Patrick from SpongeBob and we cant cope.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035933/87224658/children15.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035936/87224659/children16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035827/87224647/children5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035946/87224660/children17.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040106/87224674/children31.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035956/87224662/children19.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Two year old insisted that the puzzle is built like this.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035959/87224663/children20.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040007/87224664/children21.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040019/87224666/children23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. Anyone else get weird requests while on the toilet?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040022/87224667/children24.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040031/87224668/children25.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040033/87224669/children26.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040043/87224670/children27.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. Kid is scared of the frog on his arm.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/035753/87224644/children1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040044/87224671/children28.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/26/040056/87224673/children30.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">24 Nope Pics That Made Us Say ‘Nah I’m Good'</a><br>
+## <a href="#linky10" id="linky9">24 Nope Pics That Made Us Say ‘Nah I’m Good'</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225533.jpg" style="width:100%"><br>
 
@@ -662,45 +413,155 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">19 People Who Used the Dark Web Reveal What They Saw</a><br>
+## <a href="#linky11" id="linky10">13 Times Entitled Jerks Were Taxed for Their Rudeness</a><br>
 
-<span style="font-size:4em">1. To bypass the censors in a country I was visiting, then I realized VPN is faster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224735.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030625/87225631/32.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. About 10 years ago a friend of mine used it to buy 4 grams of cocaine. Cost him about 5 Bitcoins. Bitcoins were worth about $50 at the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224736.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030629/87225632/4pp.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. To download Internet explorer again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224737.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030636/87225633/9p0.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Every-once in a while I like to browse the dark market places for entertainment. They offer everything from drugs in small or massive quantities, firearms, fake documents, pirated software. I would never and have never actually bought anything, I just find it weirdly interesting, but its really time consuming to find the right URL, make and account, etc. so its not something I do often.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224738.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030640/87225634/33grt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Looking up the text of statutes which, as a deeply law-abiding person, I would never violate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224739.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030649/87225635/55f.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. There are some other interesting things on these market places. Its not all super dark. But I did see human skulls for sale. But there are legal ways to buy those too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224740.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030702/87225637/332sd.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I watched a friend of mine make a drug purchase. There are market place onion sites for such things. Idk if this is overkill, but he uses a VPN. And he purchases from a secure Linux distro running on a virtual machine. Ofc in the end you always have to give your address to a stranger. The exchange is done with a handshake involving asymmetric encryption. The market place tries to mitigate FBI bait with user reviews. He tries to buy from the same sellers each time if he can. Still feels risky to me, but its definitely still alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224741.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030713/87225638/323243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I looked at the dark web. Found what was probrably a fake sales website but a very real website talking about selling illegal guns and the same thing with drugs. Again, probs not real but thats what I saw.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224742.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030730/87225640/as.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Raw Opium from Pakistan a few years back. Grapefruit size ball for ~$50. Came in a tagine pot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224743.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030740/87225641/ds.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. To watch dark youtube, the sick and twisted version of youtube where smosh is still #1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224745.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030751/87225642/ssd.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I used TOR once because I thought maybe mushrooms would help my depression and that seemed like maybe a much better option vs trying to find them locally. 3/4 of the links on the hidden wiki were dead and those that werent, looked like they were going to infect my PC/Network the second I clicked on anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224746.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030803/87225643/fds4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I recently installed a dark web in the trunk of my car. Helps immensely with the groceries, stops them from shifting around as I drive home. Although Amazon called it a cargo net for some reason, dunno why.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224747.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/030921/87225644/332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I used to buy acid. I have no issue talking about it as it was about 8 years ago. Havent used the dark web since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224748.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/031026/87225646/32323232.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. To rebroadcast baseball games without the express written consent of the Commissioner of Major League Baseball. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224749.jpg" style="width:100%"><br>
+<a href="#linky1">GO TO TOP</a>
 
-<span style="font-size:4em">15. To find out if somebody is selling my company’s or its employees information there. I work in cyber security.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224750.jpg" style="width:100%"><br>
+## <a href="#linky12" id="linky11">30 Historical Photos to Give You Chills</a><br>
 
-<span style="font-size:4em">16. The dark web is just filled with scam or bait drug sites by the FBI, its pretty boring honestly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224751.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Terry Fox, A 21 Year Old Canadian Who Lost A Leg To Cancer, Began A Cross-Canada Run To Raise Money For Cancer Research. He Ran The Equivalent Of A Full Marathon A Day. He Made It 143 Days And 5,373 Km Before The Spread Of His Cancer Forced Him To Quit. He Died June 1981</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. To watch specific YouTube videos about how to fix a door hinge or how to stop a smoke alarm from beeping or whatever, without the algorithm thinking Im just super into door hinges and smoke alarms forever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224752.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Albert Einstein Teaching At Lincoln, The United State’s First Historical Black University, 1946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225372.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Part of my job! I am a Solutions Engineer for a Cyber Threat Intelligence service provider so I spend a good amount of time doing manual threat hunting in a lot of common dark web sources using Kali Linux VM and a lot of other tools besides TOR for looking up things like compromised credentials, data leakage, IOA (Indicators of Attack), chatter and even getting into IRCs and other covert communication platforms. I also do basic red-teaming tasks like open port scanning (NMAPing), vuln exploit correlation investigation, general attack surface assessments, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224753.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Sophia Loren, 1960</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The only place where you can buy quality bat meat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224754.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Camberley Kate, A.k.a. Kate Ward, And Her Stray Dogs In England In 1962. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Sister Mary Kenneth Keller, The First Woman To Earn A Doctorate In Computer Science In The United States, 1965</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Girls In The Windows Taken By Ormond Gigli In 1960 In NYC. The Building Was Knocked Down The Next Day</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A Baby Lamb Snuggles Up To A Sleeping Boy, March 16, 1940</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. London Punks And A Surprised Grandmother, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Dr. Religa Monitors His Patient’s Vitals After 23-Hour-Long (Successful) Heart Transplant. His Assistant Is Sleeping In The Corner, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Betty White Dressed In Vintage 1940s Clothing To Celebrate The 75th Tournament Of Roses, 1963</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Wedding Rings Removed From Holocaust Victims Before They Were Executed, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. 4000-Year-Old Writing Board By An Egyptian Student With Teachers Spelling Corrections In Red</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The Beatles On What Kind Of Girl Do They Prefer, 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. 1,500-Year-Old Ceramic Maya Figurine With Removable Helmet, From El Perú-Waka, Petén, Guatemala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Monty Python Crew, 1976</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. This 1955 Photo Is One Of Walter Chandoha’s Most Famous Shots. “My Daughter Paula And The Kitten Both ‘Smiled’ For The Camera At The Same Time. …but The Cat’s Not Smiling, He’s Meowing”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Buzz Aldrin, First Self-Portrait In Space. 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Queen Isabel II, Veiled, 1855 C By Camillo Torreggiani. Masterful Use Of Light And Shadows To Make It Look Like Real Lace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Mom Uses A Trash Can To Contain Her Baby While She Crochets In The Park, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. People In Times Square, New York City Celebrate The Surrender Of Germany, May 7th, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. One Of The Most Beautiful Trains Ever Made, The ‘Mercury’ Streamliner, Designed In Art Deco-Style By Henry Dreyfuss For The New York Central Railroad. Heres One Captured In Chicago In 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Blackfoot Chief Two Guns White Calf, Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. A California Teacher Teaching The Physics Of Surfing, 1970</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Electric Cars Charging, 1917</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The Wedding Portrait Of A Married Khalkha Mongolian Couple, 1920s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Hattie Tom, A Young Chiricahua Apache, 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Children In Minobashi Raincoats Going To A New Years Event, Niigata Prefecture, Japan, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. 7000-Year-Old Neolithic Figurines From Romania, Called The Thinker And The Sitting Woman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Portrait Of A Filipina/Chinese Woman From The Philippines, 1875 Photo By Francisco Van Camp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. A 4,500-Year-Old Egyptian Bead Dre</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225400.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">15 Gwen Stefani Facts as Wild as the Artist Herself</a><br>
+
+<span style="font-size:4em">1. Gwen Stefani’s older brother, Eric, was the brainchild behind No Doubt and also worked as an animator on Rugrats and The Simpsons. - u/itsgoodsalad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The band No Doubt was actually formed in 1986 by Gwen Stefani’s brother in their parent’s garage. There were 9 members in the first lineup, but by the time they had their breakthrough album, Tragic Kingdom, Gwen was the only original one left. - u/TheLaVeyan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Unprovoked, Courtney Love picked on Gwen Stefani saying Being famous is just like being in high school. But Im not interested in being the cheerleader. Im not interested in being Gwen Stefani. After that quote Gwen recorded her first solo album with the cheerleader anthem Hollaback Girl. - u/shaka_sulu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Gwen Stefani discovered her husband, Gavin Rossdale, was having an affair with their nanny after explicit photos and messages popped up on the family iPad. It was signed into his iCloud account. - u/EtOHMartini</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Linda Perry, the lead singer of 4 Non Blondes, went on to be a successful songwriter that wrote several hits for artists including Christina Aguilera, Gwen Stefani, and P!nk. She was inducted into the Songwriters Hall of Fame in 2015.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. No Doubts Dont Speak was originally written as a happy love song with lyrics like Were always together/We will be forever/such a special treasure; after breaking up with the bands bassist, Gwen Stefani re-wrote it to reflect her emotional anguish - u/holyfruits</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Hollaback Girl by Gwen Stefani was the first song to be downloaded digitally 1,000,000 times. - u/1uu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Gwen Stefanis brother Eric was originally the keyboardist for No Doubt but left to become an animator for The Simpsons. - u/haddock420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Dr. Dre produced the song Rich Girl by Gwen Stefani. - u/TitoMcGlocklin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Gwen Stefani fought with dyslexia as a child. - u/daddaman1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Gwen Stefani (No Doubt) sounds a lot like Matt Bellamy (Muse) when the pitch of her voice is lowered. - u/doctorquien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Gwen Stefanis Grammy-nominated single, Rich Girl, was a remake of a 1993 song by Louchie Lou & Michie One, which in turn was an adaptation of the song If I Were a Rich Man from the Broadway musical Fiddler on the Roof. - u/eindickeSchlampe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In the Homerpalooza episode of The Simpsons, No Doubt briefly appears as background characters. Gwen Stefanis brother, Eric, animated them in. - u/CoolHeadedLogician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Matt Smith (Doctor Who) has dated Gwen Stefanis step-daughter. - u/IAMAnerdAMA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224949.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Top 10 MILFs from Millennial TV Shows</a><br>
+
+<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
