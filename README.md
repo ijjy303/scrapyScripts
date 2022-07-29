@@ -1,159 +1,49 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/29/2022-13:47:23
+Last updated: 07/29/2022-14:47:23
 <br>
-## <a href="#linky2" id="linky1">The Best Songs To Rock At Your Funeral</a><br>
+## <a href="#linky2" id="linky1">19 Memes For Gamers Who Don't Buy the Battle Pass</a><br>
 
-<span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside https://www.reddit.com/r/AskReddit/comments/w0frrz/what_song_would_you_want_to_be_played_at_your/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032031/87226654/memesg1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I want to hire a lookalike of myself who will pop out of a coffin and perform the “Thriller” choreography. -u/lordcameltoe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224853.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032042/87226655/memesg2.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Ghostbuster theme. -u/Calm-Internet6926</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224854.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032053/87226656/memesg3.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Take It With Me When I Go.” Tom Waits -u/youngyeoman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224855.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032105/87226657/memesg4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Shine On You Crazy Diamond. -u/Teemo63339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224856.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032116/87226658/memesg6.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Closed casket…pop goes the weasel. -u/graeuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224857.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032128/87226660/memesg7.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Just tie my body to a ceiling fan and play Freebird. -u/tommytraddles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224858.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032139/87226661/memesg8.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Going Out in Style.” - Dropkick Murphys -u/ShockingPyro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224859.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032150/87226662/memesg9.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. My Grandpa had Always Look at the Bright Side of Life From Life of Brian at his funeral. Id like something like that. -u/TechnologyOdd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224860.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032203/87226663/memesg10.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. This Girl is on Fire. I want to be cremated -u/Jazzlike-Pineapple38</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224861.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032218/87226664/memesg11.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Wish You Were Here.” - Pink Floyd -u/AlexiosMakesMusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224862.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032229/87226665/memesg12.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Still Alive (from Portal). -u/Megalopath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224863.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032255/87226667/memesg14.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. As people start leaving, I’d like the Seinfeld theme to start playing. -u/Nine-Breaker009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224864.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032350/87226669/memesg16.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Now We Are Free…Song from Gladiator. -u/Dry-Communication901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224865.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032403/87226670/memesg17.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “How to Disappear Completely,” Radiohead. -u/windowmaker55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224866.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032415/87226671/memesg18.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Do You Realize” by The Flaming Lips.Ive said it since high school, and I mean it. The lyrics can be a little odd, but the theme of time being relative, that good days dont end, they simply enter your memory and exist permanently in the past…that is what I want people who miss me to hear. -u/AndrewFurg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224851.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032427/87226672/memesg19.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. I want the credits theme for Super Mario World (SNES) played as everyone walks out. It’s a chipper tune and I think would lift everyone up. It’s also fitting as that was the first real game I ever played at 5 years old and it has a special place in my heart. -u/CutAccording7289</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224867.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032440/87226673/memesg20.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “F*ck the pain away” - Peaches.My family would be horrified and I want the last laugh. -u/KingMotard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224868.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/032454/87226674/memesg21.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Parting Glass by the Dubliners. -u/doyola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224869.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This Must Be the Place - Talking Heads. it perfectly sums up loving life while also being a bit confused about it. it’s about not being able to say “I love you,” but meaning it and trying your best.Plus, everyone with a heart likes that song. -u/lorqvonray94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Tiptoe Through the Tulips…As performed by Tiny Tim. -u/Bodhik344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Carry on Wayward Son. -u/loverofgoodthings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Please Dont Bury Me. - John Prine. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Another One Bites the Dust by Queen. -u/fg10037</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Somewhere Over the Rainbow - Israel IZ Kamakawiwoʻole. -u/Sluggy_Toe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224875.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/033953/87226675/memesg13.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">20 Bizarre Facts That are Full of Random</a><br>
-
-<span style="font-size:4em">1. In Venezuela there is a thunderstorm that never ends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. It is a Felony to own 6 or more sex toys in the state of Texas. Texas penal code 43.23 obscenity (section F).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Did you know the fastest woman in the world would be ranked 6348th place amongst the fastest men in the world?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. 77% of people who inherit a large family fortune end up losing it all in just 3 years. 65% of all American professional athletes end up bankrupt 5 years after retirement. Knowing how to manage your personal finances is the key to wealth preservation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Elon Musk just sold 6M Tesla shares for $6.9B. With this cash, he will be able to exercise options from 2012 allowing him to buy 22.86M Tesla shares at $6.24 each. Elon Musk will thus have increased his total number of Tesla shares to 186M while having obtained several billion dollars in cash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Female fish will fake orgasms to trick males into thinking theyve successfully mated, then the female will swim off to find a better partner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Men who ejaculate at least 21 times a month slash their risk of prostate cancer by A THIRD. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. In Japan, many families eat a KFC for Christmas Dinner. Many people order their meals months in advance and queue for hours to collect them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Comparison: 261 children in Ukraine have been killed since the Russian invasion vs 650 shot and killed in the USA so far this year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Patrick has a fishing licence meaning he is allowed to kill other citizens of bikini bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Alan Turing, the man who cracked Germany’s Enigma code which helped Britain defeat Nazi Germany, was chemically castrated for being a homosexual which lead him to be clinically depressed and commit suicide in 1954.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Space suits take 5,000 hours to make, costs 1 million dollars, weighs about 110 pounds, and has 11 layers of material.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The wealth of U.S. billionaires increased by $2.1T during the pandemic. The wealth of the richest 1% of Americans now exceeds the entire wealth of the middle class. Even more serious is that the richest 1% report only a quarter of their income at most.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In feudal Japan, lords purposely built homes with squeaky floors as a defensive measure against ninjas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The expiration date on a bottle of water is for the bottle, not the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. JFKs wife knew of his affairs and, while not happy about them, had come to accept their arrangement. During an interview with a french reporter during a tour of the White House, she pointed at one of JFK’s secretaries and said in French, “And that is the woman who is sleeping with my husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. America has the largest strategic petroleum reserves in the world with 568 million barrels. Joe Biden has just decided to release 1 million barrels a day for 6 months, which represents 180 million barrels. The goal is to ease the pressure on the oil market.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. 1-3% of the population are considered the sleepless elite. They can fall asleep quickly and get 4-6 hours of sleep and be fully rested.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. If you find a $100 bill on the ground and it takes you a second to pick it up, for that brief moment you are making $360,000 per hour.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Until 1948, 7-Up contained lithium citrate, a mood stabilizer used to treat bipolar disorder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224695.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">25 Photos That Should Be Album Covers</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105856/87226198/baz.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105904/87226199/bear.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105907/87226201/bird.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105916/87226202/bus.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105921/87226203/cra.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105928/87226204/deer.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110045/87226213/red.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105947/87226206/fire.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110001/87226207/fugg.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110025/87226209/knobs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110027/87226210/lava.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110040/87226212/plane.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110053/87226214/richard.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110057/87226215/ship.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110104/87226216/sink.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110109/87226217/skull.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110117/87226218/sky.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110142/87226219/smoke.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110158/87226222/swim.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110146/87226220/space.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110156/87226221/star.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110207/87226223/trophy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110209/87226224/willem.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110421/87226226/cat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110434/87226227/fish.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">68 Randoms To Activate Your Laughter</a><br>
+## <a href="#linky3" id="linky2">68 Randoms To Activate Your Laughter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010108/87226262/87221469.jpg" style="width:100%"><br>
 
@@ -293,52 +183,7 @@ Last updated: 07/29/2022-13:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">20 Cringe-Worthy Reality TV Facts</a><br>
-
-<span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jenna Jameson hosted a reality TV show where five contestants competed in a series of sexual performances for a panel of judges - u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Robert Kardashian (father of the reality TV family and defense attorney of O.J. Simpson) pioneered the idea of playing music between movies in theaters, parlaying the concept into a business called Movie Tunes. - u/pickycheestickeater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. the concept of putting strangers together in a limited environment for an extended period of time and recording the drama that ensued (ie. Reality TV) was originated by the Dutch series Nummer 28 in 1991. A year later, The Real World on MTV came out. - u/PatsBruinsCeltsSox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. After surviving a year-long experiment on an isolated island for a British reality TV show, ten contestants learned that the show had been canceled 4 months into production. - u/NYCityNYState10108</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. in 1973 before reality TV, an anthropologist sailed across the Atlantic with 11 attractive people of different races/sex/nationalities. Known as the sex raft hed purposely done this to stoke sexual relations, create tension, and purposely sought danger to see if humans would act like monkeys. - u/-doughboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. there was a dating/reality TV show with 12 American women and a Prince Harry impersonator. - u/throwaway_06-20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. American reality TV stars Heidi Montag and Spencer Pratt spent most of their $10 million of accumulated earnings by 2010 because they believed the world would end in 2012. - u/garamond89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An American Family is widely considered to be the first reality TV series, first airing on PBS in 1973. Over 300 hours of footage of the Loud family was condensed into 12, one hour episodes documenting family drama resulting from a separation of Bill and Pat Loud. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. the reality tv show Murder In Small Town X whose finale aired on September 4, 2001. The winner of the show Ángel Juarbe Jr. ,who was a firefighter in NYC, would be dead a week later, one of the 343 NY firefighters killed at the World Trade Center. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Melanie Martinez had her home destroyed four times by Hurricane: Betsy (1965), Juan (1985), George (1998), and Katrina (2005). The reality TV show Hideous Homes gave her home a $20,000 remodeling, only to have it destroyed again by Hurricane Issac in 2012. - u/fuckingblackmale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Survivalist reality TV host Bear Grylls was extremely popular in China including a best-selling book and a celebrity survivalist reality TV show. But his reputation took a hit when he made beloved Chinese celebrities drink their own urine on TV. - 
-u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. British reality TV personality Bernie Fineman used to fix cars that the Kray Twins used in their crimes. - u/YourOwnBiggestFan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. the true Gordon Ramsay Effect: that restaurants, salons, and other concerns featured on reality TV shoes such as “Kitchen Nightmares” that are aimed at turning around troubled businesses fail twice as often as the industry average. - u/HeroicContender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. that the woman responsible for turning The History Channel into yet another reality TV station was promoted to CEO of all of A&E Television Networks (History, A&E, BIO, H2, Military, Lifetime, Lifetime Movie Network) - u/Harvin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. David Hasselhoff starred in his own A&E reality TV show about his efforts to resuscitate his career. The series was canceled after the first night. - u/labtec901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Channel Drift which results in a shift from informative, quality programming aimed at educated viewers, toward sensational, ratings-based, and/or reality-TV programming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Eden, a Survivor style reality TV series. Located in a remote part of Scotland, the series was beset with reports of bullying, hunger, a split camp and sexual jealousy. Channel 4 axed it but did not inform the participants, ten of whom stayed for a year. An update was broadcast months later. - ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Cops is the longest running Reality TV show ever. It started due to a Writers Guild of America strike. - u/alertnotalarmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. in the U.K in 2005 a reality TV show managed to trick a group (selected for incredible levels of gullibility) of wannabe astronauts into thinking they had been launched into space! - u/thatsCaptainplanet2u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224849.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">25 Cringe Pics To Make Your Skin Crawl</a><br>
+## <a href="#linky4" id="linky3">25 Cringe Pics To Make Your Skin Crawl</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225601.png" style="width:100%"><br>
 
@@ -392,7 +237,7 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">25 Things People Are Boycotting & You Should Too</a><br>
+## <a href="#linky5" id="linky4">25 Things People Are Boycotting & You Should Too</a><br>
 
 <span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
@@ -465,75 +310,7 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">22 Rare Things That Happened to People</a><br>
-
-<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226138.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226139.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226140.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226141.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226142.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226143.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226144.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226145.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Spoiled Student Gets Automatic ‘A’, So Teacher Gives Everyone Automatic ‘A'</a><br>
+## <a href="#linky6" id="linky5">Spoiled Student Gets Automatic ‘A’, So Teacher Gives Everyone Automatic ‘A'</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093549/87226154/one.jpg" style="width:100%"><br>
 
@@ -549,7 +326,7 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">37 Honest Memes We Can't Argue With </a><br>
+## <a href="#linky7" id="linky6">37 Honest Memes We Can't Argue With </a><br>
 
 <span style="font-size:4em">1. Why do all YouTuber creators look like rage comics? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226097.jpg" style="width:100%"><br>
 
@@ -624,6 +401,197 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226099.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226100.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">25 Photos That Should Be Album Covers</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105856/87226198/baz.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105904/87226199/bear.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105907/87226201/bird.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105916/87226202/bus.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105921/87226203/cra.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105928/87226204/deer.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110045/87226213/red.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105947/87226206/fire.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110001/87226207/fugg.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110025/87226209/knobs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110027/87226210/lava.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110040/87226212/plane.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110053/87226214/richard.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110057/87226215/ship.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110104/87226216/sink.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110109/87226217/skull.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110117/87226218/sky.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110142/87226219/smoke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110158/87226222/swim.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110146/87226220/space.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110156/87226221/star.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110207/87226223/trophy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110209/87226224/willem.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110421/87226226/cat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110434/87226227/fish.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">20 Bizarre Facts That are Full of Random</a><br>
+
+<span style="font-size:4em">1. In Venezuela there is a thunderstorm that never ends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. It is a Felony to own 6 or more sex toys in the state of Texas. Texas penal code 43.23 obscenity (section F).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Did you know the fastest woman in the world would be ranked 6348th place amongst the fastest men in the world?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. 77% of people who inherit a large family fortune end up losing it all in just 3 years. 65% of all American professional athletes end up bankrupt 5 years after retirement. Knowing how to manage your personal finances is the key to wealth preservation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Elon Musk just sold 6M Tesla shares for $6.9B. With this cash, he will be able to exercise options from 2012 allowing him to buy 22.86M Tesla shares at $6.24 each. Elon Musk will thus have increased his total number of Tesla shares to 186M while having obtained several billion dollars in cash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Female fish will fake orgasms to trick males into thinking theyve successfully mated, then the female will swim off to find a better partner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Men who ejaculate at least 21 times a month slash their risk of prostate cancer by A THIRD. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. In Japan, many families eat a KFC for Christmas Dinner. Many people order their meals months in advance and queue for hours to collect them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Comparison: 261 children in Ukraine have been killed since the Russian invasion vs 650 shot and killed in the USA so far this year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Patrick has a fishing licence meaning he is allowed to kill other citizens of bikini bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Alan Turing, the man who cracked Germany’s Enigma code which helped Britain defeat Nazi Germany, was chemically castrated for being a homosexual which lead him to be clinically depressed and commit suicide in 1954.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Space suits take 5,000 hours to make, costs 1 million dollars, weighs about 110 pounds, and has 11 layers of material.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The wealth of U.S. billionaires increased by $2.1T during the pandemic. The wealth of the richest 1% of Americans now exceeds the entire wealth of the middle class. Even more serious is that the richest 1% report only a quarter of their income at most.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In feudal Japan, lords purposely built homes with squeaky floors as a defensive measure against ninjas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The expiration date on a bottle of water is for the bottle, not the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. JFKs wife knew of his affairs and, while not happy about them, had come to accept their arrangement. During an interview with a french reporter during a tour of the White House, she pointed at one of JFK’s secretaries and said in French, “And that is the woman who is sleeping with my husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. America has the largest strategic petroleum reserves in the world with 568 million barrels. Joe Biden has just decided to release 1 million barrels a day for 6 months, which represents 180 million barrels. The goal is to ease the pressure on the oil market.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. 1-3% of the population are considered the sleepless elite. They can fall asleep quickly and get 4-6 hours of sleep and be fully rested.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. If you find a $100 bill on the ground and it takes you a second to pick it up, for that brief moment you are making $360,000 per hour.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Until 1948, 7-Up contained lithium citrate, a mood stabilizer used to treat bipolar disorder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224695.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">22 Rare Things That Happened to People</a><br>
+
+<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">20 Cringe-Worthy Reality TV Facts</a><br>
+
+<span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Jenna Jameson hosted a reality TV show where five contestants competed in a series of sexual performances for a panel of judges - u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Robert Kardashian (father of the reality TV family and defense attorney of O.J. Simpson) pioneered the idea of playing music between movies in theaters, parlaying the concept into a business called Movie Tunes. - u/pickycheestickeater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. the concept of putting strangers together in a limited environment for an extended period of time and recording the drama that ensued (ie. Reality TV) was originated by the Dutch series Nummer 28 in 1991. A year later, The Real World on MTV came out. - u/PatsBruinsCeltsSox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. After surviving a year-long experiment on an isolated island for a British reality TV show, ten contestants learned that the show had been canceled 4 months into production. - u/NYCityNYState10108</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. in 1973 before reality TV, an anthropologist sailed across the Atlantic with 11 attractive people of different races/sex/nationalities. Known as the sex raft hed purposely done this to stoke sexual relations, create tension, and purposely sought danger to see if humans would act like monkeys. - u/-doughboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. there was a dating/reality TV show with 12 American women and a Prince Harry impersonator. - u/throwaway_06-20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. American reality TV stars Heidi Montag and Spencer Pratt spent most of their $10 million of accumulated earnings by 2010 because they believed the world would end in 2012. - u/garamond89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. An American Family is widely considered to be the first reality TV series, first airing on PBS in 1973. Over 300 hours of footage of the Loud family was condensed into 12, one hour episodes documenting family drama resulting from a separation of Bill and Pat Loud. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. the reality tv show Murder In Small Town X whose finale aired on September 4, 2001. The winner of the show Ángel Juarbe Jr. ,who was a firefighter in NYC, would be dead a week later, one of the 343 NY firefighters killed at the World Trade Center. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Melanie Martinez had her home destroyed four times by Hurricane: Betsy (1965), Juan (1985), George (1998), and Katrina (2005). The reality TV show Hideous Homes gave her home a $20,000 remodeling, only to have it destroyed again by Hurricane Issac in 2012. - u/fuckingblackmale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Survivalist reality TV host Bear Grylls was extremely popular in China including a best-selling book and a celebrity survivalist reality TV show. But his reputation took a hit when he made beloved Chinese celebrities drink their own urine on TV. - 
+u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. British reality TV personality Bernie Fineman used to fix cars that the Kray Twins used in their crimes. - u/YourOwnBiggestFan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. the true Gordon Ramsay Effect: that restaurants, salons, and other concerns featured on reality TV shoes such as “Kitchen Nightmares” that are aimed at turning around troubled businesses fail twice as often as the industry average. - u/HeroicContender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. that the woman responsible for turning The History Channel into yet another reality TV station was promoted to CEO of all of A&E Television Networks (History, A&E, BIO, H2, Military, Lifetime, Lifetime Movie Network) - u/Harvin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. David Hasselhoff starred in his own A&E reality TV show about his efforts to resuscitate his career. The series was canceled after the first night. - u/labtec901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Channel Drift which results in a shift from informative, quality programming aimed at educated viewers, toward sensational, ratings-based, and/or reality-TV programming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Eden, a Survivor style reality TV series. Located in a remote part of Scotland, the series was beset with reports of bullying, hunger, a split camp and sexual jealousy. Channel 4 axed it but did not inform the participants, ten of whom stayed for a year. An update was broadcast months later. - ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Cops is the longest running Reality TV show ever. It started due to a Writers Guild of America strike. - u/alertnotalarmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. in the U.K in 2005 a reality TV show managed to trick a group (selected for incredible levels of gullibility) of wannabe astronauts into thinking they had been launched into space! - u/thatsCaptainplanet2u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224849.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
