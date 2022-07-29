@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/28/2022-22:47:24
+Last updated: 07/28/2022-23:47:22
 <br>
 ## <a href="#linky2" id="linky1">68 Randoms To Activate Your Laughter</a><br>
 
@@ -141,69 +141,57 @@ Last updated: 07/28/2022-22:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 Hot Tweets Roasted to Perfection </a><br>
+## <a href="#linky3" id="linky2">25 Photos That Should Be Album Covers</a><br>
 
-<span style="font-size:4em">1. Friends dont let their friends get bad tattoos. You better warn this man of the error of his ways. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225241.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105856/87226198/baz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This is fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225238.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105904/87226199/bear.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Library gang rise up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225239.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105907/87226201/bird.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. This poor woman. Kids today have no chill. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225240.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105916/87226202/bus.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. If you know you know and if you dont, then educate yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225242.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105921/87226203/cra.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This is the energy we love. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225243.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105928/87226204/deer.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Were not sure if this is a joke or a warning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225244.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110045/87226213/red.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Device cannot be found. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225245.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105947/87226206/fire.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Awe, she is so sweet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225246.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110001/87226207/fugg.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225237.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110025/87226209/knobs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Not going to lie, they had us in the first half. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225247.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110027/87226210/lava.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Chef Gusteau is a legend and a saint. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225248.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110040/87226212/plane.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is what my dreams look like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225249.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110053/87226214/richard.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225250.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110057/87226215/ship.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Oh no, this isnt going to end well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225251.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110104/87226216/sink.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225252.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110109/87226217/skull.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Hes about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225253.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110117/87226218/sky.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225254.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110142/87226219/smoke.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225255.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110158/87226222/swim.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This isnt funny, just sad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225256.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110146/87226220/space.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225257.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110156/87226221/star.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225258.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110207/87226223/trophy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225259.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110209/87226224/willem.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Lol, who doesnt love a good excel joke? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225260.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110421/87226226/cat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. And they look great together. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225264.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225266.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Love it when my lady cooks for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225267.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110434/87226227/fish.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -223,27 +211,47 @@ Last updated: 07/28/2022-22:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Top 10 MILFs from Millennial TV Shows</a><br>
+## <a href="#linky5" id="linky4">20 Bizarre Facts That are Full of Random</a><br>
 
-<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. In Venezuela there is a thunderstorm that never ends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224676.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. It is a Felony to own 6 or more sex toys in the state of Texas. Texas penal code 43.23 obscenity (section F).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Did you know the fastest woman in the world would be ranked 6348th place amongst the fastest men in the world?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. 77% of people who inherit a large family fortune end up losing it all in just 3 years. 65% of all American professional athletes end up bankrupt 5 years after retirement. Knowing how to manage your personal finances is the key to wealth preservation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Elon Musk just sold 6M Tesla shares for $6.9B. With this cash, he will be able to exercise options from 2012 allowing him to buy 22.86M Tesla shares at $6.24 each. Elon Musk will thus have increased his total number of Tesla shares to 186M while having obtained several billion dollars in cash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Female fish will fake orgasms to trick males into thinking theyve successfully mated, then the female will swim off to find a better partner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Men who ejaculate at least 21 times a month slash their risk of prostate cancer by A THIRD. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. In Japan, many families eat a KFC for Christmas Dinner. Many people order their meals months in advance and queue for hours to collect them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Comparison: 261 children in Ukraine have been killed since the Russian invasion vs 650 shot and killed in the USA so far this year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Patrick has a fishing licence meaning he is allowed to kill other citizens of bikini bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Alan Turing, the man who cracked Germany’s Enigma code which helped Britain defeat Nazi Germany, was chemically castrated for being a homosexual which lead him to be clinically depressed and commit suicide in 1954.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Space suits take 5,000 hours to make, costs 1 million dollars, weighs about 110 pounds, and has 11 layers of material.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The wealth of U.S. billionaires increased by $2.1T during the pandemic. The wealth of the richest 1% of Americans now exceeds the entire wealth of the middle class. Even more serious is that the richest 1% report only a quarter of their income at most.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In feudal Japan, lords purposely built homes with squeaky floors as a defensive measure against ninjas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The expiration date on a bottle of water is for the bottle, not the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. JFKs wife knew of his affairs and, while not happy about them, had come to accept their arrangement. During an interview with a french reporter during a tour of the White House, she pointed at one of JFK’s secretaries and said in French, “And that is the woman who is sleeping with my husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. America has the largest strategic petroleum reserves in the world with 568 million barrels. Joe Biden has just decided to release 1 million barrels a day for 6 months, which represents 180 million barrels. The goal is to ease the pressure on the oil market.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. 1-3% of the population are considered the sleepless elite. They can fall asleep quickly and get 4-6 hours of sleep and be fully rested.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. If you find a $100 bill on the ground and it takes you a second to pick it up, for that brief moment you are making $360,000 per hour.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Until 1948, 7-Up contained lithium citrate, a mood stabilizer used to treat bipolar disorder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224695.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -325,7 +333,52 @@ Last updated: 07/28/2022-22:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">19 People Who Used the Dark Web Reveal What They Saw</a><br>
+## <a href="#linky7" id="linky6">20 Cringe-Worthy Reality TV Facts</a><br>
+
+<span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Jenna Jameson hosted a reality TV show where five contestants competed in a series of sexual performances for a panel of judges - u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Robert Kardashian (father of the reality TV family and defense attorney of O.J. Simpson) pioneered the idea of playing music between movies in theaters, parlaying the concept into a business called Movie Tunes. - u/pickycheestickeater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. the concept of putting strangers together in a limited environment for an extended period of time and recording the drama that ensued (ie. Reality TV) was originated by the Dutch series Nummer 28 in 1991. A year later, The Real World on MTV came out. - u/PatsBruinsCeltsSox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. After surviving a year-long experiment on an isolated island for a British reality TV show, ten contestants learned that the show had been canceled 4 months into production. - u/NYCityNYState10108</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. in 1973 before reality TV, an anthropologist sailed across the Atlantic with 11 attractive people of different races/sex/nationalities. Known as the sex raft hed purposely done this to stoke sexual relations, create tension, and purposely sought danger to see if humans would act like monkeys. - u/-doughboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. there was a dating/reality TV show with 12 American women and a Prince Harry impersonator. - u/throwaway_06-20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. American reality TV stars Heidi Montag and Spencer Pratt spent most of their $10 million of accumulated earnings by 2010 because they believed the world would end in 2012. - u/garamond89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. An American Family is widely considered to be the first reality TV series, first airing on PBS in 1973. Over 300 hours of footage of the Loud family was condensed into 12, one hour episodes documenting family drama resulting from a separation of Bill and Pat Loud. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. the reality tv show Murder In Small Town X whose finale aired on September 4, 2001. The winner of the show Ángel Juarbe Jr. ,who was a firefighter in NYC, would be dead a week later, one of the 343 NY firefighters killed at the World Trade Center. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Melanie Martinez had her home destroyed four times by Hurricane: Betsy (1965), Juan (1985), George (1998), and Katrina (2005). The reality TV show Hideous Homes gave her home a $20,000 remodeling, only to have it destroyed again by Hurricane Issac in 2012. - u/fuckingblackmale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Survivalist reality TV host Bear Grylls was extremely popular in China including a best-selling book and a celebrity survivalist reality TV show. But his reputation took a hit when he made beloved Chinese celebrities drink their own urine on TV. - 
+u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. British reality TV personality Bernie Fineman used to fix cars that the Kray Twins used in their crimes. - u/YourOwnBiggestFan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. the true Gordon Ramsay Effect: that restaurants, salons, and other concerns featured on reality TV shoes such as “Kitchen Nightmares” that are aimed at turning around troubled businesses fail twice as often as the industry average. - u/HeroicContender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. that the woman responsible for turning The History Channel into yet another reality TV station was promoted to CEO of all of A&E Television Networks (History, A&E, BIO, H2, Military, Lifetime, Lifetime Movie Network) - u/Harvin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. David Hasselhoff starred in his own A&E reality TV show about his efforts to resuscitate his career. The series was canceled after the first night. - u/labtec901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Channel Drift which results in a shift from informative, quality programming aimed at educated viewers, toward sensational, ratings-based, and/or reality-TV programming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Eden, a Survivor style reality TV series. Located in a remote part of Scotland, the series was beset with reports of bullying, hunger, a split camp and sexual jealousy. Channel 4 axed it but did not inform the participants, ten of whom stayed for a year. An update was broadcast months later. - ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Cops is the longest running Reality TV show ever. It started due to a Writers Guild of America strike. - u/alertnotalarmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. in the U.K in 2005 a reality TV show managed to trick a group (selected for incredible levels of gullibility) of wannabe astronauts into thinking they had been launched into space! - u/thatsCaptainplanet2u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224849.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">19 People Who Used the Dark Web Reveal What They Saw</a><br>
 
 <span style="font-size:4em">1. To bypass the censors in a country I was visiting, then I realized VPN is faster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224735.jpg" style="width:100%"><br>
 
@@ -367,51 +420,115 @@ Last updated: 07/28/2022-22:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">20 Bizarre Facts That are Full of Random</a><br>
+## <a href="#linky9" id="linky8">25 Cringe Pics To Make Your Skin Crawl</a><br>
 
-<span style="font-size:4em">1. In Venezuela there is a thunderstorm that never ends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224676.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225601.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. It is a Felony to own 6 or more sex toys in the state of Texas. Texas penal code 43.23 obscenity (section F).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224677.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225580.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Did you know the fastest woman in the world would be ranked 6348th place amongst the fastest men in the world?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224678.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225600.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. 77% of people who inherit a large family fortune end up losing it all in just 3 years. 65% of all American professional athletes end up bankrupt 5 years after retirement. Knowing how to manage your personal finances is the key to wealth preservation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224679.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225595.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Elon Musk just sold 6M Tesla shares for $6.9B. With this cash, he will be able to exercise options from 2012 allowing him to buy 22.86M Tesla shares at $6.24 each. Elon Musk will thus have increased his total number of Tesla shares to 186M while having obtained several billion dollars in cash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224680.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Female fish will fake orgasms to trick males into thinking theyve successfully mated, then the female will swim off to find a better partner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224681.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225582.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Men who ejaculate at least 21 times a month slash their risk of prostate cancer by A THIRD. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224683.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In Japan, many families eat a KFC for Christmas Dinner. Many people order their meals months in advance and queue for hours to collect them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224685.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225597.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Comparison: 261 children in Ukraine have been killed since the Russian invasion vs 650 shot and killed in the USA so far this year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224686.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Patrick has a fishing licence meaning he is allowed to kill other citizens of bikini bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224687.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225585.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Alan Turing, the man who cracked Germany’s Enigma code which helped Britain defeat Nazi Germany, was chemically castrated for being a homosexual which lead him to be clinically depressed and commit suicide in 1954.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224688.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225586.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Space suits take 5,000 hours to make, costs 1 million dollars, weighs about 110 pounds, and has 11 layers of material.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224689.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225587.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. The wealth of U.S. billionaires increased by $2.1T during the pandemic. The wealth of the richest 1% of Americans now exceeds the entire wealth of the middle class. Even more serious is that the richest 1% report only a quarter of their income at most.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224690.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225588.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. In feudal Japan, lords purposely built homes with squeaky floors as a defensive measure against ninjas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224691.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225589.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. The expiration date on a bottle of water is for the bottle, not the water.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224682.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. JFKs wife knew of his affairs and, while not happy about them, had come to accept their arrangement. During an interview with a french reporter during a tour of the White House, she pointed at one of JFK’s secretaries and said in French, “And that is the woman who is sleeping with my husband.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224692.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225590.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. America has the largest strategic petroleum reserves in the world with 568 million barrels. Joe Biden has just decided to release 1 million barrels a day for 6 months, which represents 180 million barrels. The goal is to ease the pressure on the oil market.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224693.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225591.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. 1-3% of the population are considered the sleepless elite. They can fall asleep quickly and get 4-6 hours of sleep and be fully rested.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224684.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225592.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. If you find a $100 bill on the ground and it takes you a second to pick it up, for that brief moment you are making $360,000 per hour.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224694.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225593.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Until 1948, 7-Up contained lithium citrate, a mood stabilizer used to treat bipolar disorder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224695.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225594.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225596.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225598.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225599.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225602.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225603.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">30 Random Facts To Fill Your Noggin </a><br>
+## <a href="#linky10" id="linky9">25 Red Flags To Know Before Accepting A Job</a><br>
+
+<span style="font-size:4em">1. Having to take an online IQ test before even being considered for an interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. They try to sell you their service during your interview. It was really really bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The CEO/boss/whatever drives a conspicuously expensive car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. If its a private/family company, do a Google search for [company name] defendant and [company name] plaintiff. If the company has been sued, or is in the habit of suing others, that can be a red flag - although sometimes there are legit reasons for either. But its something worth paying attention to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If the company brings alcohol into the office for end of week sessions on a regular basis. I know they can be fun but its a stupendously bad idea for all kinds of reasons and if leadership hasnt figured that out then Id think twice before joining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Open interviews. It tells me that people leave faster than you can bring them in, and with good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. If when youre visiting the company for the first time and you pass someone in a hallway, do they smile and acknowledge your presence with a nod or maybe a hello, or do they ignore you? Its a small thing but very telling about the workplace culture. Similarly, do people seem healthy and energized or grey-faced and tired?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. To me it was a, we will start you low and will give you a ton of money later. They never do. Never happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. If the job description has a nondescriptively massive salary range ($25,000-$100,000).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Interviewed with a regional vp of a billion dollar company for a sales role. When I asked if the position was a backfill or open due to growth, he stated a backfill. I asked if the person was promoted or moved to a new role, and his response was, “we have had more people quit in 2021 than ever, and it’s because they can’t handle the pressure.” Needless to say, I declined the next step in the hiring process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I know people (rightfully) like to hate on HR, but if a company brags about not having an HR department to deal with, expect them to be very disorganized at a minimum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Anything that the manager says in the interview that doesn’t line up with the job description.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When you don’t get a review until you ask for a raise. Then, all of a sudden, you work is being questioned and you’re being berated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Trying to rush a decision out of you once the offer is made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I always ask the question, why is this role open? Is it a new role, or am I replacing someone? Why did that person leave? This really helps you seeing their reaction and if they look nervous its because the person who left did it because they were not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The “sink or swim” technique. It was my first day as a cashier. I got a couple of hours of training, then I was by myself and we were dead. All of a sudden this rush came in and I was asking for help. The manager goes “sink or swim, we’re busy back here, figure it out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. If when you are asked to come in for an interview, you are not treated with total respect for your time. For example, if you find yourself waiting for extended periods for an interview because so and so is in a really important meeting. Similarly, if you are not offered at least water and/or coffee if youre in for several interviews. I once interviewed at a place for seven straight hours with no break, no food, not even a glass of water. Fortunately I wasnt offered the job as it was at Michael Milkens firm... before he went to prison.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Are you here just for the money?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A couple old senior partners, lots of young employees and nothing in between. That means there’s no opportunity to move up, they can’t get people to stay, and can’t get lateral transfers. They work young folks for as long as they can, and the young folks leave once they figure out the company sucks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. When an employee quits or gets fired from the job and the company doesnt hire anyone new to replace them. It can be hard to tell as a red flag at first, but the temporary workload they added to your own, on top of what was left after the person quit, slowly becomes your new permanent workload, without any changes to your pay or benefits to compensate for the additional tasks. The further out it goes without the position being filled, the larger and more obvious the red flag becomes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Everybody is very young in a very old company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Competitive pay, but they wont tell you what the pay actually is in the posting or even the interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Asking if I planned to have children in the interview. (I was 19.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Asking if you are somebody whos willing to put in the time to make sure deadlines are met/work is done, or if youre the type of person who leaves when the workday is finished?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I interviewed once at a very huge organization that had a site in the town I was living in, and these guys were so proud of the new top of the line facilities. When they took me on a tour they pointed out the lovely zen garden area that was made for employees to go “unwind and clear their heads”. The problem with it was this area was positioned directly across from all the higher ups offices. Yeah… no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225029.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">30 Random Facts To Fill Your Noggin </a><br>
 
 <span style="font-size:4em">1. When Haiti was fighting the French in a civil war, the French sent some polish to deal with it, when they saw how the slaves were treated the Polish joined the Haiti revolution</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224212.jpg" style="width:100%"><br>
 
@@ -475,115 +592,73 @@ Last updated: 07/28/2022-22:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">25 Red Flags To Know Before Accepting A Job</a><br>
+## <a href="#linky12" id="linky11">30 Hot Tweets Roasted to Perfection </a><br>
 
-<span style="font-size:4em">1. Having to take an online IQ test before even being considered for an interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225005.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Friends dont let their friends get bad tattoos. You better warn this man of the error of his ways. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225241.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. They try to sell you their service during your interview. It was really really bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225012.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This is fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225238.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The CEO/boss/whatever drives a conspicuously expensive car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225007.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Library gang rise up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225239.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. If its a private/family company, do a Google search for [company name] defendant and [company name] plaintiff. If the company has been sued, or is in the habit of suing others, that can be a red flag - although sometimes there are legit reasons for either. But its something worth paying attention to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225008.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. This poor woman. Kids today have no chill. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. If the company brings alcohol into the office for end of week sessions on a regular basis. I know they can be fun but its a stupendously bad idea for all kinds of reasons and if leadership hasnt figured that out then Id think twice before joining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225010.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. If you know you know and if you dont, then educate yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Open interviews. It tells me that people leave faster than you can bring them in, and with good reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225019.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This is the energy we love. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225243.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. If when youre visiting the company for the first time and you pass someone in a hallway, do they smile and acknowledge your presence with a nod or maybe a hello, or do they ignore you? Its a small thing but very telling about the workplace culture. Similarly, do people seem healthy and energized or grey-faced and tired?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225011.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Were not sure if this is a joke or a warning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. To me it was a, we will start you low and will give you a ton of money later. They never do. Never happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225013.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Device cannot be found. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225245.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. If the job description has a nondescriptively massive salary range ($25,000-$100,000).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225015.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Awe, she is so sweet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225246.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Interviewed with a regional vp of a billion dollar company for a sales role. When I asked if the position was a backfill or open due to growth, he stated a backfill. I asked if the person was promoted or moved to a new role, and his response was, “we have had more people quit in 2021 than ever, and it’s because they can’t handle the pressure.” Needless to say, I declined the next step in the hiring process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225016.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225237.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I know people (rightfully) like to hate on HR, but if a company brags about not having an HR department to deal with, expect them to be very disorganized at a minimum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225017.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Not going to lie, they had us in the first half. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225247.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Anything that the manager says in the interview that doesn’t line up with the job description.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225014.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Chef Gusteau is a legend and a saint. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225248.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When you don’t get a review until you ask for a raise. Then, all of a sudden, you work is being questioned and you’re being berated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225018.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. This is what my dreams look like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225249.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Trying to rush a decision out of you once the offer is made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225020.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225250.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I always ask the question, why is this role open? Is it a new role, or am I replacing someone? Why did that person leave? This really helps you seeing their reaction and if they look nervous its because the person who left did it because they were not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225021.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Oh no, this isnt going to end well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The “sink or swim” technique. It was my first day as a cashier. I got a couple of hours of training, then I was by myself and we were dead. All of a sudden this rush came in and I was asking for help. The manager goes “sink or swim, we’re busy back here, figure it out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225022.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. If when you are asked to come in for an interview, you are not treated with total respect for your time. For example, if you find yourself waiting for extended periods for an interview because so and so is in a really important meeting. Similarly, if you are not offered at least water and/or coffee if youre in for several interviews. I once interviewed at a place for seven straight hours with no break, no food, not even a glass of water. Fortunately I wasnt offered the job as it was at Michael Milkens firm... before he went to prison.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225009.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Hes about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225253.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Are you here just for the money?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225023.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. A couple old senior partners, lots of young employees and nothing in between. That means there’s no opportunity to move up, they can’t get people to stay, and can’t get lateral transfers. They work young folks for as long as they can, and the young folks leave once they figure out the company sucks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225024.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225255.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When an employee quits or gets fired from the job and the company doesnt hire anyone new to replace them. It can be hard to tell as a red flag at first, but the temporary workload they added to your own, on top of what was left after the person quit, slowly becomes your new permanent workload, without any changes to your pay or benefits to compensate for the additional tasks. The further out it goes without the position being filled, the larger and more obvious the red flag becomes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225006.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This isnt funny, just sad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Everybody is very young in a very old company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225025.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225257.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Competitive pay, but they wont tell you what the pay actually is in the posting or even the interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225026.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Asking if I planned to have children in the interview. (I was 19.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225027.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225259.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. Asking if you are somebody whos willing to put in the time to make sure deadlines are met/work is done, or if youre the type of person who leaves when the workday is finished?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225028.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Lol, who doesnt love a good excel joke? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225260.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. I interviewed once at a very huge organization that had a site in the town I was living in, and these guys were so proud of the new top of the line facilities. When they took me on a tour they pointed out the lovely zen garden area that was made for employees to go “unwind and clear their heads”. The problem with it was this area was positioned directly across from all the higher ups offices. Yeah… no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225029.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225261.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225262.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Cringe Pics To Make Your Skin Crawl</a><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225601.png" style="width:100%"><br>
+<span style="font-size:4em">28. And they look great together. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225264.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225580.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225265.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225600.png" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225266.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225595.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225597.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225585.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225586.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225587.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225588.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225589.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225590.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225591.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225592.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225593.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225594.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225596.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225598.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225599.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225602.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225603.png" style="width:100%"><br>
+<span style="font-size:4em">31. Love it when my lady cooks for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225267.jpeg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
+## <a href="#linky13" id="linky12">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226138.png" style="width:100%"><br>
 
@@ -603,102 +678,27 @@ Last updated: 07/28/2022-22:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 Cringe-Worthy Reality TV Facts</a><br>
+## <a href="#linky14" id="linky13">Top 10 MILFs from Millennial TV Shows</a><br>
 
-<span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Jenna Jameson hosted a reality TV show where five contestants competed in a series of sexual performances for a panel of judges - u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224831.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Robert Kardashian (father of the reality TV family and defense attorney of O.J. Simpson) pioneered the idea of playing music between movies in theaters, parlaying the concept into a business called Movie Tunes. - u/pickycheestickeater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224832.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. the concept of putting strangers together in a limited environment for an extended period of time and recording the drama that ensued (ie. Reality TV) was originated by the Dutch series Nummer 28 in 1991. A year later, The Real World on MTV came out. - u/PatsBruinsCeltsSox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224833.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. After surviving a year-long experiment on an isolated island for a British reality TV show, ten contestants learned that the show had been canceled 4 months into production. - u/NYCityNYState10108</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224834.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. in 1973 before reality TV, an anthropologist sailed across the Atlantic with 11 attractive people of different races/sex/nationalities. Known as the sex raft hed purposely done this to stoke sexual relations, create tension, and purposely sought danger to see if humans would act like monkeys. - u/-doughboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224835.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. there was a dating/reality TV show with 12 American women and a Prince Harry impersonator. - u/throwaway_06-20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224836.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. American reality TV stars Heidi Montag and Spencer Pratt spent most of their $10 million of accumulated earnings by 2010 because they believed the world would end in 2012. - u/garamond89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224837.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. An American Family is widely considered to be the first reality TV series, first airing on PBS in 1973. Over 300 hours of footage of the Loud family was condensed into 12, one hour episodes documenting family drama resulting from a separation of Bill and Pat Loud. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224838.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. the reality tv show Murder In Small Town X whose finale aired on September 4, 2001. The winner of the show Ángel Juarbe Jr. ,who was a firefighter in NYC, would be dead a week later, one of the 343 NY firefighters killed at the World Trade Center. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Melanie Martinez had her home destroyed four times by Hurricane: Betsy (1965), Juan (1985), George (1998), and Katrina (2005). The reality TV show Hideous Homes gave her home a $20,000 remodeling, only to have it destroyed again by Hurricane Issac in 2012. - u/fuckingblackmale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Survivalist reality TV host Bear Grylls was extremely popular in China including a best-selling book and a celebrity survivalist reality TV show. But his reputation took a hit when he made beloved Chinese celebrities drink their own urine on TV. - 
-u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. British reality TV personality Bernie Fineman used to fix cars that the Kray Twins used in their crimes. - u/YourOwnBiggestFan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. the true Gordon Ramsay Effect: that restaurants, salons, and other concerns featured on reality TV shoes such as “Kitchen Nightmares” that are aimed at turning around troubled businesses fail twice as often as the industry average. - u/HeroicContender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. that the woman responsible for turning The History Channel into yet another reality TV station was promoted to CEO of all of A&E Television Networks (History, A&E, BIO, H2, Military, Lifetime, Lifetime Movie Network) - u/Harvin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. David Hasselhoff starred in his own A&E reality TV show about his efforts to resuscitate his career. The series was canceled after the first night. - u/labtec901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Channel Drift which results in a shift from informative, quality programming aimed at educated viewers, toward sensational, ratings-based, and/or reality-TV programming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Eden, a Survivor style reality TV series. Located in a remote part of Scotland, the series was beset with reports of bullying, hunger, a split camp and sexual jealousy. Channel 4 axed it but did not inform the participants, ten of whom stayed for a year. An update was broadcast months later. - ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Cops is the longest running Reality TV show ever. It started due to a Writers Guild of America strike. - u/alertnotalarmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. in the U.K in 2005 a reality TV show managed to trick a group (selected for incredible levels of gullibility) of wannabe astronauts into thinking they had been launched into space! - u/thatsCaptainplanet2u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224849.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">25 Photos That Should Be Album Covers</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105856/87226198/baz.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105904/87226199/bear.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105907/87226201/bird.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105916/87226202/bus.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105921/87226203/cra.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105928/87226204/deer.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110045/87226213/red.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105947/87226206/fire.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110001/87226207/fugg.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110025/87226209/knobs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110027/87226210/lava.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110040/87226212/plane.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110053/87226214/richard.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110057/87226215/ship.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110104/87226216/sink.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110109/87226217/skull.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110117/87226218/sky.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110142/87226219/smoke.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110158/87226222/swim.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110146/87226220/space.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110156/87226221/star.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110207/87226223/trophy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110209/87226224/willem.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110421/87226226/cat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110434/87226227/fish.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
