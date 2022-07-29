@@ -1,137 +1,31 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/29/2022-04:47:23
+Last updated: 07/29/2022-05:47:22
 <br>
-## <a href="#linky2" id="linky1">30 Hot Tweets Roasted to Perfection </a><br>
+## <a href="#linky2" id="linky1">Top 10 MILFs from Millennial TV Shows</a><br>
 
-<span style="font-size:4em">1. Friends dont let their friends get bad tattoos. You better warn this man of the error of his ways. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225241.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This is fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225238.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Library gang rise up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225239.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This poor woman. Kids today have no chill. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225240.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. If you know you know and if you dont, then educate yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225242.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This is the energy we love. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225243.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Were not sure if this is a joke or a warning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225244.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Device cannot be found. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225245.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Awe, she is so sweet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225246.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Not going to lie, they had us in the first half. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225247.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Chef Gusteau is a legend and a saint. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225248.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. This is what my dreams look like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225249.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225250.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Oh no, this isnt going to end well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hes about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225253.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225255.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This isnt funny, just sad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225257.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225259.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. Lol, who doesnt love a good excel joke? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225260.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. And they look great together. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225264.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225266.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Love it when my lady cooks for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225267.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">30 Random Facts To Fill Your Noggin </a><br>
-
-<span style="font-size:4em">1. When Haiti was fighting the French in a civil war, the French sent some polish to deal with it, when they saw how the slaves were treated the Polish joined the Haiti revolution</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. On 1939, February 14th a German battleship was launched and was sank with only 118 of the 2,200 crew members surviving. Among them was a black and white cat named Oscar which was found floating on a board and was picked up from the water by a British ship.On October 27th, 1941, the ship sank to the west of Gibraltar and Oscar was found clinging to a piece of plank and was later brought to the shore establishment in Gibraltar. When British officers learned what happened they named him “Unsinkable Sam”.After that he was adopted by the crew of the HMS Ark Royal and in 1941, November 14th, a torpedo hit the ship. Sam was AGAIN found clinging to a piece of plank and was described as “angry but unharmed”.By this time it was enough for the por cat and remained it’a days on land hunting mice in Gibraltar and then being transferred to the UK where he lived his final days.And this was the story of “Unsinkable Sam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Elephants can purr, like cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. On 8 April, 1942, a detachment of Polish soldiers, deployed to Iran by the Allies, bought a bear cub from an Iranian boy. In August the bear was given to the 22nd Artillery Supply company and named Wojtek by the soldiers.They fed him condensed milk, honey, fruit, and beer, which ended up being his favorite drink. He also picked up smoking, and enjoyed wrestling with his human friends, and bunking in on cold nights.When the Polish II Corps was redeployed it Italy to fight alongside the British, the Brits wouldn’t transport mere mascots on a troop ship, so Wojtek was formally enrolled in the Polish army as a private.During the brutal Battle of Monte Cassino Private Wojtek helped keep the guns firing by hauling boxes of ammo, each containing four 25 pound shells. These crates normally took four men to haul. For his bravery and service in battle Wojtek was promoted to Corporal, and his visage became the emblem of the 22nd Artillery Supply Company.After the war the 22nd was sent to Scotland, before being demobilized, at which point Wojtek was given to the Edinburgh Zoo, where he was often visited by Polish soldiers until his death in 1963.That is the story of Corporal Wojtek, the Polish artillery bear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If you ever see someone using an iPhone in a movie, they are not one of the bad guys. Apple requires as a condition of licensing their products for use in film/TV, that only protagonists are allowed to operate them on camera. So, if a character is using an iPad in a horror movie, they will not end up secretly being the killer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The worlds largest tire producer by total number of tires made is Lego.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Alexander the great, Mussolini, Napoleon, Julius Caesar and Hitler allegedly suffered from ailurophobia, the fear of cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ground cinnamon is technically sawdust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Your immune system doesn’t know your eyes exist. They have their own immune system. If your body’s immune system ever learned about your eyes it would view them as a foreign invader, and your white blood cells would melt them straight out of your sockets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A baby could swim in a blue whales veins. Thats how huge it is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In Starship Trooper, the actors agreed to do the coed shower scene only if the director got naked with them and he did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Alligators don’t age biologically, they don’t die from old age, they die from starvation or a disease. Blew my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The potato was once so undesirable that even the poor of Europe wanted nothing to do with it. They believed it caused leprosy, sterilization, and an over active sex drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There is a forest that is 107 acres, but made up of only one tree. Thousands of aspens that share a single root system.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Michael Jackson owned the original pair of scissorhands from the movie Edward Scissorhands .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. When a rooster crows it partially pinches shut its ear canals so it wont deafen itself...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Theres a surgery called a rotationoplasty where they remove the middle of your leg, then re-attach the foot (backwards) to your thigh so that your ankle can be your new knee for a prosthetic leg.Seems gross but it really improves the quality of life over the other option, which is no knee at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The little piggie that went to market...Wasnt shopping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Chainsaws were originally made for assisting in difficult childbirth (breech, etc).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Dragonflies suck water up their butts and shoot it out like jets when they get tired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. You can smell your own lungs. Your brain just filters it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Humans share 99.9% of their DNA with any other human on the planet. Humans share 99% of their DNA with their closest relative, the chimpanzee. Humans also share 60% of their DNA with bananas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The speed at which an insect can run is limited by its leg length.Cockroaches have hind legs which are longer than the front four legs.In some cockroach species, when running at full speed over flat ground, the front four legs leave the ground. The cockroach’s body acts like an aeroplane wing, flying just above the ground, kicking along with its back legs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Louie Louie was a #2 hit in 1963 for The Kingsmen. The vocals were so garbled and slurred, rumors spread that the lyrics were dirty. The FBI investigated the song on suspicion of violating obscenity laws. After two years, they decided the lyrics were unintelligible at any speed.Somehow, they missed the drummer yelling F**k! at 0:54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Penguin eggs turn transparent when hard boiled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Queen Elizabeth made the first transatlantic phone call as a teenager to her parents while traveling abroad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. German submarine U-215. Sank during WW2. Didn’t decompress though. It’s still sealed on the bottom of the ocean with 49 people inside. I’ve always wondered what went down in there…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. In toddlers, their adult teeth are right underneath their eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. There was a Finnish soldier named Aimo Koivunen who got separated from his unit. He had no food or weapons, and to avoid dying, took enough methamphetamine for 30 men. During his insane drug binge, he skied about 250 miles, passed over a landmine and survived, and caught and ate a bird raw. Thats just a few details, I recommend actually reading about this absolute legend yourself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. A majority of near-death experiences(being clinically dead but brought back) are positive. Do with that as you will.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224241.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">68 Randoms To Activate Your Laughter</a><br>
+## <a href="#linky3" id="linky2">68 Randoms To Activate Your Laughter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010108/87226262/87221469.jpg" style="width:100%"><br>
 
@@ -271,7 +165,7 @@ Last updated: 07/29/2022-04:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Bizarre Facts That are Full of Random</a><br>
+## <a href="#linky4" id="linky3">20 Bizarre Facts That are Full of Random</a><br>
 
 <span style="font-size:4em">1. In Venezuela there is a thunderstorm that never ends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224676.jpg" style="width:100%"><br>
 
@@ -315,7 +209,7 @@ Last updated: 07/29/2022-04:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">37 Honest Memes We Can't Argue With </a><br>
+## <a href="#linky5" id="linky4">37 Honest Memes We Can't Argue With </a><br>
 
 <span style="font-size:4em">1. Why do all YouTuber creators look like rage comics? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226097.jpg" style="width:100%"><br>
 
@@ -393,7 +287,7 @@ Last updated: 07/29/2022-04:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Cringe-Worthy Reality TV Facts</a><br>
+## <a href="#linky6" id="linky5">20 Cringe-Worthy Reality TV Facts</a><br>
 
 <span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
 
@@ -438,79 +332,7 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">22 Rare Things That Happened to People</a><br>
-
-<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Top 10 MILFs from Millennial TV Shows</a><br>
-
-<span style="font-size:4em">1. Dharma Montgomery - Dharma and Greg.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080207/87225733/dharmamontgomery.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jamie Buchman - Mad About You.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080229/87225735/jamiebuchman.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Gale Leery - Dawsons Creek.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080238/87225736/Galeleery.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Janet Darling - Clarissa Explains it All.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080244/87225737/janetdarling.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Joyce Summers - Buffy the Vampire Slayer.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080247/87225738/joycesummers.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Peggy Bundy - Married with Children.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080259/87225740/peggybundy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Barbara Mack - The Secret World of Alex Mack.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080155/87225732/barbaramack.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Carol Lambert - Step by Step.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080218/87225734/carollambert.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Maggie Seaver - Growing Pains.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080252/87225739/maggieseaver.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Rebecca Katsopolis - Full House.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/27/080304/87225741/RebeccaKatsopolis.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">25 Red Flags To Know Before Accepting A Job</a><br>
+## <a href="#linky7" id="linky6">25 Red Flags To Know Before Accepting A Job</a><br>
 
 <span style="font-size:4em">1. Having to take an online IQ test before even being considered for an interview.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225005.jpg" style="width:100%"><br>
 
@@ -564,49 +386,7 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">19 People Who Used the Dark Web Reveal What They Saw</a><br>
-
-<span style="font-size:4em">1. To bypass the censors in a country I was visiting, then I realized VPN is faster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. About 10 years ago a friend of mine used it to buy 4 grams of cocaine. Cost him about 5 Bitcoins. Bitcoins were worth about $50 at the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. To download Internet explorer again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Every-once in a while I like to browse the dark market places for entertainment. They offer everything from drugs in small or massive quantities, firearms, fake documents, pirated software. I would never and have never actually bought anything, I just find it weirdly interesting, but its really time consuming to find the right URL, make and account, etc. so its not something I do often.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Looking up the text of statutes which, as a deeply law-abiding person, I would never violate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. There are some other interesting things on these market places. Its not all super dark. But I did see human skulls for sale. But there are legal ways to buy those too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I watched a friend of mine make a drug purchase. There are market place onion sites for such things. Idk if this is overkill, but he uses a VPN. And he purchases from a secure Linux distro running on a virtual machine. Ofc in the end you always have to give your address to a stranger. The exchange is done with a handshake involving asymmetric encryption. The market place tries to mitigate FBI bait with user reviews. He tries to buy from the same sellers each time if he can. Still feels risky to me, but its definitely still alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I looked at the dark web. Found what was probrably a fake sales website but a very real website talking about selling illegal guns and the same thing with drugs. Again, probs not real but thats what I saw.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Raw Opium from Pakistan a few years back. Grapefruit size ball for ~$50. Came in a tagine pot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. To watch dark youtube, the sick and twisted version of youtube where smosh is still #1.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I used TOR once because I thought maybe mushrooms would help my depression and that seemed like maybe a much better option vs trying to find them locally. 3/4 of the links on the hidden wiki were dead and those that werent, looked like they were going to infect my PC/Network the second I clicked on anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I recently installed a dark web in the trunk of my car. Helps immensely with the groceries, stops them from shifting around as I drive home. Although Amazon called it a cargo net for some reason, dunno why.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I used to buy acid. I have no issue talking about it as it was about 8 years ago. Havent used the dark web since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. To rebroadcast baseball games without the express written consent of the Commissioner of Major League Baseball. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. To find out if somebody is selling my company’s or its employees information there. I work in cyber security.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The dark web is just filled with scam or bait drug sites by the FBI, its pretty boring honestly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. To watch specific YouTube videos about how to fix a door hinge or how to stop a smoke alarm from beeping or whatever, without the algorithm thinking Im just super into door hinges and smoke alarms forever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Part of my job! I am a Solutions Engineer for a Cyber Threat Intelligence service provider so I spend a good amount of time doing manual threat hunting in a lot of common dark web sources using Kali Linux VM and a lot of other tools besides TOR for looking up things like compromised credentials, data leakage, IOA (Indicators of Attack), chatter and even getting into IRCs and other covert communication platforms. I also do basic red-teaming tasks like open port scanning (NMAPing), vuln exploit correlation investigation, general attack surface assessments, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The only place where you can buy quality bat meat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224754.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">25 Cringe Pics To Make Your Skin Crawl</a><br>
+## <a href="#linky8" id="linky7">25 Cringe Pics To Make Your Skin Crawl</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225601.png" style="width:100%"><br>
 
@@ -660,7 +440,55 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">25 Photos That Should Be Album Covers</a><br>
+## <a href="#linky9" id="linky8">22 Rare Things That Happened to People</a><br>
+
+<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">25 Photos That Should Be Album Covers</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/105856/87226198/baz.jpg" style="width:100%"><br>
 
@@ -714,6 +542,152 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky11" id="linky10">Spoiled Student Gets Automatic ‘A’, So Teacher Gives Everyone Automatic ‘A'</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093549/87226154/one.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093236/87226149/IMG_3648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093213/87226147/IMG_3649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093239/87226150/IMG_3650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093248/87226151/IMG_3652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093252/87226152/IMG_3653.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">30 Random Facts To Fill Your Noggin </a><br>
+
+<span style="font-size:4em">1. When Haiti was fighting the French in a civil war, the French sent some polish to deal with it, when they saw how the slaves were treated the Polish joined the Haiti revolution</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. On 1939, February 14th a German battleship was launched and was sank with only 118 of the 2,200 crew members surviving. Among them was a black and white cat named Oscar which was found floating on a board and was picked up from the water by a British ship.On October 27th, 1941, the ship sank to the west of Gibraltar and Oscar was found clinging to a piece of plank and was later brought to the shore establishment in Gibraltar. When British officers learned what happened they named him “Unsinkable Sam”.After that he was adopted by the crew of the HMS Ark Royal and in 1941, November 14th, a torpedo hit the ship. Sam was AGAIN found clinging to a piece of plank and was described as “angry but unharmed”.By this time it was enough for the por cat and remained it’a days on land hunting mice in Gibraltar and then being transferred to the UK where he lived his final days.And this was the story of “Unsinkable Sam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Elephants can purr, like cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. On 8 April, 1942, a detachment of Polish soldiers, deployed to Iran by the Allies, bought a bear cub from an Iranian boy. In August the bear was given to the 22nd Artillery Supply company and named Wojtek by the soldiers.They fed him condensed milk, honey, fruit, and beer, which ended up being his favorite drink. He also picked up smoking, and enjoyed wrestling with his human friends, and bunking in on cold nights.When the Polish II Corps was redeployed it Italy to fight alongside the British, the Brits wouldn’t transport mere mascots on a troop ship, so Wojtek was formally enrolled in the Polish army as a private.During the brutal Battle of Monte Cassino Private Wojtek helped keep the guns firing by hauling boxes of ammo, each containing four 25 pound shells. These crates normally took four men to haul. For his bravery and service in battle Wojtek was promoted to Corporal, and his visage became the emblem of the 22nd Artillery Supply Company.After the war the 22nd was sent to Scotland, before being demobilized, at which point Wojtek was given to the Edinburgh Zoo, where he was often visited by Polish soldiers until his death in 1963.That is the story of Corporal Wojtek, the Polish artillery bear.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you ever see someone using an iPhone in a movie, they are not one of the bad guys. Apple requires as a condition of licensing their products for use in film/TV, that only protagonists are allowed to operate them on camera. So, if a character is using an iPad in a horror movie, they will not end up secretly being the killer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The worlds largest tire producer by total number of tires made is Lego.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Alexander the great, Mussolini, Napoleon, Julius Caesar and Hitler allegedly suffered from ailurophobia, the fear of cats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Ground cinnamon is technically sawdust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Your immune system doesn’t know your eyes exist. They have their own immune system. If your body’s immune system ever learned about your eyes it would view them as a foreign invader, and your white blood cells would melt them straight out of your sockets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A baby could swim in a blue whales veins. Thats how huge it is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In Starship Trooper, the actors agreed to do the coed shower scene only if the director got naked with them and he did.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Alligators don’t age biologically, they don’t die from old age, they die from starvation or a disease. Blew my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The potato was once so undesirable that even the poor of Europe wanted nothing to do with it. They believed it caused leprosy, sterilization, and an over active sex drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There is a forest that is 107 acres, but made up of only one tree. Thousands of aspens that share a single root system.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Michael Jackson owned the original pair of scissorhands from the movie Edward Scissorhands .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. When a rooster crows it partially pinches shut its ear canals so it wont deafen itself...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Theres a surgery called a rotationoplasty where they remove the middle of your leg, then re-attach the foot (backwards) to your thigh so that your ankle can be your new knee for a prosthetic leg.Seems gross but it really improves the quality of life over the other option, which is no knee at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The little piggie that went to market...Wasnt shopping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Chainsaws were originally made for assisting in difficult childbirth (breech, etc).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Dragonflies suck water up their butts and shoot it out like jets when they get tired.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. You can smell your own lungs. Your brain just filters it out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Humans share 99.9% of their DNA with any other human on the planet. Humans share 99% of their DNA with their closest relative, the chimpanzee. Humans also share 60% of their DNA with bananas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The speed at which an insect can run is limited by its leg length.Cockroaches have hind legs which are longer than the front four legs.In some cockroach species, when running at full speed over flat ground, the front four legs leave the ground. The cockroach’s body acts like an aeroplane wing, flying just above the ground, kicking along with its back legs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Louie Louie was a #2 hit in 1963 for The Kingsmen. The vocals were so garbled and slurred, rumors spread that the lyrics were dirty. The FBI investigated the song on suspicion of violating obscenity laws. After two years, they decided the lyrics were unintelligible at any speed.Somehow, they missed the drummer yelling F**k! at 0:54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Penguin eggs turn transparent when hard boiled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Queen Elizabeth made the first transatlantic phone call as a teenager to her parents while traveling abroad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. German submarine U-215. Sank during WW2. Didn’t decompress though. It’s still sealed on the bottom of the ocean with 49 people inside. I’ve always wondered what went down in there…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. In toddlers, their adult teeth are right underneath their eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. There was a Finnish soldier named Aimo Koivunen who got separated from his unit. He had no food or weapons, and to avoid dying, took enough methamphetamine for 30 men. During his insane drug binge, he skied about 250 miles, passed over a landmine and survived, and caught and ate a bird raw. Thats just a few details, I recommend actually reading about this absolute legend yourself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. A majority of near-death experiences(being clinically dead but brought back) are positive. Do with that as you will.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224241.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">30 Hot Tweets Roasted to Perfection </a><br>
+
+<span style="font-size:4em">1. Friends dont let their friends get bad tattoos. You better warn this man of the error of his ways. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This is fine. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Library gang rise up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. This poor woman. Kids today have no chill. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you know you know and if you dont, then educate yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This is the energy we love. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225243.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Were not sure if this is a joke or a warning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Device cannot be found. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225245.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Awe, she is so sweet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225246.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Not going to lie, they had us in the first half. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225247.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Chef Gusteau is a legend and a saint. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225248.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This is what my dreams look like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225249.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225250.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Oh no, this isnt going to end well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hes about to get it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225253.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225255.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This isnt funny, just sad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225257.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225259.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. Lol, who doesnt love a good excel joke? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225260.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. And they look great together. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225264.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225266.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Love it when my lady cooks for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87225267.jpeg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky14" id="linky13">Teacher Gets Fired When Giving Notice, Burns Grade Book and Records</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226138.png" style="width:100%"><br>
@@ -731,22 +705,6 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 <span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226144.png" style="width:100%"><br>
 
 <span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87226145.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">Spoiled Student Gets Automatic ‘A’, So Teacher Gives Everyone Automatic ‘A'</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093549/87226154/one.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093236/87226149/IMG_3648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093213/87226147/IMG_3649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093239/87226150/IMG_3650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093248/87226151/IMG_3652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/093252/87226152/IMG_3653.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
