@@ -1,7 +1,61 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/30/2022-07:47:23
+Last updated: 07/30/2022-08:47:23
 <br>
-## <a href="#linky2" id="linky1">68 Randoms To Activate Your Laughter</a><br>
+## <a href="#linky2" id="linky1">26 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky3" id="linky2">68 Randoms To Activate Your Laughter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010108/87226262/87221469.jpg" style="width:100%"><br>
 
@@ -141,129 +195,7 @@ Last updated: 07/30/2022-07:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">26 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">26 Awful Tattoos of Permanent Ick</a><br>
-
-<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
-
-<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">Thief Coworker Secretly Given Laxative-Laced Chocolates</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104207/87226554/IMG_3692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104222/87226556/IMG_3693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104212/87226555/IMG_3694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104231/87226557/IMG_3695.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">25 Things People Are Boycotting & You Should Too</a><br>
+## <a href="#linky4" id="linky3">25 Things People Are Boycotting & You Should Too</a><br>
 
 <span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
@@ -336,52 +268,19 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Cringe-Worthy Reality TV Facts</a><br>
+## <a href="#linky5" id="linky4">Thief Coworker Secretly Given Laxative-Laced Chocolates</a><br>
 
-<span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104207/87226554/IMG_3692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Jenna Jameson hosted a reality TV show where five contestants competed in a series of sexual performances for a panel of judges - u/yaboodooect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224831.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104222/87226556/IMG_3693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Robert Kardashian (father of the reality TV family and defense attorney of O.J. Simpson) pioneered the idea of playing music between movies in theaters, parlaying the concept into a business called Movie Tunes. - u/pickycheestickeater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224832.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104212/87226555/IMG_3694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. the concept of putting strangers together in a limited environment for an extended period of time and recording the drama that ensued (ie. Reality TV) was originated by the Dutch series Nummer 28 in 1991. A year later, The Real World on MTV came out. - u/PatsBruinsCeltsSox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. After surviving a year-long experiment on an isolated island for a British reality TV show, ten contestants learned that the show had been canceled 4 months into production. - u/NYCityNYState10108</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. in 1973 before reality TV, an anthropologist sailed across the Atlantic with 11 attractive people of different races/sex/nationalities. Known as the sex raft hed purposely done this to stoke sexual relations, create tension, and purposely sought danger to see if humans would act like monkeys. - u/-doughboy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. there was a dating/reality TV show with 12 American women and a Prince Harry impersonator. - u/throwaway_06-20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. American reality TV stars Heidi Montag and Spencer Pratt spent most of their $10 million of accumulated earnings by 2010 because they believed the world would end in 2012. - u/garamond89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An American Family is widely considered to be the first reality TV series, first airing on PBS in 1973. Over 300 hours of footage of the Loud family was condensed into 12, one hour episodes documenting family drama resulting from a separation of Bill and Pat Loud. - u/MorsesTheHorse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. the reality tv show Murder In Small Town X whose finale aired on September 4, 2001. The winner of the show Ángel Juarbe Jr. ,who was a firefighter in NYC, would be dead a week later, one of the 343 NY firefighters killed at the World Trade Center. - u/GentPc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Melanie Martinez had her home destroyed four times by Hurricane: Betsy (1965), Juan (1985), George (1998), and Katrina (2005). The reality TV show Hideous Homes gave her home a $20,000 remodeling, only to have it destroyed again by Hurricane Issac in 2012. - u/fuckingblackmale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Survivalist reality TV host Bear Grylls was extremely popular in China including a best-selling book and a celebrity survivalist reality TV show. But his reputation took a hit when he made beloved Chinese celebrities drink their own urine on TV. - 
-u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. British reality TV personality Bernie Fineman used to fix cars that the Kray Twins used in their crimes. - u/YourOwnBiggestFan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. the true Gordon Ramsay Effect: that restaurants, salons, and other concerns featured on reality TV shoes such as “Kitchen Nightmares” that are aimed at turning around troubled businesses fail twice as often as the industry average. - u/HeroicContender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. that the woman responsible for turning The History Channel into yet another reality TV station was promoted to CEO of all of A&E Television Networks (History, A&E, BIO, H2, Military, Lifetime, Lifetime Movie Network) - u/Harvin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. David Hasselhoff starred in his own A&E reality TV show about his efforts to resuscitate his career. The series was canceled after the first night. - u/labtec901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Channel Drift which results in a shift from informative, quality programming aimed at educated viewers, toward sensational, ratings-based, and/or reality-TV programming.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Eden, a Survivor style reality TV series. Located in a remote part of Scotland, the series was beset with reports of bullying, hunger, a split camp and sexual jealousy. Channel 4 axed it but did not inform the participants, ten of whom stayed for a year. An update was broadcast months later. - ClandesTyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Cops is the longest running Reality TV show ever. It started due to a Writers Guild of America strike. - u/alertnotalarmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. in the U.K in 2005 a reality TV show managed to trick a group (selected for incredible levels of gullibility) of wannabe astronauts into thinking they had been launched into space! - u/thatsCaptainplanet2u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224849.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104231/87226557/IMG_3695.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">25 Cringe Pics To Make Your Skin Crawl</a><br>
+## <a href="#linky6" id="linky5">25 Cringe Pics To Make Your Skin Crawl</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225601.png" style="width:100%"><br>
 
@@ -435,7 +334,7 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">22 Rare Things That Happened to People</a><br>
+## <a href="#linky7" id="linky6">22 Rare Things That Happened to People</a><br>
 
 <span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
 
@@ -480,6 +379,62 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 <span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">26 Awful Tattoos of Permanent Ick</a><br>
+
+<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
+
+<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
