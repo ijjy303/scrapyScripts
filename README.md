@@ -1,80 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/30/2022-06:47:23
+Last updated: 07/30/2022-07:47:23
 <br>
-## <a href="#linky2" id="linky1">25 Things People Are Boycotting & You Should Too</a><br>
-
-<span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Shaw Academy. Sleazy little fucks. Their lies in advertising, and nearly impossible to cancel a subscription with them. Tried doing a course that was a free 4-week course. The course was free for the first 4 weeks but the way they sold it was that the course itself was 4 weeks and free. They say you can finish a course as fast or long as you want, but I think it caps out at 3 lessons a week making you stay in the program for a few months, paying monthly.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
- Trying to cancel is a nightmare. Sifting through pages and pages of are you sure you want to cancel, heres a 5% discount, fill this form out, now this one, and now this one. All to get to a phone number that is only valid to call for a couple hours a day. When you finally get to call.. its an automated message. 10 minutes of a robot telling me it cares about me and wants me to stay. Only to FINALLY press 2 to cancel my subscription. Fuck. Shaw Academy. - AdoptedMexican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. EBay. Escaped an abusive relationship, and was changing all my passwords to random combinations. Set it to log out all devices and force the password to be re-entered. It wasnt actually doing that. (I tried from multiple devices so it wasnt a keylogger or anything my abusive ex was doing. I also confirmed if I logged in on other devices, reset password and clicked to log out all devices it was not logging other devices out). Abusive ex was bidding/winning auctions. I called ebay to report the issue. They said it isnt that my account has been hacked/fraud because I know who is doing it. They would do NOTHING. Said I would just have to take the bad feedback and be blacklisted and that I should pick better partners. Didnt matter that they had a major security flaw. All I could do was remove the payment methods from my account so he couldnt pay for his auctions. I will never use them again. - TribalMog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Expedia and all the sites they own/control. Which is a LOT of them. Expedia screwed me over in a bad way, and then their Customer Service people insulted me when I tried to call attention to the serious issues. Ultimately, they offered me a gift card as a Take It or Leave It solution to the entire issue. I left it, and went on a crusade to slam them on Twitter. I did it for a long time but got bored. - Darth_Corleone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Nestle. I may inadvertently grab one of its products, but when I see the name, i always put it back. - TradePrinceGobbo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Anything that even has a hint of MLM. Stop exploiting your personal relationships out of greed. - SH00TERxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Susan G. Koman Foundation - they employ alphabet soup & lawyer speak to defraud millions. NOTE: THEY DO NOT FUND RESEARCH NOR DO THEY HELP PATIENTS! THEY ARE AN ADVERTISING COMPANY. THEY ADVERTISE CANCER AWARENESS (because someone may be unaware of cancer \s) - msmame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Harvey Norman. They have terrible customer service and they took a whole lot of Australian government money that they didn’t deserve and are refusing to give it back. - 2exp77232917-1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Comcast - adogsgotcharacter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. FedEx - as much as I can help it.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I obviously cant boycott them if its the only delivery option on an e-commerce website, or if someone/company happens to ship me something via FedEx.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-But I have literally chosen to pay more on an e-commerce website, to specifically not use FedEx as a shipping service.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Reason: When I bought my Pixel 3, the first day it was supposed to arrive, I worked from home that day to sign for my package. They never arrived, and on the tracking, wrote that I wasnt home to receive the package.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I was furious, so I spent the next two days working from home, and even did my work in the kitchen, so that I could physically see if any delivery driver actually walks up to my door. 3 straight fucking days in a row, not a single person comes up. Ring doorbell even doesnt show them walking up, but they have THE MOTHER FUCKING AUDACITY to claim I wasnt home 3 straight days in a row.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I ended up having to pick it up at their facility. Just because they LIED 3 times in a row, even after a phone call each day the first two days, the customer service person even told me I probably missed them when I went to the restroom or something -_- Cant even own up to the fucking fact that everybody in their company are a bunch of fucking liars.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-So for that reason alone, I pay more for shipping as long as its not FedEx. Ive specifically driven a further distance to get something printed at Staples or Office Depot just so I dont step foot into a FedEx store.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Boycotting FedEx until the day I die. - needtobetterself31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was boycotting Blockbuster for charging me late fees because they lost the tape I returned in their evening return slot. Fuck those guys they ain’t getting my business! - c0nduit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Bank of America. Fucked me over for $10 back in 1993 on a mistake they made. Never getting my motherfucking business again. - sea_cricket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Pretty much anything in one of those unskippable YouTube ads. - coredenale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. State Farm. Thanks to some whistleblowers, they got busted committing fraud against their customers and the federal government after Hurricane Katrina. They told their claims adjusters to classify damage as flood damage, rather than wind damage, so that they could reject the claim and tell customers to file a federal flood insurance claim. - hells_cowbells</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Multi-level-marketing schemes. They’re shit companies that attract shitty, and sometimes desperate people, and train them on how to profit off of their friends and families. They destroy lives and I refuse to support them. - ClearBlue_Grace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Lifetime Fitness. It really pains me to write this, because I really love their gyms. I had a membership at Lifetime on and off through college. I went to a very large university with great amenities, so I didn’t need the membership during the school year. I tried to cancel at the end of one summer. I was at the gym one day and I asked about the cancellation. I was told to come back at a certain time frame the following Wednesday to cancel. I complied. When I showed up the “person doing the cancellations wasn’t there.” 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I was told to return the following Wednesday. Surprise, surprise, the person wasn’t there again. I told them I was going to stop the payment through the credit card company. They responded by telling me that they’d take me to collections then. I ended up escalating through their corporate offices to get the membership canceled. They managed to get 2 extra months of fees out of me. After that year of college, I shifted over to LA Fitness and maintained that membership for about 10 years. When I moved away from LA Fitness, I joined the YMCA, where I’ve been for the last 5-6 years. I will always have a gym membership, but I am committed to not joining Lifetime Fitness again until am reimbursed. It’s really a loss for both of us. - IGuessIamYouThen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225002.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">68 Randoms To Activate Your Laughter</a><br>
+## <a href="#linky2" id="linky1">68 Randoms To Activate Your Laughter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010108/87226262/87221469.jpg" style="width:100%"><br>
 
@@ -214,6 +141,60 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky3" id="linky2">26 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky4" id="linky3">26 Awful Tattoos of Permanent Ick</a><br>
 
 <span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
@@ -282,109 +263,80 @@ I was told to return the following Wednesday. Surprise, surprise, the person was
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">26 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky6" id="linky5">25 Things People Are Boycotting & You Should Too</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
+<span style="font-size:4em">2. Shaw Academy. Sleazy little fucks. Their lies in advertising, and nearly impossible to cancel a subscription with them. Tried doing a course that was a free 4-week course. The course was free for the first 4 weeks but the way they sold it was that the course itself was 4 weeks and free. They say you can finish a course as fast or long as you want, but I think it caps out at 3 lessons a week making you stay in the program for a few months, paying monthly.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+ Trying to cancel is a nightmare. Sifting through pages and pages of are you sure you want to cancel, heres a 5% discount, fill this form out, now this one, and now this one. All to get to a phone number that is only valid to call for a couple hours a day. When you finally get to call.. its an automated message. 10 minutes of a robot telling me it cares about me and wants me to stay. Only to FINALLY press 2 to cancel my subscription. Fuck. Shaw Academy. - AdoptedMexican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. EBay. Escaped an abusive relationship, and was changing all my passwords to random combinations. Set it to log out all devices and force the password to be re-entered. It wasnt actually doing that. (I tried from multiple devices so it wasnt a keylogger or anything my abusive ex was doing. I also confirmed if I logged in on other devices, reset password and clicked to log out all devices it was not logging other devices out). Abusive ex was bidding/winning auctions. I called ebay to report the issue. They said it isnt that my account has been hacked/fraud because I know who is doing it. They would do NOTHING. Said I would just have to take the bad feedback and be blacklisted and that I should pick better partners. Didnt matter that they had a major security flaw. All I could do was remove the payment methods from my account so he couldnt pay for his auctions. I will never use them again. - TribalMog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Expedia and all the sites they own/control. Which is a LOT of them. Expedia screwed me over in a bad way, and then their Customer Service people insulted me when I tried to call attention to the serious issues. Ultimately, they offered me a gift card as a Take It or Leave It solution to the entire issue. I left it, and went on a crusade to slam them on Twitter. I did it for a long time but got bored. - Darth_Corleone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Nestle. I may inadvertently grab one of its products, but when I see the name, i always put it back. - TradePrinceGobbo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
+<span style="font-size:4em">6. Anything that even has a hint of MLM. Stop exploiting your personal relationships out of greed. - SH00TERxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Susan G. Koman Foundation - they employ alphabet soup & lawyer speak to defraud millions. NOTE: THEY DO NOT FUND RESEARCH NOR DO THEY HELP PATIENTS! THEY ARE AN ADVERTISING COMPANY. THEY ADVERTISE CANCER AWARENESS (because someone may be unaware of cancer \s) - msmame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Harvey Norman. They have terrible customer service and they took a whole lot of Australian government money that they didn’t deserve and are refusing to give it back. - 2exp77232917-1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Comcast - adogsgotcharacter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. FedEx - as much as I can help it.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224988.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+I obviously cant boycott them if its the only delivery option on an e-commerce website, or if someone/company happens to ship me something via FedEx.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+But I have literally chosen to pay more on an e-commerce website, to specifically not use FedEx as a shipping service.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Reason: When I bought my Pixel 3, the first day it was supposed to arrive, I worked from home that day to sign for my package. They never arrived, and on the tracking, wrote that I wasnt home to receive the package.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+I was furious, so I spent the next two days working from home, and even did my work in the kitchen, so that I could physically see if any delivery driver actually walks up to my door. 3 straight fucking days in a row, not a single person comes up. Ring doorbell even doesnt show them walking up, but they have THE MOTHER FUCKING AUDACITY to claim I wasnt home 3 straight days in a row.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+I ended up having to pick it up at their facility. Just because they LIED 3 times in a row, even after a phone call each day the first two days, the customer service person even told me I probably missed them when I went to the restroom or something -_- Cant even own up to the fucking fact that everybody in their company are a bunch of fucking liars.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+So for that reason alone, I pay more for shipping as long as its not FedEx. Ive specifically driven a further distance to get something printed at Staples or Office Depot just so I dont step foot into a FedEx store.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Boycotting FedEx until the day I die. - needtobetterself31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I was boycotting Blockbuster for charging me late fees because they lost the tape I returned in their evening return slot. Fuck those guys they ain’t getting my business! - c0nduit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Bank of America. Fucked me over for $10 back in 1993 on a mistake they made. Never getting my motherfucking business again. - sea_cricket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224997.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Pretty much anything in one of those unskippable YouTube ads. - coredenale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224998.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
+<span style="font-size:4em">14. State Farm. Thanks to some whistleblowers, they got busted committing fraud against their customers and the federal government after Hurricane Katrina. They told their claims adjusters to classify damage as flood damage, rather than wind damage, so that they could reject the claim and tell customers to file a federal flood insurance claim. - hells_cowbells</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224999.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Multi-level-marketing schemes. They’re shit companies that attract shitty, and sometimes desperate people, and train them on how to profit off of their friends and families. They destroy lives and I refuse to support them. - ClearBlue_Grace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
+<span style="font-size:4em">16. Lifetime Fitness. It really pains me to write this, because I really love their gyms. I had a membership at Lifetime on and off through college. I went to a very large university with great amenities, so I didn’t need the membership during the school year. I tried to cancel at the end of one summer. I was at the gym one day and I asked about the cancellation. I was told to come back at a certain time frame the following Wednesday to cancel. I complied. When I showed up the “person doing the cancellations wasn’t there.” 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225001.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">22 Rare Things That Happened to People</a><br>
-
-<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+I was told to return the following Wednesday. Surprise, surprise, the person wasn’t there again. I told them I was going to stop the payment through the credit card company. They responded by telling me that they’d take me to collections then. I ended up escalating through their corporate offices to get the membership canceled. They managed to get 2 extra months of fees out of me. After that year of college, I shifted over to LA Fitness and maintained that membership for about 10 years. When I moved away from LA Fitness, I joined the YMCA, where I’ve been for the last 5-6 years. I will always have a gym membership, but I am committed to not joining Lifetime Fitness again until am reimbursed. It’s really a loss for both of us. - IGuessIamYouThen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225002.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">20 Cringe-Worthy Reality TV Facts</a><br>
+## <a href="#linky7" id="linky6">20 Cringe-Worthy Reality TV Facts</a><br>
 
 <span style="font-size:4em">1. that the mansion used on the ABC reality tv series, The Bachelor, is owned and lived in by a family. The family moves out and takes their furniture with them two times a year for 42 days of filming. This allows ABC to redecorate their house each season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224830.jpg" style="width:100%"><br>
 
@@ -429,7 +381,7 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Cringe Pics To Make Your Skin Crawl</a><br>
+## <a href="#linky8" id="linky7">25 Cringe Pics To Make Your Skin Crawl</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225601.png" style="width:100%"><br>
 
@@ -480,6 +432,54 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225602.png" style="width:100%"><br>
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225603.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">22 Rare Things That Happened to People</a><br>
+
+<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
