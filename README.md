@@ -1,189 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/29/2022-21:47:23
+Last updated: 07/29/2022-22:47:23
 <br>
-## <a href="#linky2" id="linky1">37 Honest Memes We Can't Argue With </a><br>
-
-<span style="font-size:4em">1. Why do all YouTuber creators look like rage comics? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Mexico, the land of sepia. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I know you didnt ask for a serious explanation, but youre going to get one so dont pout. They do this because snakes are seen as evil creatures, in much thanks to the bible, so snake looking features is an easy way to depict villains.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. She doesnt trust me to do a damn thing on my own. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Bro, you think this is funny? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. One day when me and the boys have made it, were going to live here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. We never realized this. No way this is true, no way. And if it is, wtf Rowling? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226100.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">22 Rare Things That Happened to People</a><br>
-
-<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">26 Awful Tattoos of Permanent Ick</a><br>
-
-<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
-
-<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">68 Randoms To Activate Your Laughter</a><br>
+## <a href="#linky2" id="linky1">68 Randoms To Activate Your Laughter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/010108/87226262/87221469.jpg" style="width:100%"><br>
 
@@ -323,7 +141,19 @@ Last updated: 07/29/2022-21:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">25 Things People Are Boycotting & You Should Too</a><br>
+## <a href="#linky3" id="linky2">Thief Coworker Secretly Given Laxative-Laced Chocolates</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104207/87226554/IMG_3692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104222/87226556/IMG_3693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104212/87226555/IMG_3694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104231/87226557/IMG_3695.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">25 Things People Are Boycotting & You Should Too</a><br>
 
 <span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
@@ -393,6 +223,108 @@ Boycotting FedEx until the day I die. - needtobetterself31</span><br><img src="h
 
 <span style="font-size:4em">
 I was told to return the following Wednesday. Surprise, surprise, the person wasn’t there again. I told them I was going to stop the payment through the credit card company. They responded by telling me that they’d take me to collections then. I ended up escalating through their corporate offices to get the membership canceled. They managed to get 2 extra months of fees out of me. After that year of college, I shifted over to LA Fitness and maintained that membership for about 10 years. When I moved away from LA Fitness, I joined the YMCA, where I’ve been for the last 5-6 years. I will always have a gym membership, but I am committed to not joining Lifetime Fitness again until am reimbursed. It’s really a loss for both of us. - IGuessIamYouThen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225002.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">26 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">22 Rare Things That Happened to People</a><br>
+
+<span style="font-size:4em">1. Getting crushed by a random branch but surviving with minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Raising anchor of your oil tanker only to realize you’ve hooked an unexploded torpedo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This sign post was launched into the side of my apartment after a drunk driving accident on my street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Man catches the same fish a month and a half later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I’ll never kick a kickball higher in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Back in 2000, Kevin Hines jumped off the golden gate bridge due mental illnesses. He miraculously survived because a sea lion was bumping him up and kept his head above water. Now he is a suicide prevention speaker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mom killed a wasp while closing the garage door.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Luckily for the people in the truck, their search for a lawyer is over before it began.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Military Helicopter from MCAS Miramar (Former home of Top Gun) performs an emergency landing on a beach in front of Kenny Loggins who recorded the song “Danger Zone” for the movie Top Gun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Bird flew at precisely the right height and velocity to successfully shit inside my car through my open window while I sat in line at a drive thru. Almost a bullseye on the trip button.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This drunk asshole crashed into a ‘Report Impaired Drivers’ sign in Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My egg perfectly inverted itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My dad running into Jerry Springer at the airport & then running into each other at a Verizon Store the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Just a snake crawling out of my wife’s car at customs during a random check.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. When you notice it…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lightning strikes the road on I-10 in Florida causing a chunk of asphalt to go through the windshield of a truck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Someone parked underground with their sunroof open and a pipe burst above them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I tried to swat a fly using some paper in a plastic envelope. One lucky swing and I somehow caught the fly – alive – INSIDE the envelope.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. How does a car crash like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This tiny bubble landed on a cactus and didn’t pop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225699.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -495,15 +427,59 @@ u/lqwertyd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/25
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Thief Coworker Secretly Given Laxative-Laced Chocolates</a><br>
+## <a href="#linky9" id="linky8">26 Awful Tattoos of Permanent Ick</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104207/87226554/IMG_3692.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104222/87226556/IMG_3693.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104212/87226555/IMG_3694.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104231/87226557/IMG_3695.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
+
+<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
