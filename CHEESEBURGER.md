@@ -1,5 +1,5 @@
 # We Haz Da Meatz<br>
-Last updated: 07/30/2022-11:47:18
+Last updated: 07/30/2022-12:47:18
 <br>
 ## <a href="#linky2" id="linky1">Here Are 15 Tweets By British People That Cracked Us Up This Week</a><br>
 
@@ -35,7 +35,65 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">Guy Gives Away His Concert Ticket To Another Girl Because The First One Only Wanted To Go As Friends</a><br>
+## <a href="#linky3" id="linky2">Watch This Quarterback Fumble After His Running Back Projectile Vomits All Over the Field</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/8998491136/hF9F1A479" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/8998491904/hA0211919" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/8998492672/h6AA2C967/im-sorry-but-zaxbys-sauce" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/8998493696/h6F134568" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/8998494208/hEE80E08E" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/8998494464/h5888DA80" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Women Reveal What They Think The Hottest Body Parts Are</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690642688/hCE0E5CF4/posted-by-ufew_print5387-2-days-ago-24-opinion-s-sexiest-body-part-example-back-shoulders-face" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690630400/hDE0373F2/their-thighs-if-they-look-like-tree-trunks-can-smash-women-everything-women-are-magical-427k-share" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690630912/h4782B584/hands-and-shoulders-and-stuff-between-do-not-put-hand-through-shoulder-sounds-painful-15k-share" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690633472/hC2A6B8B0/long-hair-love-long-dark-hair-light-eyes-combo-on-women-muscular-arms-or-really-long-legs-853-share" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690630656/h0D200844/stellar-being-collarbones-get-2-days-ago-565-share" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690631680/h86FB355E/1foxyroxy-2-days-ago-hands-and-back-definitely-can-say-butt-butt-too-wait-now-thighs-541-share" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690631168/h171F56B4/he-had-sent-and-inadvertently-spent-like-full-minute-or-two-just-talking-about-his-hands-share-480" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690632448/h5CF017F7/if-someone-has-good-smile-headless-photos-random-shirtless-men-do-absolutely-nothing-404-share" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690632960/hAA34531D/latenightcheesecake9-2-days-ago-mind-and-good-teeth-242-b-share" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690631424/h9ABC6333/are-eyes-body-part-if-so-eyes-eye-contact-sending-messages-through-eyes-smiling-with-eyes-236-share" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690631936/h5C56DFF5/more-attractive-got-lucky-with-my-husband-hes-very-attractive-just-wish-he-could-see-see-198-share" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690632192/hCD31DF31/p1mpkookie-absolutely-4-157-b-2-days-ago-love-big-noses-and-thick-eyebrows-share" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690633728/hDEB81800/illuminhotti-2-days-ago-voice-4-95-b-share" style="width:100%"><br>
+
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9690633216/h2020BE88/skinny-fit-or-chubby-guy-just-love-those-parts-on-woman-love-collarbones-and-décolletage-480-share" style="width:100%"><br>
+
+<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9690632704/h4395E03F/black_tears524-2-days-ago-shoulders-always-shoulders-4-68-share" style="width:100%"><br>
+
+<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9690634496/h6A113AB7/lol-take-smart-kind-guy-who-happens-be-less-attractive-over-super-hot-asshole-any-day-67-share" style="width:100%"><br>
+
+<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9690633984/h2254E8F7/chauncetime-2-days-ago-love-nice-arms-not-necessarily-huge-just-defined-and-broad-shoulders-53-share" style="width:100%"><br>
+
+<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9690634752/h8FAE4440/like-jason-momoa-have-no-use-dude-who-cant-like-loom-glower-over-stuff-if-makes-sense-35-share" style="width:100%"><br>
+
+<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9690634240/h9F2F0ABC/cosmicdaytripper-2-days-ago-eyes-beautiful-dark-brown-eyes-are-my-favorite-4-14-b-share" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">Guy Gives Away His Concert Ticket To Another Girl Because The First One Only Wanted To Go As Friends</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690580480/hFD1AC975/aita-giving-my-concert-ticket-another-girl-after-my-friend-said-she-only-wanted-go-with-as-friends" style="width:100%"><br>
 
@@ -65,7 +123,7 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">Dad Pettily Pulls Out Of Funding His Daughters Wedding Leaves Daughter Crying</a><br>
+## <a href="#linky6" id="linky5">Dad Pettily Pulls Out Of Funding His Daughters Wedding Leaves Daughter Crying</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690804224/h261EB8C5/on-relatively-good-terms-because-diana-diana-is-getting-married-5-months-and-diana-have-wonderfu" style="width:100%"><br>
 
@@ -105,43 +163,7 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Funniest Complicated Relationship Memes We Saw This Past Week </a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690911744/h9F011D12/packaged-goods-making-lunch-him3-love-penis" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690912000/h959476D8/person-are-both-toxic-each-other-but-try-make-work" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690912512/h0BE61B83/person-oh-s-him-dont-judge-okay-its-an-old-pic-swear-hes-cuter-person" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690912768/h066D9418/person-nobody-feel-like-lying-but-ok-love-well-thank" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690912256/h35A6D24B/packaged-goods-going-work-be-my-own-sugar-daddy" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690913024/h36C250B9/packaged-goods-and-this-is-my-toxic-trait-someone-who-wouldnt-do-same-am" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690914304/h7564A5AA/outerwear-why-do-even-want-him-man-s-just-something-about-different-okk" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690913536/hFF1DAB98/person-why-do-yall-stop-cuddling-us-middle-night-roll-over-other-side-bed-s-over-there" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690913792/hEF3A5494/pants-dont-jump-conclusions-piea-110-dolce-tr" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690914048/hF864E2EB/packaged-goods-never-dating-again-also-hes-so-cute-here-go-again" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690913280/hEE6F20C7/person-miss-him-he-is-around-tato" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690914560/h1B472E8B/person-showing-my-friend-guy-love-with-this-week" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690914816/h1B81E53B/romance-and-love-s-waste-time-and-energy-also-2-secs-later-where-is-love-my-life-where-are-they" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9690915072/h13A12B87/person-realize-have-tell-my-life-story-all-over-again-be-another-relationship-w-propie" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9690915328/h09953769/person-love-is-air-girtzzzclub" style="width:100%"><br>
-
-<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9690915584/h6AEABF85/person-rae-rae_sunshine69-men-are-really-into-3-days-and-then-be-like-nvm" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">Boyfriend Fuming After Girlfriend Uses His Gym Equipment Without His Permission </a><br>
+## <a href="#linky7" id="linky6">Boyfriend Fuming After Girlfriend Uses His Gym Equipment Without His Permission </a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691191296/h725DC9F2/asshole-posted-by-uheythereuvicecity-16-hours-ago-2-aita-not-wanting-my-gf-use-my-gym-equipment" style="width:100%"><br>
 
@@ -169,7 +191,7 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Woman Gets Publicly Embarrassed By MotherInLaw Leaves MotherInLaw  Husband Fuming When She Stands Up For Herself</a><br>
+## <a href="#linky8" id="linky7">Woman Gets Publicly Embarrassed By MotherInLaw Leaves MotherInLaw  Husband Fuming When She Stands Up For Herself</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690594304/hAD039DEC/his-mom-invited-us-celebratory-dinner-at-restaurant-after-she-completed-her-recovery-had-with-d" style="width:100%"><br>
 
@@ -207,35 +229,35 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">Women Disclose Tips For Fighting Nerves On A First Date </a><br>
+## <a href="#linky9" id="linky8">Men Disclose What Has Become Less Attractive To Them With Age</a><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691337984/h30F968DF/are-best-tips-fighting-nerves-on-first-date" style="width:100%"><br>
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690809344/h306D626A/has-become-unattractive-as-gotten-older" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691335680/hC94C889D/animal-ten-pints" style="width:100%"><br>
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690812160/h04684549/but-sort-just-went-with-because-most-teens-and-20-somethings-seem-share-quality-now-30-want-no-part" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691335424/h77328EC9/admit-nervous-odds-are-they-are-too-worked" style="width:100%"><br>
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690810624/h6CC17B96/blainefeinspains-9-hr-ago-drama" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691336192/h78537F24/shoulder-back-head-high-going-great-good-going-not-so-great-leave-get-out-head-and-enjoy-moment" style="width:100%"><br>
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690811648/h47BF4500/ratsofat-8-hr-ago-2-pretty-much-everything-s-not-my-wife-stability-is-sexy" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691335168/h66D9E6E7/remember-other-person-is-just-as-nervous" style="width:100%"><br>
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690811904/hAB96736B/animal-momoovalley-9-hr-ago-people-younger-than" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691335936/h7026AC0E/imagine-everyone-room-is-naked-no-wait-not-date-tho-dont-picture-them-naked-might-make-more-nervous" style="width:100%"><br>
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690809856/h631D3E60/up-late-and-going-out-all-hours-my-wife-and-love-an-old-80s-movie-and-cup-tea-bed-on-cold-night" style="width:100%"><br>
 
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691336448/hF5725D40/sit-beside-person-instead-front-him-eating-go-movies-on-date-being-dark-movie-theater-might-help" style="width:100%"><br>
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690809600/hF6AB6903/necklace-monsterpoodle-9-hr-ago-myself-mirror" style="width:100%"><br>
 
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691337728/h878E5275/because-had-no-expectation-second-date-first-place-win-win-all-way-around-no-matter-happens" style="width:100%"><br>
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690810112/h4E9D937E/deadpanjunkie-6-hr-ago-hahaha-truth-hurts-before-pandemic-fitness-dude-now-lump" style="width:100%"><br>
 
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691336960/h0840AB60/or-no-where-just-have-fun-s-get-few-dates-and-have-make-decision-one-way-or-other-come-unstuck" style="width:100%"><br>
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690810368/hAC0B6C5C/animal-oddball667-9-hr-ago-male-girls-who-dont-have-boundaries" style="width:100%"><br>
 
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691336704/h13CC1A98/single-shot-tequila" style="width:100%"><br>
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690811136/h579B8B21/electronic-pain_9329-9-hr-ago-clubs-and-staying-out-late-partying-and-large-crowds-people" style="width:100%"><br>
 
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691337216/h24C28CD7/1-hour-coffee-date-this-way-are-not-stuck-if-dont-vibe" style="width:100%"><br>
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690810880/hA3401D8D/dopaminequagmire-9-hr-ago-literally-everything-think-turned-bitter" style="width:100%"><br>
 
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691337472/h6F5A0225/no-need-be-intimidated-or-nervous-gracing-him-or-whoever-with-presence-s-little-cocky-but-helps-lol" style="width:100%"><br>
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690811392/hE769A435/used-think-cool-and-just-do-now-know-obvious-displays-some-pretty-sketchy-character-some-instances" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Funniest Marriage Memes We Saw This Past Week </a><br>
+## <a href="#linky10" id="linky9">Funniest Marriage Memes We Saw This Past Week </a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691206400/hBD8191CF/packaged-goods-congratulations-them" style="width:100%"><br>
 
@@ -269,7 +291,7 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">24 Of The Funniest Dating  Relationship Tweets We Saw This Week </a><br>
+## <a href="#linky11" id="linky10">24 Of The Funniest Dating  Relationship Tweets We Saw This Week </a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690832640/h794AD7E9/depends-on-who-is-asking-438-pm-jul-25-2022-twitter-iphone-997-retweets-62-quote-tweets-3540-likes" style="width:100%"><br>
 
@@ -321,7 +343,63 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Guy Buys Luxury Watch Over Paying His Fiancees Parents Back For Overseas Vacation</a><br>
+## <a href="#linky12" id="linky11">Delusional Woman Demands Potential Dating App Matches Take A Good Look In The Mirror Before Swiping Right On Her </a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691478784/hDB2C1B90/rrnicegirls-posted-by-udlink10-5-days-ago-wonder-well-shes-doing" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691479040/h4A7A35B0/guy-do-have-most-teeth-do-grown-ass-man-have-pictures-on-profile-with-goofyass-snapchat-filters" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691478528/hD590C060/up-girl-dont-have-bring-anything-table-but-bet-still-bring-more-than-non-smoker-sagittarius-dog" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691476736/hB002127A/5-days-ago-she-identifies-as-dog-not-possible-dogs-are-much-better-beings-than-whatever-she-is" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691477504/hE9D22167/tromoslykos-5-days-ago-oh-bringing-lot-more-table-alright-lot-more-horse-shit" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691476992/hD7A9D039/once-date-had-once-showed-many-liked-and-matches-she-had-felt-as-if-she-got-liked-by-whole-country" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691476480/h66CE24F4/isaacjb1995-5-days-ago-omg-s-such-sagittarius-thing-say" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691477248/h4AC38D10/palaiminta-5-days-ago-dont-think-this-is-real-sorry-but-no-one-is-crazy-refuse-believe" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691476224/hBA0FC27D/human_dumpster-5-days-ago-she-talks-lot-shit-dog" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691478272/hA2A26345/one-guy-who-says-s-right-queen-fuck-those-childish-boys-real-man-let-financially-support-please" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691477760/hB831ECB8/think-insulting-stranger-on-bio-on-datingsocial-app-is-gonna-attract-right-person-or-any-person" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691478016/hB23D0EF8/dmjones6591-5-days-ago-43kms-isnt-far-enough" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">Women Disclose Tips For Fighting Nerves On A First Date </a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691337984/h30F968DF/are-best-tips-fighting-nerves-on-first-date" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691335680/hC94C889D/animal-ten-pints" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691335424/h77328EC9/admit-nervous-odds-are-they-are-too-worked" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691336192/h78537F24/shoulder-back-head-high-going-great-good-going-not-so-great-leave-get-out-head-and-enjoy-moment" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691335168/h66D9E6E7/remember-other-person-is-just-as-nervous" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691335936/h7026AC0E/imagine-everyone-room-is-naked-no-wait-not-date-tho-dont-picture-them-naked-might-make-more-nervous" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691336448/hF5725D40/sit-beside-person-instead-front-him-eating-go-movies-on-date-being-dark-movie-theater-might-help" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691337728/h878E5275/because-had-no-expectation-second-date-first-place-win-win-all-way-around-no-matter-happens" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691336960/h0840AB60/or-no-where-just-have-fun-s-get-few-dates-and-have-make-decision-one-way-or-other-come-unstuck" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691336704/h13CC1A98/single-shot-tequila" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691337216/h24C28CD7/1-hour-coffee-date-this-way-are-not-stuck-if-dont-vibe" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691337472/h6F5A0225/no-need-be-intimidated-or-nervous-gracing-him-or-whoever-with-presence-s-little-cocky-but-helps-lol" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Guy Buys Luxury Watch Over Paying His Fiancees Parents Back For Overseas Vacation</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690461184/hF880359D/ago-jen-and-decided-talk-about-our-finances-and-savings-and-so-brought-up-my-online-banking-acco" style="width:100%"><br>
 
@@ -367,92 +445,6 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Delusional Woman Demands Potential Dating App Matches Take A Good Look In The Mirror Before Swiping Right On Her </a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691478784/hDB2C1B90/rrnicegirls-posted-by-udlink10-5-days-ago-wonder-well-shes-doing" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691479040/h4A7A35B0/guy-do-have-most-teeth-do-grown-ass-man-have-pictures-on-profile-with-goofyass-snapchat-filters" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691478528/hD590C060/up-girl-dont-have-bring-anything-table-but-bet-still-bring-more-than-non-smoker-sagittarius-dog" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691476736/hB002127A/5-days-ago-she-identifies-as-dog-not-possible-dogs-are-much-better-beings-than-whatever-she-is" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691477504/hE9D22167/tromoslykos-5-days-ago-oh-bringing-lot-more-table-alright-lot-more-horse-shit" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691476992/hD7A9D039/once-date-had-once-showed-many-liked-and-matches-she-had-felt-as-if-she-got-liked-by-whole-country" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691476480/h66CE24F4/isaacjb1995-5-days-ago-omg-s-such-sagittarius-thing-say" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691477248/h4AC38D10/palaiminta-5-days-ago-dont-think-this-is-real-sorry-but-no-one-is-crazy-refuse-believe" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691476224/hBA0FC27D/human_dumpster-5-days-ago-she-talks-lot-shit-dog" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691478272/hA2A26345/one-guy-who-says-s-right-queen-fuck-those-childish-boys-real-man-let-financially-support-please" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691477760/hB831ECB8/think-insulting-stranger-on-bio-on-datingsocial-app-is-gonna-attract-right-person-or-any-person" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691478016/hB23D0EF8/dmjones6591-5-days-ago-43kms-isnt-far-enough" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Women Disclose How Many Nights Per Week They Spend With Their Partner Before Moving In</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690604544/h25D30414/many-nights-per-week-did-spend-with-partner-before-moved-together" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690605312/h500E8DC6/ago-moved-3-days-after-our-first-date-supposed-come-visit-week-and-never-left-been-married-15-years" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690605568/h84182D89/like-not-officially-moved-kept-my-apartment-but-never-left-his-and-then-eventually-got-rid-my-place" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690606080/hACEB8E64/5-days-ago-same-about-5-days-after-our-first-date-moved-right-and-have-been-together-8yrs-know-know" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690605056/h5FF0EB66/about-anyone-my-entire-life-usually-pretty-reserved-came-romance-sometimes-love-is-fucking-bananas" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690604800/h985416AB/6-days-ago-he-slept-at-my-house-so-often-decided-time-he-started-helping-with-rent-imao" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690605824/h850F71CB/week-sleeping-over-one-night-on-weekend-had-cat-needed-return-home-and-also-liked-alone-time-relax" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690606592/h6038C188/at-my-place-due-covid-lockdowns-etc-and-then-officially-got-our-own-place-together-at-2-years" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690606336/h6B51C0F6/6-days-ago-oh-god-were-already-spending-every-night-together-made-sense-just-move-together-lol" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690607360/hF947853B/as-moved-felt-like-always-had-did-break-up-after-about-year-so-shooting-safe-is-no-guarantee-either" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690607616/h5F7AADC2/over-some-his-stuff-and-its-been-11-years-tease-him-all-time-single-since-he-never-asked-out" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690607104/hE6CF3314/4-nights-week-feel-like-eased-pretty-good-into-nothing-came-as-shock-once-officially-moved-together" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690606848/hF148774F/1-month-immediately-after-meeting-him-then-moved-into-new-town-house-together-been-together-7-years" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Men Reveal If Their Relationships With Their Female Friends Can Stay Platonic</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690636800/h8575B618/do-have-female-friends-where-relationship-is-100-platonic-on-both-sides" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690637056/h875C938C/maybe-s-because-been-very-happily-married-decades-but-friends-are-friends-despite-their-plumbing" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690638336/hEF91EA13/my-best-female-friends-officiated-my-wedding-so-many-are-close-but-some-are-just-regular-friends" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690637312/hC4CAA3D5/as-people-who-dont-have-good-romantic-prospectsz-and-plenty-guys-who-treat-them-like-objects-who-do" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690638080/hBF02B228/s-very-possible-be-platonic-relationship-with-girl-especially-if-known-each-other-long-time" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690637568/h531C498E/they-find-impossible-not-think-about-sexsomething-romantic-comes-women-so-they-assume-s-everyone-is" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690637824/h44D5A6BD/showed-did-because-know-come-off-as-insecure-reading-yours-and-some-other-posts-here-has-helped-bit" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690638592/hF1321649/95-my-male-friends-who-consider-family-would-sleep-with-if-opportunity-presented-other-5-are-gay" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690639360/hC2D5A34C/their-mans-girl-friends-out-their-lives-been-on-receiving-end-this-many-times-dont-know-men-behave" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690638848/h802B83FC/multiple-friends-who-happen-be-girls-where-things-were-platonic-one-which-is-my-current-best-friend" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690639104/h450CEB6A/pipefitter03-1-day-ago-yes-do-one-over-20-years-and-one-over-30" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690639616/hEA3FF976/or-sleep-with-them-s-why-generally-consider-male-female-platonic-friendships-be-different-category" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
 ## <a href="#linky15" id="linky14">Family Fuming After Man Brings His 10 Month Old Baby To ChildFree Wedding</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690623488/h0DFF9765/aita-bringing-my-baby-child-free-wedding" style="width:100%"><br>
@@ -483,7 +475,65 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">This Weeks Collection Of Sassy Situationship Tweets  </a><br>
+## <a href="#linky16" id="linky15">Women Disclose How Many Nights Per Week They Spend With Their Partner Before Moving In</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690604544/h25D30414/many-nights-per-week-did-spend-with-partner-before-moved-together" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690605312/h500E8DC6/ago-moved-3-days-after-our-first-date-supposed-come-visit-week-and-never-left-been-married-15-years" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690605568/h84182D89/like-not-officially-moved-kept-my-apartment-but-never-left-his-and-then-eventually-got-rid-my-place" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690606080/hACEB8E64/5-days-ago-same-about-5-days-after-our-first-date-moved-right-and-have-been-together-8yrs-know-know" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690605056/h5FF0EB66/about-anyone-my-entire-life-usually-pretty-reserved-came-romance-sometimes-love-is-fucking-bananas" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690604800/h985416AB/6-days-ago-he-slept-at-my-house-so-often-decided-time-he-started-helping-with-rent-imao" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690605824/h850F71CB/week-sleeping-over-one-night-on-weekend-had-cat-needed-return-home-and-also-liked-alone-time-relax" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690606592/h6038C188/at-my-place-due-covid-lockdowns-etc-and-then-officially-got-our-own-place-together-at-2-years" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690606336/h6B51C0F6/6-days-ago-oh-god-were-already-spending-every-night-together-made-sense-just-move-together-lol" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690607360/hF947853B/as-moved-felt-like-always-had-did-break-up-after-about-year-so-shooting-safe-is-no-guarantee-either" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690607616/h5F7AADC2/over-some-his-stuff-and-its-been-11-years-tease-him-all-time-single-since-he-never-asked-out" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690607104/hE6CF3314/4-nights-week-feel-like-eased-pretty-good-into-nothing-came-as-shock-once-officially-moved-together" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690606848/hF148774F/1-month-immediately-after-meeting-him-then-moved-into-new-town-house-together-been-together-7-years" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">Men Reveal If Their Relationships With Their Female Friends Can Stay Platonic</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690636800/h8575B618/do-have-female-friends-where-relationship-is-100-platonic-on-both-sides" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690637056/h875C938C/maybe-s-because-been-very-happily-married-decades-but-friends-are-friends-despite-their-plumbing" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690638336/hEF91EA13/my-best-female-friends-officiated-my-wedding-so-many-are-close-but-some-are-just-regular-friends" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690637312/hC4CAA3D5/as-people-who-dont-have-good-romantic-prospectsz-and-plenty-guys-who-treat-them-like-objects-who-do" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690638080/hBF02B228/s-very-possible-be-platonic-relationship-with-girl-especially-if-known-each-other-long-time" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690637568/h531C498E/they-find-impossible-not-think-about-sexsomething-romantic-comes-women-so-they-assume-s-everyone-is" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690637824/h44D5A6BD/showed-did-because-know-come-off-as-insecure-reading-yours-and-some-other-posts-here-has-helped-bit" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690638592/hF1321649/95-my-male-friends-who-consider-family-would-sleep-with-if-opportunity-presented-other-5-are-gay" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690639360/hC2D5A34C/their-mans-girl-friends-out-their-lives-been-on-receiving-end-this-many-times-dont-know-men-behave" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690638848/h802B83FC/multiple-friends-who-happen-be-girls-where-things-were-platonic-one-which-is-my-current-best-friend" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690639104/h450CEB6A/pipefitter03-1-day-ago-yes-do-one-over-20-years-and-one-over-30" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690639616/hEA3FF976/or-sleep-with-them-s-why-generally-consider-male-female-platonic-friendships-be-different-category" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky18" id="linky17">This Weeks Collection Of Sassy Situationship Tweets  </a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691441408/h93984166/ainthatmy-little-miss-always-situationship-never-relationship-532-am-jul-27-2022-twitter-iphone" style="width:100%"><br>
 
@@ -511,89 +561,31 @@ Last updated: 07/30/2022-11:47:18
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">Watch This Quarterback Fumble After His Running Back Projectile Vomits All Over the Field</a><br>
+## <a href="#linky19" id="linky18">Internet Roasts Woman Who Claims Its An Honor To Be With Her In Her Dating App Bio </a><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/8998491136/hF9F1A479" style="width:100%"><br>
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691474944/hF83CE8D9/rrnicegirls-posted-by-udiestof-4-days-ago-yes-majesty" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/8998491904/hA0211919" style="width:100%"><br>
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691474432/h0FECC168/be-with-been-through-my-fair-share-and-truly-believe-am-genuinely-good-person-with-so-much-offer" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/8998492672/h6AA2C967/im-sorry-but-zaxbys-sauce" style="width:100%"><br>
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691474688/h7BB1BF33/often-so-dm-if-think-strong-enough-and-worthy-enough-be-my-life-instagram-cancer-cat-non-smoker" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/8998493696/h6F134568" style="width:100%"><br>
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691474176/h95A5B98D/days-ago-really-like-these-becuase-lets-know-fucking-crazy-and-should-just-pass-go-and-collect-200" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/8998494208/hEE80E08E" style="width:100%"><br>
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691472128/hF0578A12/yeah-another-girl-trying-play-off-as-an-adult-and-failed-while-proudly-showing-off-her-intellect" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/8998494464/h5888DA80" style="width:100%"><br>
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691473664/hF5FE6A87/ruxxey-4-days-ago-damn-shes-cancer-indeed" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691472640/hC92803C1/peschkowskaja-3-days-ago-been-there-done-my-presence-is-contribution-enough-ehmm-yeah-sure-girl" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">Men Disclose What Has Become Less Attractive To Them With Age</a><br>
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691472384/hBF8609F3/efyuar-3-days-ago-god-damn-feel-like-lucky-just-get-chance-read-about-her" style="width:100%"><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690809344/h306D626A/has-become-unattractive-as-gotten-older" style="width:100%"><br>
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691472896/hAAE0FAF4/gland10-3-days-ago-thats-just-code-come-follow-so-can-be-an-influencer" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690812160/h04684549/but-sort-just-went-with-because-most-teens-and-20-somethings-seem-share-quality-now-30-want-no-part" style="width:100%"><br>
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691473152/h6AE15EAF/include-nothing-useful-at-all-accept-her-own-gratification-imao-dating-sites-are-fuckin-wild" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690810624/h6CC17B96/blainefeinspains-9-hr-ago-drama" style="width:100%"><br>
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691473408/h7EA22A34/4-days-ago-someone-wise-once-told-everything-before-but-is-bullshit-and-s-certainly-true-here" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690811648/h47BF4500/ratsofat-8-hr-ago-2-pretty-much-everything-s-not-my-wife-stability-is-sexy" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690811904/hAB96736B/animal-momoovalley-9-hr-ago-people-younger-than" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690809856/h631D3E60/up-late-and-going-out-all-hours-my-wife-and-love-an-old-80s-movie-and-cup-tea-bed-on-cold-night" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690809600/hF6AB6903/necklace-monsterpoodle-9-hr-ago-myself-mirror" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690810112/h4E9D937E/deadpanjunkie-6-hr-ago-hahaha-truth-hurts-before-pandemic-fitness-dude-now-lump" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690810368/hAC0B6C5C/animal-oddball667-9-hr-ago-male-girls-who-dont-have-boundaries" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690811136/h579B8B21/electronic-pain_9329-9-hr-ago-clubs-and-staying-out-late-partying-and-large-crowds-people" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690810880/hA3401D8D/dopaminequagmire-9-hr-ago-literally-everything-think-turned-bitter" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690811392/hE769A435/used-think-cool-and-just-do-now-know-obvious-displays-some-pretty-sketchy-character-some-instances" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky19" id="linky18">Women Reveal What They Think The Hottest Body Parts Are</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690642688/hCE0E5CF4/posted-by-ufew_print5387-2-days-ago-24-opinion-s-sexiest-body-part-example-back-shoulders-face" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690630400/hDE0373F2/their-thighs-if-they-look-like-tree-trunks-can-smash-women-everything-women-are-magical-427k-share" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690630912/h4782B584/hands-and-shoulders-and-stuff-between-do-not-put-hand-through-shoulder-sounds-painful-15k-share" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690633472/hC2A6B8B0/long-hair-love-long-dark-hair-light-eyes-combo-on-women-muscular-arms-or-really-long-legs-853-share" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690630656/h0D200844/stellar-being-collarbones-get-2-days-ago-565-share" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690631680/h86FB355E/1foxyroxy-2-days-ago-hands-and-back-definitely-can-say-butt-butt-too-wait-now-thighs-541-share" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690631168/h171F56B4/he-had-sent-and-inadvertently-spent-like-full-minute-or-two-just-talking-about-his-hands-share-480" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690632448/h5CF017F7/if-someone-has-good-smile-headless-photos-random-shirtless-men-do-absolutely-nothing-404-share" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690632960/hAA34531D/latenightcheesecake9-2-days-ago-mind-and-good-teeth-242-b-share" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690631424/h9ABC6333/are-eyes-body-part-if-so-eyes-eye-contact-sending-messages-through-eyes-smiling-with-eyes-236-share" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690631936/h5C56DFF5/more-attractive-got-lucky-with-my-husband-hes-very-attractive-just-wish-he-could-see-see-198-share" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690632192/hCD31DF31/p1mpkookie-absolutely-4-157-b-2-days-ago-love-big-noses-and-thick-eyebrows-share" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690633728/hDEB81800/illuminhotti-2-days-ago-voice-4-95-b-share" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9690633216/h2020BE88/skinny-fit-or-chubby-guy-just-love-those-parts-on-woman-love-collarbones-and-décolletage-480-share" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9690632704/h4395E03F/black_tears524-2-days-ago-shoulders-always-shoulders-4-68-share" style="width:100%"><br>
-
-<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9690634496/h6A113AB7/lol-take-smart-kind-guy-who-happens-be-less-attractive-over-super-hot-asshole-any-day-67-share" style="width:100%"><br>
-
-<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9690633984/h2254E8F7/chauncetime-2-days-ago-love-nice-arms-not-necessarily-huge-just-defined-and-broad-shoulders-53-share" style="width:100%"><br>
-
-<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9690634752/h8FAE4440/like-jason-momoa-have-no-use-dude-who-cant-like-loom-glower-over-stuff-if-makes-sense-35-share" style="width:100%"><br>
-
-<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9690634240/h9F2F0ABC/cosmicdaytripper-2-days-ago-eyes-beautiful-dark-brown-eyes-are-my-favorite-4-14-b-share" style="width:100%"><br>
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691473920/hAA45C1B3/beepbeepsheepbot-4-days-ago-if-have-advertise-good-person-chances-are-are-not-good-person" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
