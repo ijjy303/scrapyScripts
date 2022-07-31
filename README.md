@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/30/2022-22:47:23
+Last updated: 07/30/2022-23:47:23
 <br>
 ## <a href="#linky2" id="linky1">Thief Coworker Secretly Given Laxative-Laced Chocolates</a><br>
 
@@ -13,198 +13,7 @@ Last updated: 07/30/2022-22:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">26 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">25 Things People Are Boycotting & You Should Too</a><br>
-
-<span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Shaw Academy. Sleazy little fucks. Their lies in advertising, and nearly impossible to cancel a subscription with them. Tried doing a course that was a free 4-week course. The course was free for the first 4 weeks but the way they sold it was that the course itself was 4 weeks and free. They say you can finish a course as fast or long as you want, but I think it caps out at 3 lessons a week making you stay in the program for a few months, paying monthly.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
- Trying to cancel is a nightmare. Sifting through pages and pages of are you sure you want to cancel, heres a 5% discount, fill this form out, now this one, and now this one. All to get to a phone number that is only valid to call for a couple hours a day. When you finally get to call.. its an automated message. 10 minutes of a robot telling me it cares about me and wants me to stay. Only to FINALLY press 2 to cancel my subscription. Fuck. Shaw Academy. - AdoptedMexican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. EBay. Escaped an abusive relationship, and was changing all my passwords to random combinations. Set it to log out all devices and force the password to be re-entered. It wasnt actually doing that. (I tried from multiple devices so it wasnt a keylogger or anything my abusive ex was doing. I also confirmed if I logged in on other devices, reset password and clicked to log out all devices it was not logging other devices out). Abusive ex was bidding/winning auctions. I called ebay to report the issue. They said it isnt that my account has been hacked/fraud because I know who is doing it. They would do NOTHING. Said I would just have to take the bad feedback and be blacklisted and that I should pick better partners. Didnt matter that they had a major security flaw. All I could do was remove the payment methods from my account so he couldnt pay for his auctions. I will never use them again. - TribalMog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Expedia and all the sites they own/control. Which is a LOT of them. Expedia screwed me over in a bad way, and then their Customer Service people insulted me when I tried to call attention to the serious issues. Ultimately, they offered me a gift card as a Take It or Leave It solution to the entire issue. I left it, and went on a crusade to slam them on Twitter. I did it for a long time but got bored. - Darth_Corleone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Nestle. I may inadvertently grab one of its products, but when I see the name, i always put it back. - TradePrinceGobbo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Anything that even has a hint of MLM. Stop exploiting your personal relationships out of greed. - SH00TERxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Susan G. Koman Foundation - they employ alphabet soup & lawyer speak to defraud millions. NOTE: THEY DO NOT FUND RESEARCH NOR DO THEY HELP PATIENTS! THEY ARE AN ADVERTISING COMPANY. THEY ADVERTISE CANCER AWARENESS (because someone may be unaware of cancer \s) - msmame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Harvey Norman. They have terrible customer service and they took a whole lot of Australian government money that they didn’t deserve and are refusing to give it back. - 2exp77232917-1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Comcast - adogsgotcharacter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. FedEx - as much as I can help it.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I obviously cant boycott them if its the only delivery option on an e-commerce website, or if someone/company happens to ship me something via FedEx.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-But I have literally chosen to pay more on an e-commerce website, to specifically not use FedEx as a shipping service.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Reason: When I bought my Pixel 3, the first day it was supposed to arrive, I worked from home that day to sign for my package. They never arrived, and on the tracking, wrote that I wasnt home to receive the package.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I was furious, so I spent the next two days working from home, and even did my work in the kitchen, so that I could physically see if any delivery driver actually walks up to my door. 3 straight fucking days in a row, not a single person comes up. Ring doorbell even doesnt show them walking up, but they have THE MOTHER FUCKING AUDACITY to claim I wasnt home 3 straight days in a row.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I ended up having to pick it up at their facility. Just because they LIED 3 times in a row, even after a phone call each day the first two days, the customer service person even told me I probably missed them when I went to the restroom or something -_- Cant even own up to the fucking fact that everybody in their company are a bunch of fucking liars.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-So for that reason alone, I pay more for shipping as long as its not FedEx. Ive specifically driven a further distance to get something printed at Staples or Office Depot just so I dont step foot into a FedEx store.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Boycotting FedEx until the day I die. - needtobetterself31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was boycotting Blockbuster for charging me late fees because they lost the tape I returned in their evening return slot. Fuck those guys they ain’t getting my business! - c0nduit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Bank of America. Fucked me over for $10 back in 1993 on a mistake they made. Never getting my motherfucking business again. - sea_cricket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Pretty much anything in one of those unskippable YouTube ads. - coredenale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. State Farm. Thanks to some whistleblowers, they got busted committing fraud against their customers and the federal government after Hurricane Katrina. They told their claims adjusters to classify damage as flood damage, rather than wind damage, so that they could reject the claim and tell customers to file a federal flood insurance claim. - hells_cowbells</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Multi-level-marketing schemes. They’re shit companies that attract shitty, and sometimes desperate people, and train them on how to profit off of their friends and families. They destroy lives and I refuse to support them. - ClearBlue_Grace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Lifetime Fitness. It really pains me to write this, because I really love their gyms. I had a membership at Lifetime on and off through college. I went to a very large university with great amenities, so I didn’t need the membership during the school year. I tried to cancel at the end of one summer. I was at the gym one day and I asked about the cancellation. I was told to come back at a certain time frame the following Wednesday to cancel. I complied. When I showed up the “person doing the cancellations wasn’t there.” 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I was told to return the following Wednesday. Surprise, surprise, the person wasn’t there again. I told them I was going to stop the payment through the credit card company. They responded by telling me that they’d take me to collections then. I ended up escalating through their corporate offices to get the membership canceled. They managed to get 2 extra months of fees out of me. After that year of college, I shifted over to LA Fitness and maintained that membership for about 10 years. When I moved away from LA Fitness, I joined the YMCA, where I’ve been for the last 5-6 years. I will always have a gym membership, but I am committed to not joining Lifetime Fitness again until am reimbursed. It’s really a loss for both of us. - IGuessIamYouThen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225002.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">30 Product Designs Better That Might Be Genius</a><br>
-
-<span style="font-size:4em">1. This Nutmeg I Bought In France Comes With Its Own Tiny Grater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This Baby Pickle Jar Came With A Tiny Elevator For Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This Painting I Bought At The Zoo Came With A Picture Of The Meerkat Family Who Painted It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My Dogs Tore Apart A Cactus Toy, To Reveal Another, Sad Cactus Toy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Box That My Grill Came In Can Be Inverted To Make A Playhouse For A Toddler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My Husband Ordered A Used Laptop And It Arrived Completely Packed In Little Paper Cranes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My Cappuccino Came With A Tiny Ice Cream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Diploma Came With A Wallet-Sized Version</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My Hair Dye Came With Little Gloves To Cover My Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. First Record I Bought In 15 Years. Came With A Cardboard Gramophone. It Works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Toilet Paper Came With A To-Go Roll In The Middle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Book My SO Purchased Came With A Bookmark That Listed The Character’s Names And Their Roles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My Shirt Has A Microfiber Sewn On The Inside To Clean Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I Bought A Pack Of Cigarettes And They Came With A Postage-Paid Recycling Pouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My Spatula Has A Little Stand So It Doesn’t Touch The Counter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My Bra Came With An Info Tag On Checking Yourself For Breast Cancer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Logo On My Umbrella Only Shows Up When Wet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Inside Of The Pizza Box Was A Tuxedo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Amazon Purchase Came With A Personal Note And Some Russian Coins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My New Dress Came With A Napkin, Apparently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. My New Set Of Sheets Came With A Handy Little Pocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My Coaster Came With A Built In Activity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. This Yogurt Lid Can Be Folded Into A Little Spoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This Message Stamped On The Squeaker Inside The Stuffed Animal My Dog Just Destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Wine I Ordered Online Came With A Tiny Set Of Dice Packaged Inside A Hollow Cork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My Backpacks Front Buckle Has A Built In Whistle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Microwave Came With Optional Braille Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This Radiator Has A Pie Warmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Multi-Tool Belt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My Bottle Of Canadian Whisky Came With Free Public Transportation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222426.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">30 Facts That Could Save Your Life</a><br>
+## <a href="#linky3" id="linky2">30 Facts That Could Save Your Life</a><br>
 
 <span style="font-size:4em">1. If you’re outdoors in the heat and you stop sweating, you’re in trouble. You need to hydrate and get the f**k inside and if you can’t keep water down, go to the hospital or urgent care for an IV. You are SEVERELY dehydrated and at high risk for a heat stroke. You should always be sweating if it’s hot and you’re doing strenuous work.
 
@@ -328,121 +137,71 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">23 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky4" id="linky3">30 Product Designs Better That Might Be Genius</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223127.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. This Nutmeg I Bought In France Comes With Its Own Tiny Grater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223128.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This Baby Pickle Jar Came With A Tiny Elevator For Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223129.png" style="width:100%"><br>
+<span style="font-size:4em">3. This Painting I Bought At The Zoo Came With A Picture Of The Meerkat Family Who Painted It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223130.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My Dogs Tore Apart A Cactus Toy, To Reveal Another, Sad Cactus Toy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223131.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The Box That My Grill Came In Can Be Inverted To Make A Playhouse For A Toddler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223132.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. My Husband Ordered A Used Laptop And It Arrived Completely Packed In Little Paper Cranes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223133.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. My Cappuccino Came With A Tiny Ice Cream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223134.png" style="width:100%"><br>
+<span style="font-size:4em">8. Diploma Came With A Wallet-Sized Version</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223135.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. My Hair Dye Came With Little Gloves To Cover My Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223136.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. First Record I Bought In 15 Years. Came With A Cardboard Gramophone. It Works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223137.png" style="width:100%"><br>
+<span style="font-size:4em">11. My Toilet Paper Came With A To-Go Roll In The Middle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223138.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Book My SO Purchased Came With A Bookmark That Listed The Character’s Names And Their Roles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223139.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My Shirt Has A Microfiber Sewn On The Inside To Clean Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223140.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. I Bought A Pack Of Cigarettes And They Came With A Postage-Paid Recycling Pouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223141.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. My Spatula Has A Little Stand So It Doesn’t Touch The Counter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223142.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. My Bra Came With An Info Tag On Checking Yourself For Breast Cancer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223143.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The Logo On My Umbrella Only Shows Up When Wet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223144.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The Inside Of The Pizza Box Was A Tuxedo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223145.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Amazon Purchase Came With A Personal Note And Some Russian Coins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223146.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. My New Dress Came With A Napkin, Apparently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223147.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. My New Set Of Sheets Came With A Handy Little Pocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223148.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. My Coaster Came With A Built In Activity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223149.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. This Yogurt Lid Can Be Folded Into A Little Spoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223150.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. This Message Stamped On The Squeaker Inside The Stuffed Animal My Dog Just Destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223151.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. The Wine I Ordered Online Came With A Tiny Set Of Dice Packaged Inside A Hollow Cork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223126.png" style="width:100%"><br>
+<span style="font-size:4em">26. My Backpacks Front Buckle Has A Built In Whistle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223152.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Microwave Came With Optional Braille Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222423.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">28. This Radiator Has A Pie Warmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222424.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">26 Awful Tattoos of Permanent Ick</a><br>
+<span style="font-size:4em">29. Multi-Tool Belt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
-
-<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
+<span style="font-size:4em">30. My Bottle Of Canadian Whisky Came With Free Public Transportation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222426.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">32 Fab Photos to Kill Some Time</a><br>
+## <a href="#linky5" id="linky4">32 Fab Photos to Kill Some Time</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226305.jpg" style="width:100%"><br>
 
@@ -508,7 +267,175 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">20 Scientific Facts About Space to Expand Your Mind</a><br>
+## <a href="#linky6" id="linky5">23 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223129.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223134.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223137.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223126.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223152.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky7" id="linky6">26 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">26 Awful Tattoos of Permanent Ick</a><br>
+
+<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
+
+<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">20 Scientific Facts About Space to Expand Your Mind</a><br>
 
 <span style="font-size:4em">1. There are many many mindboggling facts. My favorite one is always cold welding. Due to lack of oxygen - and in consequence lack of corrosion - you can put two pieces of metal together in the vacuum of space, and they will permanently connect, forming a single piece of metal almost instantly. - myhamsterisajerk
 
@@ -551,6 +478,79 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 <span style="font-size:4em">19. I read somewhere that there is no definite center of the universe because it is expanding infinitely in all directions. Thus any point in the universe is a center - making you the center of the universe. - Common-Transition973</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224895.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. A photon released during a super nova in some far off galaxy could have spent billions of years and traveled across the entire universe just to end up hitting someones butt while they were laying on a beach. - HumpieDouglas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224896.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">25 Things People Are Boycotting & You Should Too</a><br>
+
+<span style="font-size:4em">1. Stubhub— the way they handled the pandemic with changing their policies in peak pandemic so people could only recover credit or resell their tickets instead of receiving cash for canceled events was ridiculous. I was forced to hold my Coachella ticket for 2 years, then they decided to refund everyone this year when they realized they would make more money since the ticket prices will surge when the event is back in 2023. Fuck stubhub. - shughes330
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Shaw Academy. Sleazy little fucks. Their lies in advertising, and nearly impossible to cancel a subscription with them. Tried doing a course that was a free 4-week course. The course was free for the first 4 weeks but the way they sold it was that the course itself was 4 weeks and free. They say you can finish a course as fast or long as you want, but I think it caps out at 3 lessons a week making you stay in the program for a few months, paying monthly.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+ Trying to cancel is a nightmare. Sifting through pages and pages of are you sure you want to cancel, heres a 5% discount, fill this form out, now this one, and now this one. All to get to a phone number that is only valid to call for a couple hours a day. When you finally get to call.. its an automated message. 10 minutes of a robot telling me it cares about me and wants me to stay. Only to FINALLY press 2 to cancel my subscription. Fuck. Shaw Academy. - AdoptedMexican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. EBay. Escaped an abusive relationship, and was changing all my passwords to random combinations. Set it to log out all devices and force the password to be re-entered. It wasnt actually doing that. (I tried from multiple devices so it wasnt a keylogger or anything my abusive ex was doing. I also confirmed if I logged in on other devices, reset password and clicked to log out all devices it was not logging other devices out). Abusive ex was bidding/winning auctions. I called ebay to report the issue. They said it isnt that my account has been hacked/fraud because I know who is doing it. They would do NOTHING. Said I would just have to take the bad feedback and be blacklisted and that I should pick better partners. Didnt matter that they had a major security flaw. All I could do was remove the payment methods from my account so he couldnt pay for his auctions. I will never use them again. - TribalMog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Expedia and all the sites they own/control. Which is a LOT of them. Expedia screwed me over in a bad way, and then their Customer Service people insulted me when I tried to call attention to the serious issues. Ultimately, they offered me a gift card as a Take It or Leave It solution to the entire issue. I left it, and went on a crusade to slam them on Twitter. I did it for a long time but got bored. - Darth_Corleone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Nestle. I may inadvertently grab one of its products, but when I see the name, i always put it back. - TradePrinceGobbo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Anything that even has a hint of MLM. Stop exploiting your personal relationships out of greed. - SH00TERxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Susan G. Koman Foundation - they employ alphabet soup & lawyer speak to defraud millions. NOTE: THEY DO NOT FUND RESEARCH NOR DO THEY HELP PATIENTS! THEY ARE AN ADVERTISING COMPANY. THEY ADVERTISE CANCER AWARENESS (because someone may be unaware of cancer \s) - msmame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Harvey Norman. They have terrible customer service and they took a whole lot of Australian government money that they didn’t deserve and are refusing to give it back. - 2exp77232917-1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Comcast - adogsgotcharacter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. FedEx - as much as I can help it.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I obviously cant boycott them if its the only delivery option on an e-commerce website, or if someone/company happens to ship me something via FedEx.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+But I have literally chosen to pay more on an e-commerce website, to specifically not use FedEx as a shipping service.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Reason: When I bought my Pixel 3, the first day it was supposed to arrive, I worked from home that day to sign for my package. They never arrived, and on the tracking, wrote that I wasnt home to receive the package.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I was furious, so I spent the next two days working from home, and even did my work in the kitchen, so that I could physically see if any delivery driver actually walks up to my door. 3 straight fucking days in a row, not a single person comes up. Ring doorbell even doesnt show them walking up, but they have THE MOTHER FUCKING AUDACITY to claim I wasnt home 3 straight days in a row.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I ended up having to pick it up at their facility. Just because they LIED 3 times in a row, even after a phone call each day the first two days, the customer service person even told me I probably missed them when I went to the restroom or something -_- Cant even own up to the fucking fact that everybody in their company are a bunch of fucking liars.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+So for that reason alone, I pay more for shipping as long as its not FedEx. Ive specifically driven a further distance to get something printed at Staples or Office Depot just so I dont step foot into a FedEx store.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Boycotting FedEx until the day I die. - needtobetterself31</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I was boycotting Blockbuster for charging me late fees because they lost the tape I returned in their evening return slot. Fuck those guys they ain’t getting my business! - c0nduit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Bank of America. Fucked me over for $10 back in 1993 on a mistake they made. Never getting my motherfucking business again. - sea_cricket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Pretty much anything in one of those unskippable YouTube ads. - coredenale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. State Farm. Thanks to some whistleblowers, they got busted committing fraud against their customers and the federal government after Hurricane Katrina. They told their claims adjusters to classify damage as flood damage, rather than wind damage, so that they could reject the claim and tell customers to file a federal flood insurance claim. - hells_cowbells</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Multi-level-marketing schemes. They’re shit companies that attract shitty, and sometimes desperate people, and train them on how to profit off of their friends and families. They destroy lives and I refuse to support them. - ClearBlue_Grace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Lifetime Fitness. It really pains me to write this, because I really love their gyms. I had a membership at Lifetime on and off through college. I went to a very large university with great amenities, so I didn’t need the membership during the school year. I tried to cancel at the end of one summer. I was at the gym one day and I asked about the cancellation. I was told to come back at a certain time frame the following Wednesday to cancel. I complied. When I showed up the “person doing the cancellations wasn’t there.” 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I was told to return the following Wednesday. Surprise, surprise, the person wasn’t there again. I told them I was going to stop the payment through the credit card company. They responded by telling me that they’d take me to collections then. I ended up escalating through their corporate offices to get the membership canceled. They managed to get 2 extra months of fees out of me. After that year of college, I shifted over to LA Fitness and maintained that membership for about 10 years. When I moved away from LA Fitness, I joined the YMCA, where I’ve been for the last 5-6 years. I will always have a gym membership, but I am committed to not joining Lifetime Fitness again until am reimbursed. It’s really a loss for both of us. - IGuessIamYouThen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87225002.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
