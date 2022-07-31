@@ -1,125 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 07/31/2022-15:47:23
+Last updated: 07/31/2022-16:47:24
 <br>
-## <a href="#linky2" id="linky1">26 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">30 Product Designs Better That Might Be Genius</a><br>
-
-<span style="font-size:4em">1. This Nutmeg I Bought In France Comes With Its Own Tiny Grater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This Baby Pickle Jar Came With A Tiny Elevator For Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This Painting I Bought At The Zoo Came With A Picture Of The Meerkat Family Who Painted It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My Dogs Tore Apart A Cactus Toy, To Reveal Another, Sad Cactus Toy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Box That My Grill Came In Can Be Inverted To Make A Playhouse For A Toddler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My Husband Ordered A Used Laptop And It Arrived Completely Packed In Little Paper Cranes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My Cappuccino Came With A Tiny Ice Cream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Diploma Came With A Wallet-Sized Version</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My Hair Dye Came With Little Gloves To Cover My Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. First Record I Bought In 15 Years. Came With A Cardboard Gramophone. It Works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Toilet Paper Came With A To-Go Roll In The Middle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Book My SO Purchased Came With A Bookmark That Listed The Character’s Names And Their Roles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My Shirt Has A Microfiber Sewn On The Inside To Clean Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I Bought A Pack Of Cigarettes And They Came With A Postage-Paid Recycling Pouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My Spatula Has A Little Stand So It Doesn’t Touch The Counter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My Bra Came With An Info Tag On Checking Yourself For Breast Cancer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Logo On My Umbrella Only Shows Up When Wet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Inside Of The Pizza Box Was A Tuxedo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Amazon Purchase Came With A Personal Note And Some Russian Coins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My New Dress Came With A Napkin, Apparently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. My New Set Of Sheets Came With A Handy Little Pocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My Coaster Came With A Built In Activity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. This Yogurt Lid Can Be Folded Into A Little Spoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This Message Stamped On The Squeaker Inside The Stuffed Animal My Dog Just Destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Wine I Ordered Online Came With A Tiny Set Of Dice Packaged Inside A Hollow Cork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My Backpacks Front Buckle Has A Built In Whistle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Microwave Came With Optional Braille Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This Radiator Has A Pie Warmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Multi-Tool Belt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My Bottle Of Canadian Whisky Came With Free Public Transportation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222426.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">46 Fun and Fascinating Photos For Your Eyes Only</a><br>
+## <a href="#linky2" id="linky1">46 Fun and Fascinating Photos For Your Eyes Only</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226680.jpg" style="width:100%"><br>
 
@@ -187,7 +69,185 @@ Last updated: 07/31/2022-15:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Passed Out Ben Affleck is Our Meme of the Week</a><br>
+## <a href="#linky3" id="linky2">26 Awful Tattoos of Permanent Ick</a><br>
+
+<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
+
+<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">23 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223129.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223134.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223137.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223126.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223152.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">30 Product Designs Better That Might Be Genius</a><br>
+
+<span style="font-size:4em">1. This Nutmeg I Bought In France Comes With Its Own Tiny Grater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This Baby Pickle Jar Came With A Tiny Elevator For Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This Painting I Bought At The Zoo Came With A Picture Of The Meerkat Family Who Painted It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My Dogs Tore Apart A Cactus Toy, To Reveal Another, Sad Cactus Toy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Box That My Grill Came In Can Be Inverted To Make A Playhouse For A Toddler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. My Husband Ordered A Used Laptop And It Arrived Completely Packed In Little Paper Cranes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. My Cappuccino Came With A Tiny Ice Cream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Diploma Came With A Wallet-Sized Version</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. My Hair Dye Came With Little Gloves To Cover My Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. First Record I Bought In 15 Years. Came With A Cardboard Gramophone. It Works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My Toilet Paper Came With A To-Go Roll In The Middle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Book My SO Purchased Came With A Bookmark That Listed The Character’s Names And Their Roles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My Shirt Has A Microfiber Sewn On The Inside To Clean Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I Bought A Pack Of Cigarettes And They Came With A Postage-Paid Recycling Pouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My Spatula Has A Little Stand So It Doesn’t Touch The Counter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My Bra Came With An Info Tag On Checking Yourself For Breast Cancer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The Logo On My Umbrella Only Shows Up When Wet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Inside Of The Pizza Box Was A Tuxedo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Amazon Purchase Came With A Personal Note And Some Russian Coins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. My New Dress Came With A Napkin, Apparently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. My New Set Of Sheets Came With A Handy Little Pocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. My Coaster Came With A Built In Activity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. This Yogurt Lid Can Be Folded Into A Little Spoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This Message Stamped On The Squeaker Inside The Stuffed Animal My Dog Just Destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The Wine I Ordered Online Came With A Tiny Set Of Dice Packaged Inside A Hollow Cork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My Backpacks Front Buckle Has A Built In Whistle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Microwave Came With Optional Braille Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. This Radiator Has A Pie Warmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Multi-Tool Belt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. My Bottle Of Canadian Whisky Came With Free Public Transportation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222426.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Passed Out Ben Affleck is Our Meme of the Week</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/111204/87226243/sleeping-ben-affleck2.png" style="width:100%"><br>
 
@@ -207,7 +267,7 @@ Last updated: 07/31/2022-15:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">30 Facts That Could Save Your Life</a><br>
+## <a href="#linky7" id="linky6">30 Facts That Could Save Your Life</a><br>
 
 <span style="font-size:4em">1. If you’re outdoors in the heat and you stop sweating, you’re in trouble. You need to hydrate and get the f**k inside and if you can’t keep water down, go to the hospital or urgent care for an IV. You are SEVERELY dehydrated and at high risk for a heat stroke. You should always be sweating if it’s hot and you’re doing strenuous work.
 
@@ -331,7 +391,7 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Scientific Facts About Space to Expand Your Mind</a><br>
+## <a href="#linky8" id="linky7">20 Scientific Facts About Space to Expand Your Mind</a><br>
 
 <span style="font-size:4em">1. There are many many mindboggling facts. My favorite one is always cold welding. Due to lack of oxygen - and in consequence lack of corrosion - you can put two pieces of metal together in the vacuum of space, and they will permanently connect, forming a single piece of metal almost instantly. - myhamsterisajerk
 
@@ -377,7 +437,7 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky8" id="linky7">32 Fab Photos to Kill Some Time</a><br>
+## <a href="#linky9" id="linky8">32 Fab Photos to Kill Some Time</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226305.jpg" style="width:100%"><br>
 
@@ -443,121 +503,7 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">26 Awful Tattoos of Permanent Ick</a><br>
-
-<span style="font-size:4em">1. There might be some questionable life choices here. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/114008/87226601/tatts26.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Did the S or the V come first? Either way its still messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/111959/87226574/tatts1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112010/87226575/tatts2.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. This is not the way.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112048/87226578/tatts5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Do the black strips really do their job to hide identity when your face is this distinguishable?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112100/87226579/tatts6.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. At least its happy. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112112/87226580/tatts7.png" style="width:100%"><br>
-
-<span style="font-size:4em">7.  I think its missing something.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112124/87226581/tatts8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112140/87226582/tatts9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124844/87226630/tatts11.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ariana Grande’s hand tattoos. Youd think shed be able to afford better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112151/87226583/tatts10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Youd think he would nose better. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112216/87226585/tatts13.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. A poorly done lava lamp. Or is it something else..</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112225/87226586/tatts14.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112229/87226587/tatts15.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112233/87226588/tatts16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Artist claims to have more than 20 years of experience.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112239/87226589/tatts17.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Im sure thats what Jesus would have wanted. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112243/87226590/tatts18.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112210/87226584/tatts12.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112247/87226591/tatts19.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Maybe its all about drawing attention to those spectacular calves. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112300/87226592/tatts20.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Does she love Stve? Did Stve break her heart? Is his name actually Steve?</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112311/87226593/tatts22.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. $200 for this crap.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112323/87226594/tatts21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112036/87226577/tatts4.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. At least its still right twice a day. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112335/87226595/tatts23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112357/87226596/tatts24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/112358/87226597/tatts25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124932/87226631/tatts3.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">23 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223129.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223134.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223137.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223126.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223152.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Thief Coworker Secretly Given Laxative-Laced Chocolates</a><br>
+## <a href="#linky10" id="linky9">Thief Coworker Secretly Given Laxative-Laced Chocolates</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104207/87226554/IMG_3692.jpg" style="width:100%"><br>
 
@@ -566,6 +512,60 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 <span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104212/87226555/IMG_3694.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/104231/87226557/IMG_3695.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">26 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223978.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223983.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223998.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224000.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87224001.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
