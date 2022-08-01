@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/01/2022-15:47:22
+Last updated: 08/01/2022-16:47:22
 <br>
 ## <a href="#linky2" id="linky1">49 Funny Pics and Fun Randoms to Get Your Day Going</a><br>
 
@@ -119,75 +119,165 @@ Last updated: 08/01/2022-15:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">46 Fun and Fascinating Photos For Your Eyes Only</a><br>
+## <a href="#linky4" id="linky3">Monday Morning Randomness User Edition - ULook2</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226680.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226898.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226681.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226899.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226691.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226900.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226695.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226682.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226685.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226683.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226904.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226684.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226686.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226687.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226688.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226689.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226690.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226692.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226911.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226693.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226694.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226913.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226696.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226914.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226697.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226915.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226698.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226699.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226917.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226700.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226918.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226701.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226919.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226702.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226920.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226703.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226921.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226704.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226922.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226705.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226923.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226706.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226924.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226707.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226925.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226708.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226926.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226709.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226927.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226710.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226928.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226711.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226947.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">Joe Rogan Facts That Make Total Sense</a><br>
+## <a href="#linky5" id="linky4">25 Actors So Good Their Roles Can Never Be Recast</a><br>
+
+<span style="font-size:4em">1. James Gandolfini as Tony Soprano. -u/MyBestDisguise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Sigourney Weaver as Ripley in the Alien franchise. -u/insert_name_here925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Jeff Bridges IS the Dude. -u/hlerdnerp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Cary Elwes as Westley/Dread Pirate Roberts. -u/Shadowfaxx71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Jack Gleeson as Joffrey Baratheon. -u/Fuck-Reddit-Mods69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Bruce Campbell in Army Of Darkness. -u/ctennessen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Javier Bardem in No Country for Old Men. -u/blurplethenurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Christoph Waltz as Hans Landa in Inglorius Basterds. -u/SpectreOperator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. J.K. Simmons as Jonah Jameson. So good that he played the same character across multiple spider-verses. -u/The_Mouse_That_Jumps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Say what you want about the character. Imelda Staunton, who plays that massive c*nt Delores Umbridge, did a fantastic job at making me hate her. -u/MenstruatingMuffin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Danny DeVito as Frank Reynolds. Id seen him in a bunch of stuff before, but Frank is the perfect role for him. -u/JayGold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Arnold Schwarzenegger as the Terminator. -u/00-H</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Nick Offerman as Ron Swanson. -u/izatrap2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Michael J Fox as Marty McFly. -u/trauerspieI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Rowan Atkinson as Mr. Bean. -u/GullibleAbalone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Christian Bale as Patrick Bateman. In an alternate universe, its Leonardo De Caprio. I cannot imagine that. -u/E_-_R_-_I_-_C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Maggie Smith as Professor McGonagall. -u/highlandcow75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Antony Starr as Homelander. -Heavy_Chains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Val Kilmer as Doc Holliday. -u/MickSturbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226886.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Patrick Stewart as Jean-Luc Picard. -u/ericallenjett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Sir Ian McKellen as Gandalf. -u/SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Bryan Cranston as Walter White. -u/GR3TSCH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Alan Rickman as Severus Snape. Killed it from the very start. -u/gswkillinit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Rainn Wilson as Dwight Schrute. -u/RealQuickNope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Harrison Ford as Indiana Jones. -u/Jedibri81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226894.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">Joe Rogan Facts That Make Total Sense</a><br>
 
 <span style="font-size:4em">1. In 2005, Wesley Snipes entered into negotiations to fight Fear Factor host Joe Rogan on Ultimate Fighting Match, but the deal fell through.
 
@@ -290,7 +380,87 @@ Last updated: 08/01/2022-15:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">20 Maps That Are Terrible but Not Wrong</a><br>
+## <a href="#linky7" id="linky6">Employee Leaves Work during Busy Rush after Being Denied Overtime Pay</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">46 Fun and Fascinating Photos For Your Eyes Only</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226711.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">20 Maps That Are Terrible but Not Wrong</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123910/87226608/americas.jpg" style="width:100%"><br>
 
@@ -334,123 +504,67 @@ Last updated: 08/01/2022-15:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Employee Leaves Work during Busy Rush after Being Denied Overtime Pay</a><br>
+## <a href="#linky10" id="linky9">28 Times Expectations Were Destroyed By Reality</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225962.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225963.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">24 Funny Memes With Subtle Undertones of Dank</a><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227049.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When you and your friend miss your stop and suddenly you realize youre going to that OTHER part of town</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227042.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227043.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227044.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227045.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227046.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227047.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227048.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227050.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227051.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227052.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227053.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227054.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227055.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227056.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227057.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227058.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227059.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227060.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227061.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227062.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227064.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225985.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
-
-<span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. I want to hire a lookalike of myself who will pop out of a coffin and perform the “Thriller” choreography. -u/lordcameltoe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224853.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Ghostbuster theme. -u/Calm-Internet6926</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Take It With Me When I Go.” Tom Waits -u/youngyeoman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Shine On You Crazy Diamond. -u/Teemo63339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Closed casket…pop goes the weasel. -u/graeuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I want the credits theme for Super Mario World (SNES) played as everyone walks out. It’s a chipper tune and I think would lift everyone up. It’s also fitting as that was the first real game I ever played at 5 years old and it has a special place in my heart. -u/CutAccording7289</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Just tie my body to a ceiling fan and play Freebird. -u/tommytraddles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Going Out in Style.” - Dropkick Murphys -u/ShockingPyro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My Grandpa had Always Look at the Bright Side of Life From Life of Brian at his funeral. Id like something like that. -u/TechnologyOdd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This Girl is on Fire. I want to be cremated -u/Jazzlike-Pineapple38</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Do You Realize” by The Flaming Lips.Ive said it since high school, and I mean it. The lyrics can be a little odd, but the theme of time being relative, that good days dont end, they simply enter your memory and exist permanently in the past…that is what I want people who miss me to hear. -u/AndrewFurg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Wish You Were Here.” - Pink Floyd -u/AlexiosMakesMusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Still Alive (from Portal). -u/Megalopath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. As people start leaving, I’d like the Seinfeld theme to start playing. -u/Nine-Breaker009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224864.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Now We Are Free…Song from Gladiator. -u/Dry-Communication901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “How to Disappear Completely,” Radiohead. -u/windowmaker55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “F*ck the pain away” - Peaches.My family would be horrified and I want the last laugh. -u/KingMotard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224868.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. The Parting Glass by the Dubliners. -u/doyola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224869.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This Must Be the Place - Talking Heads. it perfectly sums up loving life while also being a bit confused about it. it’s about not being able to say “I love you,” but meaning it and trying your best.Plus, everyone with a heart likes that song. -u/lorqvonray94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Tiptoe Through the Tulips…As performed by Tiny Tim. -u/Bodhik344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Another One Bites the Dust by Queen. -u/fg10037</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Carry on Wayward Son. -u/loverofgoodthings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Please Dont Bury Me. - John Prine. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Somewhere Over the Rainbow - Israel IZ Kamakawiwoʻole. -u/Sluggy_Toe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224875.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">30 Facts That Could Save Your Life</a><br>
+## <a href="#linky11" id="linky10">30 Facts That Could Save Your Life</a><br>
 
 <span style="font-size:4em">1. If you’re outdoors in the heat and you stop sweating, you’re in trouble. You need to hydrate and get the f**k inside and if you can’t keep water down, go to the hospital or urgent care for an IV. You are SEVERELY dehydrated and at high risk for a heat stroke. You should always be sweating if it’s hot and you’re doing strenuous work.
 
@@ -574,285 +688,107 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">28 Times Expectations Were Destroyed By Reality</a><br>
+## <a href="#linky12" id="linky11">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225978.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225959.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I want to hire a lookalike of myself who will pop out of a coffin and perform the “Thriller” choreography. -u/lordcameltoe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224853.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225961.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Ghostbuster theme. -u/Calm-Internet6926</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225962.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Take It With Me When I Go.” Tom Waits -u/youngyeoman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225963.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Shine On You Crazy Diamond. -u/Teemo63339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225964.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Closed casket…pop goes the weasel. -u/graeuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225965.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I want the credits theme for Super Mario World (SNES) played as everyone walks out. It’s a chipper tune and I think would lift everyone up. It’s also fitting as that was the first real game I ever played at 5 years old and it has a special place in my heart. -u/CutAccording7289</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225967.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Just tie my body to a ceiling fan and play Freebird. -u/tommytraddles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225968.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Going Out in Style.” - Dropkick Murphys -u/ShockingPyro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225958.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. My Grandpa had Always Look at the Bright Side of Life From Life of Brian at his funeral. Id like something like that. -u/TechnologyOdd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225969.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. This Girl is on Fire. I want to be cremated -u/Jazzlike-Pineapple38</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225970.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Do You Realize” by The Flaming Lips.Ive said it since high school, and I mean it. The lyrics can be a little odd, but the theme of time being relative, that good days dont end, they simply enter your memory and exist permanently in the past…that is what I want people who miss me to hear. -u/AndrewFurg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225971.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Wish You Were Here.” - Pink Floyd -u/AlexiosMakesMusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225960.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Still Alive (from Portal). -u/Megalopath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225972.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. As people start leaving, I’d like the Seinfeld theme to start playing. -u/Nine-Breaker009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224864.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225973.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Now We Are Free…Song from Gladiator. -u/Dry-Communication901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225974.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “How to Disappear Completely,” Radiohead. -u/windowmaker55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225975.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “F*ck the pain away” - Peaches.My family would be horrified and I want the last laugh. -u/KingMotard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224868.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225966.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The Parting Glass by the Dubliners. -u/doyola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224869.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225976.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This Must Be the Place - Talking Heads. it perfectly sums up loving life while also being a bit confused about it. it’s about not being able to say “I love you,” but meaning it and trying your best.Plus, everyone with a heart likes that song. -u/lorqvonray94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225977.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Tiptoe Through the Tulips…As performed by Tiny Tim. -u/Bodhik344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225979.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Another One Bites the Dust by Queen. -u/fg10037</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225980.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Carry on Wayward Son. -u/loverofgoodthings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225981.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Please Dont Bury Me. - John Prine. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225985.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Somewhere Over the Rainbow - Israel IZ Kamakawiwoʻole. -u/Sluggy_Toe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224875.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">25 Actors So Good Their Roles Can Never Be Recast</a><br>
+## <a href="#linky13" id="linky12">24 Funny Memes With Subtle Undertones of Dank</a><br>
 
-<span style="font-size:4em">1. James Gandolfini as Tony Soprano. -u/MyBestDisguise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226878.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Sigourney Weaver as Ripley in the Alien franchise. -u/insert_name_here925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226872.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. When you and your friend miss your stop and suddenly you realize youre going to that OTHER part of town</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Jeff Bridges IS the Dude. -u/hlerdnerp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226887.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cary Elwes as Westley/Dread Pirate Roberts. -u/Shadowfaxx71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226870.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Jack Gleeson as Joffrey Baratheon. -u/Fuck-Reddit-Mods69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226876.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Bruce Campbell in Army Of Darkness. -u/ctennessen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226871.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Javier Bardem in No Country for Old Men. -u/blurplethenurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226873.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Christoph Waltz as Hans Landa in Inglorius Basterds. -u/SpectreOperator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226874.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. J.K. Simmons as Jonah Jameson. So good that he played the same character across multiple spider-verses. -u/The_Mouse_That_Jumps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226880.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Say what you want about the character. Imelda Staunton, who plays that massive c*nt Delores Umbridge, did a fantastic job at making me hate her. -u/MenstruatingMuffin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226892.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Danny DeVito as Frank Reynolds. Id seen him in a bunch of stuff before, but Frank is the perfect role for him. -u/JayGold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226875.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Arnold Schwarzenegger as the Terminator. -u/00-H</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226877.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Nick Offerman as Ron Swanson. -u/izatrap2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226879.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Michael J Fox as Marty McFly. -u/trauerspieI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226881.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Rowan Atkinson as Mr. Bean. -u/GullibleAbalone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226882.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Christian Bale as Patrick Bateman. In an alternate universe, its Leonardo De Caprio. I cannot imagine that. -u/E_-_R_-_I_-_C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226883.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Maggie Smith as Professor McGonagall. -u/highlandcow75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226884.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Antony Starr as Homelander. -Heavy_Chains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226885.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Val Kilmer as Doc Holliday. -u/MickSturbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226886.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Patrick Stewart as Jean-Luc Picard. -u/ericallenjett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226888.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Sir Ian McKellen as Gandalf. -u/SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226889.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Bryan Cranston as Walter White. -u/GR3TSCH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226890.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Alan Rickman as Severus Snape. Killed it from the very start. -u/gswkillinit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Rainn Wilson as Dwight Schrute. -u/RealQuickNope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Harrison Ford as Indiana Jones. -u/Jedibri81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226894.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">30 Product Designs Better That Might Be Genius</a><br>
-
-<span style="font-size:4em">1. This Nutmeg I Bought In France Comes With Its Own Tiny Grater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This Baby Pickle Jar Came With A Tiny Elevator For Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This Painting I Bought At The Zoo Came With A Picture Of The Meerkat Family Who Painted It</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My Dogs Tore Apart A Cactus Toy, To Reveal Another, Sad Cactus Toy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Box That My Grill Came In Can Be Inverted To Make A Playhouse For A Toddler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My Husband Ordered A Used Laptop And It Arrived Completely Packed In Little Paper Cranes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My Cappuccino Came With A Tiny Ice Cream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Diploma Came With A Wallet-Sized Version</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My Hair Dye Came With Little Gloves To Cover My Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. First Record I Bought In 15 Years. Came With A Cardboard Gramophone. It Works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Toilet Paper Came With A To-Go Roll In The Middle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The Book My SO Purchased Came With A Bookmark That Listed The Character’s Names And Their Roles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My Shirt Has A Microfiber Sewn On The Inside To Clean Glasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I Bought A Pack Of Cigarettes And They Came With A Postage-Paid Recycling Pouch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My Spatula Has A Little Stand So It Doesn’t Touch The Counter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My Bra Came With An Info Tag On Checking Yourself For Breast Cancer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The Logo On My Umbrella Only Shows Up When Wet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Inside Of The Pizza Box Was A Tuxedo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Amazon Purchase Came With A Personal Note And Some Russian Coins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My New Dress Came With A Napkin, Apparently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. My New Set Of Sheets Came With A Handy Little Pocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My Coaster Came With A Built In Activity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. This Yogurt Lid Can Be Folded Into A Little Spoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This Message Stamped On The Squeaker Inside The Stuffed Animal My Dog Just Destroyed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Wine I Ordered Online Came With A Tiny Set Of Dice Packaged Inside A Hollow Cork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My Backpacks Front Buckle Has A Built In Whistle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Microwave Came With Optional Braille Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This Radiator Has A Pie Warmer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Multi-Tool Belt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My Bottle Of Canadian Whisky Came With Free Public Transportation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222426.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Monday Morning Randomness User Edition - ULook2</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226947.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227064.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
