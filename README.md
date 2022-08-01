@@ -1,130 +1,7 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/01/2022-12:47:24
+Last updated: 08/01/2022-13:47:22
 <br>
-## <a href="#linky2" id="linky1">Joe Rogan Facts That Make Total Sense</a><br>
-
-<span style="font-size:4em">1. In 2005, Wesley Snipes entered into negotiations to fight Fear Factor host Joe Rogan on Ultimate Fighting Match, but the deal fell through.
-
--u/MR___SLAVE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. During the 1990s, Joe Rogan paid $10,000 per month to have a T1 internet connection installed in his house in order to play Quake without dealing with lag.
-
--u/TokingMessiah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221375.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Joe Rogan and My Chemical Romances Gerard Way are second cousins.
-
--u/Pearathon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221376.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. 19-year-old Joe Rogan won the US Open Taekwondo lightweight championship, and then went on to beat both the US middle and heavyweight champions. 
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Joe Rogan has a personal sensory deprivation tank.
-
--u/cheesylady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. According to Joe Rogan, Fear Factor was canceled in part because the producers went too far when one of the challenges involved drinking Donkey urine and semen.
-
--u/vetruvian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Joe Rogan was high for every episode of Fear Factor seasons 2-6.
-
--u/halcyon44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Joe Rogan had 3 hair transplant surgeries.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Louis CK fired his management agency because they asked another client, Joe Rogan, to apologize to Carlos Mencia for outing him as a joke thief.
-
--u/PostModernPromethius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Joe Rogan was in a documentary about DMT (dimethyltryptamine - try saying that 3 times fast), He also talks about DMT on his Podcast saying Its like youre in a universe built on Peace, Love, and Unity.
-
--u/nextinplease</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Matt Damon, Bette Davis, John Krasinski, Matt Leblanc, Amy Poehler, Joe Rogan, Eli Roth and Louis CK are ALL from Newton, MA.
-
--u/choast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221384.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Joe Rogan is a kickboxer, Judoka, and holds a black belt in Brazilian Jiu Jitsu.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221385.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. The Rock once dumped Joe Rogan for being a racist piece of sh*t.
--u/flappingmeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Joe Rogan said Canada must dump Justin Trudeau.
-
--u/WuzzWuzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Joe Rogans big break came after Ray Romano was fired by NewsRadios producers.
-
--u/roguetowel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Crosby, Stills & Nash returned to Spotify after a 5-month boycott from the Joe Rogan-Spotify controversy.
-
--u/YoureASkyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Millionaire celebrity podcaster Joe Rogan backed Florida Republican Governor Ron DeSantis for US president.
-
--u/Motor-Ad-8858</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221389.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Joe Rogan says he’s rejected Trump as a podcast guest multiple times.
-
--u/nimobo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221390.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Joe Rogan praised Roman Emperor Marcus Aurelius for his modern writing style and not writing in Shakespearean English.
-
--u/dudlord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Joe Rogan thinks Joe Schilling is cool for being an a**hole meathead and knocking out non-fighters in bars.
-
--u/Krstoserofil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Steve Bannon blasted Joe Rogan and his ‘low information’ listeners after he calls Trump a danger to democracy.
-
--u/MajorRichardHead7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Joe Rogan on Joe Biden: Biden shakes hands with people that arent even there when he gets off stage. I think hes seeing ghosts ... If he was anyone else, if he was a Republican, if that was Donald Trump doing that, every f*cking talk show would be screaming for him to be off the air.
-
--u/frog9913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Joe Rogan said its okay if people sh*t on him. In fact, he says he would sh*t on himself about steroid use & insecurities of being short.
-
--u/kingpussypumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Joe Rogan called Trump a ‘Man Baby,’ and theorized he was on Adderall during his presidency.
-
--u/GregSmith1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221396.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Joe Rogan was addicted to the video game Quake; he would play up to 10 hours a day.
-
--u/p_hinman3rd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221397.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">Passed Out Ben Affleck is Our Meme of the Week</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/111204/87226243/sleeping-ben-affleck2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110904/87226241/sleeping-ben-affleck4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110820/87226235/sleeping-ben-affleck3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110831/87226237/sleeping-ben-affleck6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110824/87226236/sleeping-ben-affleck1.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110836/87226238/sleeping-ben-affleck5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110842/87226239/sleeping-ben-affleck8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110813/87226234/sleeping-ben-affleck7.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">30 Product Designs Better That Might Be Genius</a><br>
+## <a href="#linky2" id="linky1">30 Product Designs Better That Might Be Genius</a><br>
 
 <span style="font-size:4em">1. This Nutmeg I Bought In France Comes With Its Own Tiny Grater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87222419.jpg" style="width:100%"><br>
 
@@ -188,57 +65,129 @@ Last updated: 08/01/2022-12:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
+## <a href="#linky3" id="linky2">28 Times Expectations Were Destroyed By Reality</a><br>
 
-<span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I want to hire a lookalike of myself who will pop out of a coffin and perform the “Thriller” choreography. -u/lordcameltoe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224853.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Ghostbuster theme. -u/Calm-Internet6926</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224854.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Take It With Me When I Go.” Tom Waits -u/youngyeoman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224855.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Shine On You Crazy Diamond. -u/Teemo63339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224856.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Closed casket…pop goes the weasel. -u/graeuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224857.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I want the credits theme for Super Mario World (SNES) played as everyone walks out. It’s a chipper tune and I think would lift everyone up. It’s also fitting as that was the first real game I ever played at 5 years old and it has a special place in my heart. -u/CutAccording7289</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224867.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Just tie my body to a ceiling fan and play Freebird. -u/tommytraddles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224858.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Going Out in Style.” - Dropkick Murphys -u/ShockingPyro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224859.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. My Grandpa had Always Look at the Bright Side of Life From Life of Brian at his funeral. Id like something like that. -u/TechnologyOdd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224860.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. This Girl is on Fire. I want to be cremated -u/Jazzlike-Pineapple38</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224861.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Do You Realize” by The Flaming Lips.Ive said it since high school, and I mean it. The lyrics can be a little odd, but the theme of time being relative, that good days dont end, they simply enter your memory and exist permanently in the past…that is what I want people who miss me to hear. -u/AndrewFurg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224851.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Wish You Were Here.” - Pink Floyd -u/AlexiosMakesMusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224862.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Still Alive (from Portal). -u/Megalopath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224863.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. As people start leaving, I’d like the Seinfeld theme to start playing. -u/Nine-Breaker009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224864.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Now We Are Free…Song from Gladiator. -u/Dry-Communication901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224865.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “How to Disappear Completely,” Radiohead. -u/windowmaker55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224866.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “F*ck the pain away” - Peaches.My family would be horrified and I want the last laugh. -u/KingMotard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224868.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Parting Glass by the Dubliners. -u/doyola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224869.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This Must Be the Place - Talking Heads. it perfectly sums up loving life while also being a bit confused about it. it’s about not being able to say “I love you,” but meaning it and trying your best.Plus, everyone with a heart likes that song. -u/lorqvonray94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224870.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Tiptoe Through the Tulips…As performed by Tiny Tim. -u/Bodhik344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224871.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Another One Bites the Dust by Queen. -u/fg10037</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224874.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Carry on Wayward Son. -u/loverofgoodthings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224872.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Please Dont Bury Me. - John Prine. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224873.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Somewhere Over the Rainbow - Israel IZ Kamakawiwoʻole. -u/Sluggy_Toe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224875.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225985.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">Employee Leaves Work during Busy Rush after Being Denied Overtime Pay</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">25 Actors So Good Their Roles Can Never Be Recast</a><br>
+
+<span style="font-size:4em">1. James Gandolfini as Tony Soprano. -u/MyBestDisguise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Sigourney Weaver as Ripley in the Alien franchise. -u/insert_name_here925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Jeff Bridges IS the Dude. -u/hlerdnerp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Cary Elwes as Westley/Dread Pirate Roberts. -u/Shadowfaxx71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Jack Gleeson as Joffrey Baratheon. -u/Fuck-Reddit-Mods69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Bruce Campbell in Army Of Darkness. -u/ctennessen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Javier Bardem in No Country for Old Men. -u/blurplethenurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Christoph Waltz as Hans Landa in Inglorius Basterds. -u/SpectreOperator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. J.K. Simmons as Jonah Jameson. So good that he played the same character across multiple spider-verses. -u/The_Mouse_That_Jumps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Say what you want about the character. Imelda Staunton, who plays that massive c*nt Delores Umbridge, did a fantastic job at making me hate her. -u/MenstruatingMuffin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Danny DeVito as Frank Reynolds. Id seen him in a bunch of stuff before, but Frank is the perfect role for him. -u/JayGold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Arnold Schwarzenegger as the Terminator. -u/00-H</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Nick Offerman as Ron Swanson. -u/izatrap2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Michael J Fox as Marty McFly. -u/trauerspieI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Rowan Atkinson as Mr. Bean. -u/GullibleAbalone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Christian Bale as Patrick Bateman. In an alternate universe, its Leonardo De Caprio. I cannot imagine that. -u/E_-_R_-_I_-_C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Maggie Smith as Professor McGonagall. -u/highlandcow75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Antony Starr as Homelander. -Heavy_Chains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Val Kilmer as Doc Holliday. -u/MickSturbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226886.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Patrick Stewart as Jean-Luc Picard. -u/ericallenjett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Sir Ian McKellen as Gandalf. -u/SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Bryan Cranston as Walter White. -u/GR3TSCH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Alan Rickman as Severus Snape. Killed it from the very start. -u/gswkillinit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Rainn Wilson as Dwight Schrute. -u/RealQuickNope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Harrison Ford as Indiana Jones. -u/Jedibri81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226894.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -346,19 +295,7 @@ Last updated: 08/01/2022-12:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">Company Refuses to Pay Overtime, Worker Leaves Early Instead</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">20 Maps That Are Terrible but Not Wrong</a><br>
+## <a href="#linky7" id="linky6">20 Maps That Are Terrible but Not Wrong</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123910/87226608/americas.jpg" style="width:100%"><br>
 
@@ -402,141 +339,110 @@ Last updated: 08/01/2022-12:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">46 Fun and Fascinating Photos For Your Eyes Only</a><br>
+## <a href="#linky8" id="linky7">Joe Rogan Facts That Make Total Sense</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226680.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. In 2005, Wesley Snipes entered into negotiations to fight Fear Factor host Joe Rogan on Ultimate Fighting Match, but the deal fell through.
+
+-u/MR___SLAVE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226681.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. During the 1990s, Joe Rogan paid $10,000 per month to have a T1 internet connection installed in his house in order to play Quake without dealing with lag.
+
+-u/TokingMessiah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221375.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226691.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Joe Rogan and My Chemical Romances Gerard Way are second cousins.
+
+-u/Pearathon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221376.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226695.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. 19-year-old Joe Rogan won the US Open Taekwondo lightweight championship, and then went on to beat both the US middle and heavyweight champions. 
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221377.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226682.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Joe Rogan has a personal sensory deprivation tank.
+
+-u/cheesylady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221379.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226685.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. According to Joe Rogan, Fear Factor was canceled in part because the producers went too far when one of the challenges involved drinking Donkey urine and semen.
+
+-u/vetruvian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221380.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226683.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Joe Rogan was high for every episode of Fear Factor seasons 2-6.
+
+-u/halcyon44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226684.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Joe Rogan had 3 hair transplant surgeries.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221381.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226686.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Louis CK fired his management agency because they asked another client, Joe Rogan, to apologize to Carlos Mencia for outing him as a joke thief.
+
+-u/PostModernPromethius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226687.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Joe Rogan was in a documentary about DMT (dimethyltryptamine - try saying that 3 times fast), He also talks about DMT on his Podcast saying Its like youre in a universe built on Peace, Love, and Unity.
+
+-u/nextinplease</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221383.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226688.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Matt Damon, Bette Davis, John Krasinski, Matt Leblanc, Amy Poehler, Joe Rogan, Eli Roth and Louis CK are ALL from Newton, MA.
+
+-u/choast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221384.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226689.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Joe Rogan is a kickboxer, Judoka, and holds a black belt in Brazilian Jiu Jitsu.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221385.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226690.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The Rock once dumped Joe Rogan for being a racist piece of sh*t.
+-u/flappingmeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226692.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Joe Rogan said Canada must dump Justin Trudeau.
+
+-u/WuzzWuzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226693.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Joe Rogans big break came after Ray Romano was fired by NewsRadios producers.
+
+-u/roguetowel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226694.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Crosby, Stills & Nash returned to Spotify after a 5-month boycott from the Joe Rogan-Spotify controversy.
+
+-u/YoureASkyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221388.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226696.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Millionaire celebrity podcaster Joe Rogan backed Florida Republican Governor Ron DeSantis for US president.
+
+-u/Motor-Ad-8858</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221389.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226697.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Joe Rogan says he’s rejected Trump as a podcast guest multiple times.
+
+-u/nimobo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221390.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226698.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Joe Rogan praised Roman Emperor Marcus Aurelius for his modern writing style and not writing in Shakespearean English.
+
+-u/dudlord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226699.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Joe Rogan thinks Joe Schilling is cool for being an a**hole meathead and knocking out non-fighters in bars.
+
+-u/Krstoserofil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226700.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Steve Bannon blasted Joe Rogan and his ‘low information’ listeners after he calls Trump a danger to democracy.
+
+-u/MajorRichardHead7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226701.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Joe Rogan on Joe Biden: Biden shakes hands with people that arent even there when he gets off stage. I think hes seeing ghosts ... If he was anyone else, if he was a Republican, if that was Donald Trump doing that, every f*cking talk show would be screaming for him to be off the air.
+
+-u/frog9913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226702.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Joe Rogan said its okay if people sh*t on him. In fact, he says he would sh*t on himself about steroid use & insecurities of being short.
+
+-u/kingpussypumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226703.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Joe Rogan called Trump a ‘Man Baby,’ and theorized he was on Adderall during his presidency.
+
+-u/GregSmith1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221396.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226711.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Joe Rogan was addicted to the video game Quake; he would play up to 10 hours a day.
+
+-u/p_hinman3rd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221397.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">32 Fab Photos to Kill Some Time</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226313.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226335.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">30 Facts That Could Save Your Life</a><br>
+## <a href="#linky9" id="linky8">30 Facts That Could Save Your Life</a><br>
 
 <span style="font-size:4em">1. If you’re outdoors in the heat and you stop sweating, you’re in trouble. You need to hydrate and get the f**k inside and if you can’t keep water down, go to the hospital or urgent care for an IV. You are SEVERELY dehydrated and at high risk for a heat stroke. You should always be sweating if it’s hot and you’re doing strenuous work.
 
@@ -660,6 +566,128 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky10" id="linky9">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
+
+<span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. I want to hire a lookalike of myself who will pop out of a coffin and perform the “Thriller” choreography. -u/lordcameltoe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224853.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Ghostbuster theme. -u/Calm-Internet6926</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Take It With Me When I Go.” Tom Waits -u/youngyeoman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shine On You Crazy Diamond. -u/Teemo63339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Closed casket…pop goes the weasel. -u/graeuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I want the credits theme for Super Mario World (SNES) played as everyone walks out. It’s a chipper tune and I think would lift everyone up. It’s also fitting as that was the first real game I ever played at 5 years old and it has a special place in my heart. -u/CutAccording7289</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Just tie my body to a ceiling fan and play Freebird. -u/tommytraddles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Going Out in Style.” - Dropkick Murphys -u/ShockingPyro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My Grandpa had Always Look at the Bright Side of Life From Life of Brian at his funeral. Id like something like that. -u/TechnologyOdd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This Girl is on Fire. I want to be cremated -u/Jazzlike-Pineapple38</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Do You Realize” by The Flaming Lips.Ive said it since high school, and I mean it. The lyrics can be a little odd, but the theme of time being relative, that good days dont end, they simply enter your memory and exist permanently in the past…that is what I want people who miss me to hear. -u/AndrewFurg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Wish You Were Here.” - Pink Floyd -u/AlexiosMakesMusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Still Alive (from Portal). -u/Megalopath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. As people start leaving, I’d like the Seinfeld theme to start playing. -u/Nine-Breaker009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224864.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Now We Are Free…Song from Gladiator. -u/Dry-Communication901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “How to Disappear Completely,” Radiohead. -u/windowmaker55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “F*ck the pain away” - Peaches.My family would be horrified and I want the last laugh. -u/KingMotard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224868.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Parting Glass by the Dubliners. -u/doyola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224869.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. This Must Be the Place - Talking Heads. it perfectly sums up loving life while also being a bit confused about it. it’s about not being able to say “I love you,” but meaning it and trying your best.Plus, everyone with a heart likes that song. -u/lorqvonray94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Tiptoe Through the Tulips…As performed by Tiny Tim. -u/Bodhik344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Another One Bites the Dust by Queen. -u/fg10037</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Carry on Wayward Son. -u/loverofgoodthings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Please Dont Bury Me. - John Prine. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Somewhere Over the Rainbow - Israel IZ Kamakawiwoʻole. -u/Sluggy_Toe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224875.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">46 Fun and Fascinating Photos For Your Eyes Only</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226711.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky12" id="linky11">23 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87223127.jpg" style="width:100%"><br>
@@ -718,117 +746,89 @@ As soon as you get knocked down your chances decrease significantly. If this is 
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">25 Actors So Good Their Roles Can Never Be Recast</a><br>
+## <a href="#linky13" id="linky12">Passed Out Ben Affleck is Our Meme of the Week</a><br>
 
-<span style="font-size:4em">1. James Gandolfini as Tony Soprano. -u/MyBestDisguise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226878.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/111204/87226243/sleeping-ben-affleck2.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Sigourney Weaver as Ripley in the Alien franchise. -u/insert_name_here925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226872.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110904/87226241/sleeping-ben-affleck4.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Jeff Bridges IS the Dude. -u/hlerdnerp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226887.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110820/87226235/sleeping-ben-affleck3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cary Elwes as Westley/Dread Pirate Roberts. -u/Shadowfaxx71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226870.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110831/87226237/sleeping-ben-affleck6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Jack Gleeson as Joffrey Baratheon. -u/Fuck-Reddit-Mods69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226876.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110824/87226236/sleeping-ben-affleck1.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Bruce Campbell in Army Of Darkness. -u/ctennessen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226871.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110836/87226238/sleeping-ben-affleck5.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Javier Bardem in No Country for Old Men. -u/blurplethenurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226873.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110842/87226239/sleeping-ben-affleck8.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Christoph Waltz as Hans Landa in Inglorius Basterds. -u/SpectreOperator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. J.K. Simmons as Jonah Jameson. So good that he played the same character across multiple spider-verses. -u/The_Mouse_That_Jumps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Say what you want about the character. Imelda Staunton, who plays that massive c*nt Delores Umbridge, did a fantastic job at making me hate her. -u/MenstruatingMuffin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Danny DeVito as Frank Reynolds. Id seen him in a bunch of stuff before, but Frank is the perfect role for him. -u/JayGold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Arnold Schwarzenegger as the Terminator. -u/00-H</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nick Offerman as Ron Swanson. -u/izatrap2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Michael J Fox as Marty McFly. -u/trauerspieI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Rowan Atkinson as Mr. Bean. -u/GullibleAbalone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Christian Bale as Patrick Bateman. In an alternate universe, its Leonardo De Caprio. I cannot imagine that. -u/E_-_R_-_I_-_C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Maggie Smith as Professor McGonagall. -u/highlandcow75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Antony Starr as Homelander. -Heavy_Chains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Val Kilmer as Doc Holliday. -u/MickSturbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226886.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Patrick Stewart as Jean-Luc Picard. -u/ericallenjett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Sir Ian McKellen as Gandalf. -u/SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Bryan Cranston as Walter White. -u/GR3TSCH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Alan Rickman as Severus Snape. Killed it from the very start. -u/gswkillinit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Rainn Wilson as Dwight Schrute. -u/RealQuickNope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Harrison Ford as Indiana Jones. -u/Jedibri81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226894.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/28/110813/87226234/sleeping-ben-affleck7.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">28 Times Expectations Were Destroyed By Reality</a><br>
+## <a href="#linky14" id="linky13">32 Fab Photos to Kill Some Time</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225978.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225959.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226306.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225961.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226307.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225962.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226308.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225963.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226309.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225964.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225965.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225967.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226312.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225968.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226313.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225958.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225969.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225970.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225971.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225960.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226318.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225972.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226319.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225973.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225974.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225975.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225966.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226323.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225976.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226324.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225977.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226325.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225979.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226326.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225980.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225981.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226328.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225982.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225983.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226330.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225984.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226331.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225985.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87226335.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
