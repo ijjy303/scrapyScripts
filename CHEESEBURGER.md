@@ -1,31 +1,7 @@
 # We Haz Da Meatz<br>
-Last updated: 08/02/2022-10:47:17
+Last updated: 08/02/2022-11:47:17
 <br>
-## <a href="#linky2" id="linky1">The Best Tinder Posts Of The Week</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9568882944/h41451909/zero-efrnes-blackheads-number-zero-sexual-encounters-had-since-downloading-tinder-1-year-ago-zero" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9568883200/h341CE9D2/tell-little-something-about-yourself-why" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9568883456/hA4C010B6/person-her-really-like-men-think-ahead-already-drank-liter-pineapple-juice-her" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9568883712/hE05AFF7D/back-and-my-only-weapon-is-shake-weight-glued-my-forehead-just-get-chance-get-know-then-dont-want" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9568883968/hA1F7700B/and-go-straight-nandos-only-got-3-days-might-be-hottest-thing-guy-has-ever-said-gif-type-message-v" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9568884224/hAF77C809/casual-sex-need-career-orientated-homeowner-be-stepfather-their-kids-who-thought-this-hookup-app" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9568884736/hB19BC660/person-if-arent-going-respond-guys-who-open-with-hey-on-tinder-dont-open-with-hey-on-bumble" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9568886528/hCFFABEC5/wonder-would-look-on-my-bedroom-floor-no-understandable-have-anais-day-sent-type-message-send-gif" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9568887296/h4744DE39/am-hm-today-259-am-am-curious-dash-certainly-worked-as-an-ice-breaker-today-714-am-hyphen-hi-finn" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9568887552/hE624E046/line-have-ever-received-straight-group-chat-so-my-place-or-yours-amber-6-hours-ago-gif-send-message" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky3" id="linky2">Wildly Unexpected Tinder Pickup Lines That Spotlight Tinder for the Circus That It Is</a><br>
+## <a href="#linky2" id="linky1">Wildly Unexpected Tinder Pickup Lines That Spotlight Tinder for the Circus That It Is</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9026636544/hB9B1D512/then-tinder-is-my-pimp-active-9-hours-ago-great-ti-personality-is-this-part-of-the-adventure-seeker" style="width:100%"><br>
 
@@ -69,6 +45,50 @@ Last updated: 08/02/2022-10:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
+## <a href="#linky3" id="linky2">Wife Switches Hotel From Husband On Vacation After He Yelled At Their Daughter</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691072256/h235A08C8/job-and-makes-good-grades-shes-fact-kinda-hermit-her-age-unknown-my-husband-set-hot-water-heater-re" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691072000/h6AC74FD0/vacation-but-cant-stand-even-look-at-him-over-an-argument-over-something-so-stupid-and-preventable" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691072512/h118753D7/child-nta-behavior-here-thanks-sticking-up-an-innocent-kid-348k-reply-share-report-save-follow" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691074048/h63DA0C1E/needs-help-or-something-are-awesome-standing-up-daughter-like-reply-share-report-save-follow-106k" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691073536/hC1B4448E/he-needs-therapy-or-need-do-more-than-leave-him-just-vacation-58k-reply-share-report-save-follow" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691073024/h6471E459/is-recent-development-but-this-should-have-been-dealt-with-asap-427k-reply-share-report-save-follow" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691072768/hB11C3CE9/weird-hot-water-thing-is-just-spiteful-family-therapy-at-least-19k-reply-share-report-save-follow" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691073280/hF4C95A9C/going-nc-with-him-and-potentially-with-too-by-association-jerk-459-reply-share-report-save-follow" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691073792/h4B2A7E97/help-or-else-hes-not-going-have-good-relationship-with-her-316-reply-share-report-save-follow" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691074304/h770107D5/dishes-and-laundry-no-wonder-dont-want-be-with-him-who-can-blame-reply-share-report-save-follow-180" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691075840/h91097816/grow-up-thinking-this-is-she-is-supposed-be-treated-by-men-reply-share-report-save-follow-173" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691074560/h9874CF58/college-be-mom-and-stand-up-daughter-she-sounds-like-good-kid-112-reply-share-report-save-follow" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9691075072/h4D6EF05F/and-trying-get-here-out-house-one-other-possibility-is-he-knows-something-dont-and-this-is-u" style="width:100%"><br>
+
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9691074816/h4F81DD01/with-his-stinky-attitude-he-needs-get-grip-and-some-guidance-with-professional-reply-share-81" style="width:100%"><br>
+
+<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9691075328/h71DC9BEC/14-hr-ago-asshole-enthusiast-7-nta-and-sounds-like-hubby-could-benefit-some-therapy-reply-share-48" style="width:100%"><br>
+
+<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9691075584/hBF929E4E/problem-while-and-something-should-be-addressing-with-husband-perhaps-thru-therapy-46-reply-share" style="width:100%"><br>
+
+<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9691076096/hBCC0F96F/and-safe-daughter-do-plan-on-supporting-her-leaving-this-environment-she-is-18-40-reply-share" style="width:100%"><br>
+
+<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9691076352/hF28925E3/himself-daughter-gets-choose-if-she-ever-even-wants-see-him-or-speak-with-him-again-reply-share-40" style="width:100%"><br>
+
+<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9691076608/hBE41F69C/book-separate-flight-home-threaten-divorce-maybe-will-shock-his-head-out-his-own-ass-reply-share-33" style="width:100%"><br>
+
+<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9691076864/h54D81684/and-abusive-daughter-and-owe-her-and-yourself-get-both-out-this-situation-30-reply-share" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
 ## <a href="#linky4" id="linky3">These CringeWorthy Tattoos Are The Definition Of Regret</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9095218176/hAE00048B/tattoo-bet-kevin-spacey-isnt-the-only-one-regretting-some-of-his-life-choices" style="width:100%"><br>
@@ -103,7 +123,61 @@ Last updated: 08/02/2022-10:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">27 Hilarious Tweets About Sephora All Women Will Relate To</a><br>
+## <a href="#linky5" id="linky4">Not My Job Moments of Quality Unprofessionalism</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9560980480/hE0F01CF0/packaged-goods-fruits-vegetables-text-here-text-here-text-here-text-here-drs" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9560980736/h1F765862/floor" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9560981248/hA5A5FF65/car-maxi-ajoya" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9560981504/h44173F23/food-had-given-bakery-photo-on-usb-drive-put-on-cake-this-is-cake-they-end-up-making" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9560981760/h7E2DD1EB/make-sound-good-too-im-sorry-jon-hello-add-guacamole-15-add-cheddar-cheese-69-add-lemgthy-boi-420" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9560982016/hC5A88512/truck" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9560982272/h5A1BCCBF/clock" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9560982528/h1B5ACF22/shorts" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9560982784/h8FA5FA84/ladder-yv-ek-mewr-yyek" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9560983040/h37B6B76D/building" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9560983552/h6D84484B/road" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9560983808/h57EDE986/toilet" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9560984320/hE4B857DC/tire" style="width:100%"><br>
+
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9560984832/hFE713E85/toilet" style="width:100%"><br>
+
+<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9560985344/h1D5B715E/road" style="width:100%"><br>
+
+<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9560985600/h75B7A680/toilet" style="width:100%"><br>
+
+<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9560985856/hF05E62C6/packaged-goods-notice-touch-glass" style="width:100%"><br>
+
+<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9560986368/h9E2B49C1/fire-hydrant" style="width:100%"><br>
+
+<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9560987392/hB00CE762/pizza" style="width:100%"><br>
+
+<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9560987904/hEC248A54/person-market-pantry-big-brand-taste-priced-much-much-lower-out-pretzels-sory-incovemience" style="width:100%"><br>
+
+<span style="font-size:4em">21</span><br><img src="https://i.chzbgr.com/full/9560988672/h340146D0/shoe-toblurry" style="width:100%"><br>
+
+<span style="font-size:4em">22</span><br><img src="https://i.chzbgr.com/full/9560989952/h43268097/window" style="width:100%"><br>
+
+<span style="font-size:4em">23</span><br><img src="https://i.chzbgr.com/full/9560990208/h0CEE227F/luggage-bags" style="width:100%"><br>
+
+<span style="font-size:4em">24</span><br><img src="https://i.chzbgr.com/full/9560990464/h8D119B49/congratulations-and-underneath-tucker" style="width:100%"><br>
+
+<span style="font-size:4em">25</span><br><img src="https://i.chzbgr.com/full/9560990720/h9CE193CC/furniture" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">27 Hilarious Tweets About Sephora All Women Will Relate To</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9084075520/hF0CF0711/month-like-congrats-u-not-pregnant-go-spoil-yourself-now-retweets-likes-292-485-1001-am-29-jan-2016" style="width:100%"><br>
 
@@ -161,87 +235,27 @@ Last updated: 08/02/2022-10:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">Not My Job Moments of Quality Unprofessionalism</a><br>
+## <a href="#linky7" id="linky6">The Best Tinder Posts Of The Week</a><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9560980480/hE0F01CF0/packaged-goods-fruits-vegetables-text-here-text-here-text-here-text-here-drs" style="width:100%"><br>
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9568882944/h41451909/zero-efrnes-blackheads-number-zero-sexual-encounters-had-since-downloading-tinder-1-year-ago-zero" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9560980736/h1F765862/floor" style="width:100%"><br>
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9568883200/h341CE9D2/tell-little-something-about-yourself-why" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9560981248/hA5A5FF65/car-maxi-ajoya" style="width:100%"><br>
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9568883456/hA4C010B6/person-her-really-like-men-think-ahead-already-drank-liter-pineapple-juice-her" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9560981504/h44173F23/food-had-given-bakery-photo-on-usb-drive-put-on-cake-this-is-cake-they-end-up-making" style="width:100%"><br>
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9568883712/hE05AFF7D/back-and-my-only-weapon-is-shake-weight-glued-my-forehead-just-get-chance-get-know-then-dont-want" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9560981760/h7E2DD1EB/make-sound-good-too-im-sorry-jon-hello-add-guacamole-15-add-cheddar-cheese-69-add-lemgthy-boi-420" style="width:100%"><br>
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9568883968/hA1F7700B/and-go-straight-nandos-only-got-3-days-might-be-hottest-thing-guy-has-ever-said-gif-type-message-v" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9560982016/hC5A88512/truck" style="width:100%"><br>
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9568884224/hAF77C809/casual-sex-need-career-orientated-homeowner-be-stepfather-their-kids-who-thought-this-hookup-app" style="width:100%"><br>
 
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9560982272/h5A1BCCBF/clock" style="width:100%"><br>
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9568884736/hB19BC660/person-if-arent-going-respond-guys-who-open-with-hey-on-tinder-dont-open-with-hey-on-bumble" style="width:100%"><br>
 
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9560982528/h1B5ACF22/shorts" style="width:100%"><br>
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9568886528/hCFFABEC5/wonder-would-look-on-my-bedroom-floor-no-understandable-have-anais-day-sent-type-message-send-gif" style="width:100%"><br>
 
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9560982784/h8FA5FA84/ladder-yv-ek-mewr-yyek" style="width:100%"><br>
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9568887296/h4744DE39/am-hm-today-259-am-am-curious-dash-certainly-worked-as-an-ice-breaker-today-714-am-hyphen-hi-finn" style="width:100%"><br>
 
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9560983040/h37B6B76D/building" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9560983552/h6D84484B/road" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9560983808/h57EDE986/toilet" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9560984320/hE4B857DC/tire" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9560984832/hFE713E85/toilet" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9560985344/h1D5B715E/road" style="width:100%"><br>
-
-<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9560985600/h75B7A680/toilet" style="width:100%"><br>
-
-<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9560985856/hF05E62C6/packaged-goods-notice-touch-glass" style="width:100%"><br>
-
-<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9560986368/h9E2B49C1/fire-hydrant" style="width:100%"><br>
-
-<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9560987392/hB00CE762/pizza" style="width:100%"><br>
-
-<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9560987904/hEC248A54/person-market-pantry-big-brand-taste-priced-much-much-lower-out-pretzels-sory-incovemience" style="width:100%"><br>
-
-<span style="font-size:4em">21</span><br><img src="https://i.chzbgr.com/full/9560988672/h340146D0/shoe-toblurry" style="width:100%"><br>
-
-<span style="font-size:4em">22</span><br><img src="https://i.chzbgr.com/full/9560989952/h43268097/window" style="width:100%"><br>
-
-<span style="font-size:4em">23</span><br><img src="https://i.chzbgr.com/full/9560990208/h0CEE227F/luggage-bags" style="width:100%"><br>
-
-<span style="font-size:4em">24</span><br><img src="https://i.chzbgr.com/full/9560990464/h8D119B49/congratulations-and-underneath-tucker" style="width:100%"><br>
-
-<span style="font-size:4em">25</span><br><img src="https://i.chzbgr.com/full/9560990720/h9CE193CC/furniture" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">Tenant Demands To Get Rent Deducted Because There Was No Hot Water Over The Weekend</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690875392/h4A859A58/aita-refusing-pay-her-hotel-room" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690877184/hB4317F56/but-work-same-company-work-early-mornings-and-she-works-late-evenings-so-often-ships-passing-night" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690876160/h010D9A73/few-cold-showers-wont-kill-anyone-texted-my-tenant-hot-water-is-out-until-monday-and-she-responded" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690875904/h3BC427EC/back-on-she-hits-with-this-gem-my-hotel-bill-250-do-want-reimburse-now-or-deduct-next-months-rent" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690876416/h11C8CA14/didnt-know-left-rent-is-still-due-full-on-first-month-regardless-if-choose-sleep-elsewhere-weekend" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690875648/hABD9B057/back-there-no-water-couldnt-stay-there-my-landlord-and-have-provide-with-livable-accomodations" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690876672/hB977CFF9/rent-is-still-due-full-failure-pay-rent-will-result-filing-with-court-which-will-impact-credit" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690876928/hC88B945B/and-audacity-her-ask-pisses-off-but-know-jumping-talking-about-filing-thirty-days-bit-dramatic-ta" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690878464/h30FF50F8/form-pro-rated-rent-case-would-come-2667-per-day-water-heater-out-commission-assuming-30-day-month" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690877696/h8B820A43/not-shirking-his-responsibility-as-landlord-he-let-his-tenant-know-there-problem-and-she-sent-him-3" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690877440/h00488577/turn-around-time-repair-does-become-one-goes-on-weeks-without-repair-love-have-op-as-landlord" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690877952/h6871A82B/bosscat727-17-hr-ago-nta-water-available-dont-owe-her-anything-hotel-no-one-told-her-get-250-room" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690878208/h7C507B61/or-expected-also-agree-with-if-winter-would-be-different-story-delivery-direct-and-reasonable" style="width:100%"><br>
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9568887552/hE624E046/line-have-ever-received-straight-group-chat-so-my-place-or-yours-amber-6-hours-ago-gif-send-message" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -301,7 +315,131 @@ Last updated: 08/02/2022-10:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">Guys Reveal Their Biggest TurnOffs</a><br>
+## <a href="#linky10" id="linky9">Tenant Demands To Get Rent Deducted Because There Was No Hot Water Over The Weekend</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690875392/h4A859A58/aita-refusing-pay-her-hotel-room" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690877184/hB4317F56/but-work-same-company-work-early-mornings-and-she-works-late-evenings-so-often-ships-passing-night" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690876160/h010D9A73/few-cold-showers-wont-kill-anyone-texted-my-tenant-hot-water-is-out-until-monday-and-she-responded" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690875904/h3BC427EC/back-on-she-hits-with-this-gem-my-hotel-bill-250-do-want-reimburse-now-or-deduct-next-months-rent" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690876416/h11C8CA14/didnt-know-left-rent-is-still-due-full-on-first-month-regardless-if-choose-sleep-elsewhere-weekend" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690875648/hABD9B057/back-there-no-water-couldnt-stay-there-my-landlord-and-have-provide-with-livable-accomodations" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690876672/hB977CFF9/rent-is-still-due-full-failure-pay-rent-will-result-filing-with-court-which-will-impact-credit" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690876928/hC88B945B/and-audacity-her-ask-pisses-off-but-know-jumping-talking-about-filing-thirty-days-bit-dramatic-ta" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690878464/h30FF50F8/form-pro-rated-rent-case-would-come-2667-per-day-water-heater-out-commission-assuming-30-day-month" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690877696/h8B820A43/not-shirking-his-responsibility-as-landlord-he-let-his-tenant-know-there-problem-and-she-sent-him-3" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690877440/h00488577/turn-around-time-repair-does-become-one-goes-on-weeks-without-repair-love-have-op-as-landlord" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690877952/h6871A82B/bosscat727-17-hr-ago-nta-water-available-dont-owe-her-anything-hotel-no-one-told-her-get-250-room" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690878208/h7C507B61/or-expected-also-agree-with-if-winter-would-be-different-story-delivery-direct-and-reasonable" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">Woman Refuses To Host Her Stepdaughters Engagement Party Because She Cant Stand The Grooms Insufferable Mother </a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691812608/h427E8B54/example-4418-8-hours-ago-aita-preventing-my-husband-throwing-his-daughter-an-engagement-party" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691813376/h87861D22/him-wasnt-even-around-she-having-these-lackluster-parties-so-dont-know-is-my-fault-but-somehow-is" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691813120/hA95366C0/he-wasnt-ok-with-is-her-choice-but-personally-dont-think-is-healthy-let-child-run-life-extent" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691812864/hB9AD2391/anti-breast-feeding-and-made-joke-about-clara-will-never-want-bring-her-future-children-our-house" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691812352/hB29995BC/should-have-thicker-skin-and-not-care-this-woman-says-and-cited-her-fiance-offered-pay-our-couch" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691812096/h1E4B654A/with-being-disrespected-or-having-someone-say-my-daughter-should-not-exist-right-front-my-daughter" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691811840/hD9A08837/going-be-many-life-events-after-they-are-married-if-chase-his-daughter-away-he-may-go-too-suck-up" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691810560/h28C4AA7E/sneaky_heffa-8-hr-ago-nta-have-stand-up-yourself-dont-think-s-unfair" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691811328/h6BFC9642/grit-teeth-and-do-have-because-husband-wants-and-because-husband-be-sounds-like-decent-guy" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691811072/h3FC62DC6/because-cant-stand-one-guests-even-though-got-plenty-very-good-reason-hate-guest-isnt-right-way-do" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691811584/h15DC8A3C/celebrating-clara-and-are-fine-just-cancel-her-party-entirely-s-just-so-cold-and-selfish" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691810816/h636A53E7/2-yta-s-singular-night-and-s-big-moment-his-daughter-s-not-like-she-is-visiting-every-week" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">10 Fascinating Facts About Hooking Up</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691556352/h2552582E" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691553792/h7595B86F" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691554304/hF0B6BFBB" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691555072/hC4747253" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691554560/h9979EF2C" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691555328/h6B1F507D" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691554816/h15CCD3B0" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691555584/hF67FB34D" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691556096/hE0FB90E1" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691555840/hB33C4A18" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">The Funniest CanePun Pickup Lines This Recently Disabled Young Woman Keeps Getting and Using on Dating Apps</a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691569920/hF07FE143/the-line" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691570176/hDF4877F5/the-line" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691570432/h7FED70EC/the-line" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691570688/hE4C88B4F/the-line" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691570944/h658D791B/the-line" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691571200/h2DF186DD/the-line" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691571456/h4C49E5D8/the-line" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691583488/hE81B9E90/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691583744/h6DB645C2/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691584000/h065BF5ED/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691584256/h38906DE1/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691584512/h28CD48C6/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9691584768/h1D102FFD/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9691585024/hB2FB38D4/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9691585280/hA1E12F34/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9691585536/hF125AA1D/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9691585792/h0D03D90A/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9691586048/h93FCE0A1/her-response" style="width:100%"><br>
+
+<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9691586304/h3652A136/her-response" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Guys Reveal Their Biggest TurnOffs</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690859520/h36613ED1/posted-by-uhappy_most_5022-3-days-ago-435-3-men-reddit-is-biggest-turn-off-girl-can-do-nsfw" style="width:100%"><br>
 
@@ -355,73 +493,7 @@ Last updated: 08/02/2022-10:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">10 Fascinating Facts About Hooking Up</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691556352/h2552582E" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691553792/h7595B86F" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691554304/hF0B6BFBB" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691555072/hC4747253" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691554560/h9979EF2C" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691555328/h6B1F507D" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691554816/h15CCD3B0" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691555584/hF67FB34D" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691556096/hE0FB90E1" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691555840/hB33C4A18" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">The Funniest CanePun Pickup Lines This Recently Disabled Young Woman Keeps Getting and Using on Dating Apps</a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691569920/hF07FE143/the-line" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691570176/hDF4877F5/the-line" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691570432/h7FED70EC/the-line" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691570688/hE4C88B4F/the-line" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691570944/h658D791B/the-line" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691571200/h2DF186DD/the-line" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691571456/h4C49E5D8/the-line" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691583488/hE81B9E90/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691583744/h6DB645C2/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691584000/h065BF5ED/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691584256/h38906DE1/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691584512/h28CD48C6/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9691584768/h1D102FFD/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9691585024/hB2FB38D4/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9691585280/hA1E12F34/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9691585536/hF125AA1D/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9691585792/h0D03D90A/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9691586048/h93FCE0A1/her-response" style="width:100%"><br>
-
-<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9691586304/h3652A136/her-response" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky13" id="linky12">Women Disclose What They Wish They Could Really Tell Their Spouse</a><br>
+## <a href="#linky15" id="linky14">Women Disclose What They Wish They Could Really Tell Their Spouse</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691068928/hD2CC3A2A/1d-barcode-do-want-tell-spouse-but-would-ruin-everything" style="width:100%"><br>
 
@@ -446,62 +518,6 @@ Last updated: 08/02/2022-10:47:17
 <span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691071488/hEC8A285C/ran-up-my-credit-cards-paid-off-again-he-would-be-mad-about-day-then-hed-tell-figure-out-but-yeah" style="width:100%"><br>
 
 <span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691071744/h70562FEA/sketchylobster-18-days-ago-ex-spouse-believe-now-years-later-never-loved-him-never-tell-him-though" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">Woman Refuses To Host Her Stepdaughters Engagement Party Because She Cant Stand The Grooms Insufferable Mother </a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691812608/h427E8B54/example-4418-8-hours-ago-aita-preventing-my-husband-throwing-his-daughter-an-engagement-party" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691813376/h87861D22/him-wasnt-even-around-she-having-these-lackluster-parties-so-dont-know-is-my-fault-but-somehow-is" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691813120/hA95366C0/he-wasnt-ok-with-is-her-choice-but-personally-dont-think-is-healthy-let-child-run-life-extent" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691812864/hB9AD2391/anti-breast-feeding-and-made-joke-about-clara-will-never-want-bring-her-future-children-our-house" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691812352/hB29995BC/should-have-thicker-skin-and-not-care-this-woman-says-and-cited-her-fiance-offered-pay-our-couch" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691812096/h1E4B654A/with-being-disrespected-or-having-someone-say-my-daughter-should-not-exist-right-front-my-daughter" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691811840/hD9A08837/going-be-many-life-events-after-they-are-married-if-chase-his-daughter-away-he-may-go-too-suck-up" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691810560/h28C4AA7E/sneaky_heffa-8-hr-ago-nta-have-stand-up-yourself-dont-think-s-unfair" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691811328/h6BFC9642/grit-teeth-and-do-have-because-husband-wants-and-because-husband-be-sounds-like-decent-guy" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691811072/h3FC62DC6/because-cant-stand-one-guests-even-though-got-plenty-very-good-reason-hate-guest-isnt-right-way-do" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691811584/h15DC8A3C/celebrating-clara-and-are-fine-just-cancel-her-party-entirely-s-just-so-cold-and-selfish" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691810816/h636A53E7/2-yta-s-singular-night-and-s-big-moment-his-daughter-s-not-like-she-is-visiting-every-week" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">This Weeks Batch Of Wild Tinder Conversations  </a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9692062464/h507FED08/like-them-at-all-accent-maybe-used-see-taxi-driver-wouldnt-imagine-there-is-someone-handsome-can-be" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9692062720/h48B54720/jump-cause-its-normal-want-be-wanted-like-no-ah-plus-guy-wants-see-hes-getting-himself-into-before" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9692062976/hCFF6A95A/but-are-gonna-lose-soon-today-1057-am-sorry-didnt-reply-just-spent-few-days-rehab-my-coke-addiction" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9692063488/h21EBD05A/hair-is-course-natural-color-monday-726-pm-think-something-better-than-stupid-today-822-am-jeez" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9692064256/h7A744A4A/package-sorry-gonna-have-sign-up-informed-delivery-if-want-information-blew-bro-hell-yeah-did-lol" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9692063232/h0D677581/minded-shit-myself-every-time-eat-lactose-s-just-lactose-trying-open-mind-more-like-open-my-ass" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9692064000/h79893942/between-bee-and-wasp-today-1259-wanna-fuck-cant-eat-wasps-this-has-taken-an-unexpected-turn" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9692063744/hC94D8FA1/and-date-tonight-paris-u-down-today-1314-date-my-apartment-today-1331-only-if-not-serial-killer" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9692064768/h410424FD/extensively-used-german-tanks-ww2-because-hot-lmao-never-heard-cold-war-pickup-line-before-sent" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9692065024/h0C6E9E1C/grab-some-tacos-margaritas-and-get-laid-make-breakfast-fyi-today-931-pm-about-saturday-night-sent" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9692064512/hFF64ECFA/s-best-gatorade-flavor-today-120-pm-whatever-flavor-choose-spit-my-mouth-darling-sent" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9692065280/h6E9EFFBD/cross-on-mountain-and-left-right-is-selfie-hiking-mountain-whatever-photo-u-holding-something-s-dog" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -549,61 +565,119 @@ Last updated: 08/02/2022-10:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky17" id="linky16">Women Reveal The Most Embarrassing Things Their Exes Would Do</a><br>
+## <a href="#linky17" id="linky16">This Weeks Batch Of Wild Tinder Conversations  </a><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690896896/hDD4175B7/raskwomen-posted-by-uveryverygeneric-4-days-ago-behavior-partner-made-them-embarrassed-n" style="width:100%"><br>
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9692062464/h507FED08/like-them-at-all-accent-maybe-used-see-taxi-driver-wouldnt-imagine-there-is-someone-handsome-can-be" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690897920/hD705977D/her-diaper-basically-being-her-mom-were-together-way-longer-than-shouldve-been-14k-reply-share" style="width:100%"><br>
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9692062720/h48B54720/jump-cause-its-normal-want-be-wanted-like-no-ah-plus-guy-wants-see-hes-getting-himself-into-before" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690897408/hAFF50077/his-hand-and-restaurant-guess-he-afraid-hed-be-carried-off-by-gays-or-something-11k-reply-share" style="width:100%"><br>
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9692062976/hCFF6A95A/but-are-gonna-lose-soon-today-1057-am-sorry-didnt-reply-just-spent-few-days-rehab-my-coke-addiction" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690898176/h176A5D9F/home-went-door-get-my-mom-come-outside-told-her-had-been-drinking-and-then-asked-if-could-all" style="width:100%"><br>
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9692063488/h21EBD05A/hair-is-course-natural-color-monday-726-pm-think-something-better-than-stupid-today-822-am-jeez" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690897664/h8382656C/not-stopping-they-look-uncomfortable-heart-right-place-but-lacking-tact-bless-him-666-reply-share" style="width:100%"><br>
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9692064256/h7A744A4A/package-sorry-gonna-have-sign-up-informed-delivery-if-want-information-blew-bro-hell-yeah-did-lol" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690897152/hFAF2C242/senior-south2432-4-days-ago-drinking-too-much-484-reply-share" style="width:100%"><br>
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9692063232/h0D677581/minded-shit-myself-every-time-eat-lactose-s-just-lactose-trying-open-mind-more-like-open-my-ass" style="width:100%"><br>
 
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690898432/h910FBA3C/and-asked-they-were-said-he-liked-drinking-apple-juice-dont-think-she-believed-lol-433-reply-share" style="width:100%"><br>
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9692064000/h79893942/between-bee-and-wasp-today-1259-wanna-fuck-cant-eat-wasps-this-has-taken-an-unexpected-turn" style="width:100%"><br>
 
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690898944/h3F1DFD84/and-let-him-sing-because-he-better-front-my-family-and-friends-he-started-sing-completely-off" style="width:100%"><br>
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9692063744/hC94D8FA1/and-date-tonight-paris-u-down-today-1314-date-my-apartment-today-1331-only-if-not-serial-killer" style="width:100%"><br>
 
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690898688/h04F5A5EA/then-blamed-not-motivating-him-another-one-acting-like-weakling-at-sight-mayonnaise-376-reply-share" style="width:100%"><br>
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9692064768/h410424FD/extensively-used-german-tanks-ww2-because-hot-lmao-never-heard-cold-war-pickup-line-before-sent" style="width:100%"><br>
 
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690899456/h401CF1CB/time-walked-through-den-after-his-3rd-time-doing-this-my-friend-finally-confronted-him-my-frien" style="width:100%"><br>
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9692065024/h0C6E9E1C/grab-some-tacos-margaritas-and-get-laid-make-breakfast-fyi-today-931-pm-about-saturday-night-sent" style="width:100%"><br>
 
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690899200/h63F1E79C/bad-being-so-ashamed-public-but-really-couldnt-help-after-awhile-and-tried-convince-him-go-therapy" style="width:100%"><br>
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9692064512/hFF64ECFA/s-best-gatorade-flavor-today-120-pm-whatever-flavor-choose-spit-my-mouth-darling-sent" style="width:100%"><br>
 
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690899712/h7B71C644/would-take-something-unattended-off-street-shocker-turns-out-he-wasnt-even-nordic-and-actually-whi" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690900736/h30F2F0B8/just-sit-or-stand-and-not-say-thing-making-them-feel-unwelcome-reply-share-report-save-follow-245" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9690902784/h8CDFC301/friends-cheated-on-him-didnt-and-refused-correct-record-just-embarrassing-behaviour-an-adult-by-a" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9690900224/h62CA2309/basically-same-thing-front-my-friends-too-much-and-basically-broke-up-soon-after-worst-about-is-h" style="width:100%"><br>
-
-<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9690899968/hC6C8B37D/despite-being-embarrassed-other-people-felt-sorry-being-with-him-reply-share-report-save-follow-135" style="width:100%"><br>
-
-<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9690900480/hFC273573/he-only-drunk-one-out-5-us-and-everyone-staring-our-friends-left-enjoy-festival-but-obviously-ba" style="width:100%"><br>
-
-<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9690901760/hC1340192/so-one-those-loud-phlegmy-ccooouuurrrgghh-ppuhh-kind-spits-reply-share-report-save-follow-116" style="width:100%"><br>
-
-<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9690900992/h93BF2B73/women-amongst-lot-other-things-but-rlly-just-made-feel-ashamed-reply-share-report-save-follow-114" style="width:100%"><br>
-
-<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9690901504/hFB39339A/with-myself-just-standing-there-while-he-doing-left-him-next-day-53-reply-share-report-save-follow" style="width:100%"><br>
-
-<span style="font-size:4em">21</span><br><img src="https://i.chzbgr.com/full/9690901248/hA577A4C3/looking-round-at-other-people-see-if-they-were-listening-57-reply-share-report-save-follow" style="width:100%"><br>
-
-<span style="font-size:4em">22</span><br><img src="https://i.chzbgr.com/full/9690903040/h688A2EBA/loved-egg-mcmuffins-though-and-would-eat-three-or-more-at-time-445-reply-share-report-save-follow" style="width:100%"><br>
-
-<span style="font-size:4em">23</span><br><img src="https://i.chzbgr.com/full/9690902016/hA94F0783/him-embarrassed-myself-putting-up-with-kind-bs-almost-decade-21-reply-share-report-save-follow" style="width:100%"><br>
-
-<span style="font-size:4em">24</span><br><img src="https://i.chzbgr.com/full/9690902272/hCE23AA11/with-very-worried-look-on-her-face-never-cringed-so-hard-my-life-26-reply-share-report-save-follow" style="width:100%"><br>
-
-<span style="font-size:4em">25</span><br><img src="https://i.chzbgr.com/full/9690902528/h0F94635C/approximately_me-4-days-ago-my-ex-would-drink-beer-with-straw-17-reply-share-report-save-follow" style="width:100%"><br>
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9692065280/h6E9EFFBD/cross-on-mountain-and-left-right-is-selfie-hiking-mountain-whatever-photo-u-holding-something-s-dog" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky18" id="linky17">25 Dating Profile Cliches Women Need to Ditch Immediately</a><br>
+## <a href="#linky18" id="linky17">Funniest Memes About Dating App Fails We Saw This Week </a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691897088/h368D409C/lol-gif-enable-push-notifications-4-type-message-sorry-but-just-so-weird-ima-have-pass-x-sent-send" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691896320/h7D9BC5E3/wide-cause-know-just-say-and-know-just-do-and-want-tell-so-much-vo-17-lte-ks-o-gif-hellooo-10-o" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691896832/h2F3C90B5/only-got-one-chance-left-type-message-going-bin-where-going-anna-x-where-going-bitch-sent-send" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691896576/h0644AAF6/on-tinder-saw-profile-and-noticed-like-cheese-if-s-case-seems-like-would-be-very-grate-friends" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691897344/h014939CD/h-hinge-hinge-just-because-both-dont-think-friends-is-funny-doesnt-mean-soulmates-but-s-good-start" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691897856/hAB5D0CEA/leave-party-at-exact-same-time-do-jake-hinge-wanna-sneak-out-and-get-food-ummm-yes-read-531-pm" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691900416/h01593ED0/ball-faked-every-orgasm-o-saw-every-meme-sent-at-least-month-before-showed-aa" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691899136/h49F36640/shower-thought-recently-had-really-should-have-doctor-look-at-this" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691900928/hCED991EC/more-until-matched-with-s-funny-because-my-whole-life-never-wished-so-badly-attracted-women-sent" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691900160/h686C7094/my-ideal-date-home-my-mom-can-pick-us-up-if-mom-can-drop-us-off" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691897600/h49EE9333/mine-is-am-married-yes-married-but-then-there-are-married-women-here-too-so-please-dont-judge" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691901440/hEBFA4420/things-will-never-change-d-daniel-hinge-stop-sliding-my-dms-live-together-being-nostalgic-delivered" style="width:100%"><br>
+
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9691898368/h8737D512/em-emilypearc-hes-so-extra-w-ride-at-dawn-william-hinge-time-is-our-uber-tomorrow-ok-read-605-pm" style="width:100%"><br>
+
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9691898624/h9A03CC5A/j-jess-hinge-s-beautiful-out-should-go-hiking-just-took-walk-around-block-baby-steps-delivered" style="width:100%"><br>
+
+<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9691898880/h0A6591D9/are-about-compromise-l-shake-on-lia-hinge-picking-show-tonight-0-ok-but-pick-carry-out-read-535-pm" style="width:100%"><br>
+
+<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9691899392/hC6ABFA36/cory-hinge-lets-get-food-and-cuddle-messages-dont-answer-lets-get-drinks-and-see-happens-now-1m-ago" style="width:100%"><br>
+
+<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9691899648/hBABEA397/at-least-hes-trying-v-victor-hinge-hey-at-grocery-store-kind-food-do-plants-eat-water-read-546-p" style="width:100%"><br>
+
+<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9691899904/h322E34C2/park-soon-feel-like-havent-been-getting-enough-sunlight-am-dating-houseplant-or-water-read-1225-am" style="width:100%"><br>
+
+<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9691901184/h418B7E2C/d-david-hinge-just-spoke-saturn-he-said-should-get-dinner-tomorrow-night-did-he-nowe-read-345-pm" style="width:100%"><br>
+
+<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9691900672/h173D84E4/on-tinder-but-size-bra-do-wear-friday-116-pm-are-more-clever-questions-have-asked-on-tinder-sent" style="width:100%"><br>
+
+<span style="font-size:4em">21</span><br><img src="https://i.chzbgr.com/full/9691901696/hD62E06DC/thanksgiving-n-all-jazz-silly-but-enjoyable-podcasts-aside-are-plans-graduate-like-maturity-lady" style="width:100%"><br>
+
+<span style="font-size:4em">22</span><br><img src="https://i.chzbgr.com/full/9691902720/h0D151D82/000-000-0000-999-999-9999-today-1003-am-definitely-1010-not-as-cute-as-type-message-sent-send" style="width:100%"><br>
+
+<span style="font-size:4em">23</span><br><img src="https://i.chzbgr.com/full/9691903488/h31B54D12/person-hii-mommy-sorry-mommy-sorry-mommy-sorry-today-647-pm-sent" style="width:100%"><br>
+
+<span style="font-size:4em">24</span><br><img src="https://i.chzbgr.com/full/9691901952/h1281F787/replace-my-x-without-asking-y-today-2236-huh-isnt-geology-rocks-n-shit-graphite-did-mean-geometry" style="width:100%"><br>
+
+<span style="font-size:4em">25</span><br><img src="https://i.chzbgr.com/full/9691902208/hC2186AFB/hurt-and-blame-reason-why-she-did-are-any-bitches-out-there-decent-human-beings-share-alexs-profile" style="width:100%"><br>
+
+<span style="font-size:4em">26</span><br><img src="https://i.chzbgr.com/full/9691903232/h90C2DDC2/minneapolis-7-miles-away-about-87-and-under-swipe-left-100-ono-share-helenas-profile-hat-end-t-o-84" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky19" id="linky18">Woman Recalls How A Man Bought Her A Drink At A Bar In The Most British Way Possible </a><br>
+
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691986688/hEF31C44E/nodded-at-telly-and-went-womens-euros-innit-high-point-feminism-927-pm-jul-31-2022-twitter-android" style="width:100%"><br>
+
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691984384/hA0E414F3/managed-use-every-single-british-word-existence-one-tweet-100-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691986176/h169207A4/can-somebody-put-this-into-american-terms-please-tysm-advance-136-am-aug-1-2022-twitter-android" style="width:100%"><br>
+
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691986432/h8ADAFD50/and-then-he-tipped-his-stetson-at-her-and-rode-off-into-sunset-348-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691983872/hA88A4FFB/something-about-bar-men-these-days-want-hug-this-guy-1146-pm-jul-31-2022-seattle-wa-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691984128/hE950B967/social-will-give-impression-good-values-died-long-time-ago-didnt-945-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691985408/h0CE44749/have-some-hot-cocoa-he-bought-some-wished-well-went-back-painting-806-am-aug-1-2022-twitter-android" style="width:100%"><br>
+
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691984640/h592829DF/if-s-considered-high-point-feminism-then-have-really-long-way-go-323-am-aug-1-2022-twitter-web-app" style="width:100%"><br>
+
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691985664/h3E85A49D/said-congrats-s-like-are-finally-being-recognised-our-achievements-141-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691984896/hCF80A619/woman-feminist-man-offers-drink-buy-him-one-instead-and-walk-away-145-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691985152/hC20AAF10/like-dont-even-question-anymore-s-fairly-common-live-texas-btw-425-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691985920/h5B6841D0/just-because-real-victory-feminism-but-real-blow-her-wallet-1215-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky20" id="linky19">25 Dating Profile Cliches Women Need to Ditch Immediately</a><br>
 
 <span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690190080/h9D7BBAF3" style="width:100%"><br>
 
@@ -657,131 +731,57 @@ Last updated: 08/02/2022-10:47:17
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky19" id="linky18">Woman Recalls How A Man Bought Her A Drink At A Bar In The Most British Way Possible </a><br>
+## <a href="#linky21" id="linky20">Women Reveal The Most Embarrassing Things Their Exes Would Do</a><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691986688/hEF31C44E/nodded-at-telly-and-went-womens-euros-innit-high-point-feminism-927-pm-jul-31-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9690896896/hDD4175B7/raskwomen-posted-by-uveryverygeneric-4-days-ago-behavior-partner-made-them-embarrassed-n" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691984384/hA0E414F3/managed-use-every-single-british-word-existence-one-tweet-100-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9690897920/hD705977D/her-diaper-basically-being-her-mom-were-together-way-longer-than-shouldve-been-14k-reply-share" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691986176/h169207A4/can-somebody-put-this-into-american-terms-please-tysm-advance-136-am-aug-1-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9690897408/hAFF50077/his-hand-and-restaurant-guess-he-afraid-hed-be-carried-off-by-gays-or-something-11k-reply-share" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691986432/h8ADAFD50/and-then-he-tipped-his-stetson-at-her-and-rode-off-into-sunset-348-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9690898176/h176A5D9F/home-went-door-get-my-mom-come-outside-told-her-had-been-drinking-and-then-asked-if-could-all" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691983872/hA88A4FFB/something-about-bar-men-these-days-want-hug-this-guy-1146-pm-jul-31-2022-seattle-wa-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9690897664/h8382656C/not-stopping-they-look-uncomfortable-heart-right-place-but-lacking-tact-bless-him-666-reply-share" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691984128/hE950B967/social-will-give-impression-good-values-died-long-time-ago-didnt-945-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9690897152/hFAF2C242/senior-south2432-4-days-ago-drinking-too-much-484-reply-share" style="width:100%"><br>
 
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691985408/h0CE44749/have-some-hot-cocoa-he-bought-some-wished-well-went-back-painting-806-am-aug-1-2022-twitter-android" style="width:100%"><br>
+<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9690898432/h910FBA3C/and-asked-they-were-said-he-liked-drinking-apple-juice-dont-think-she-believed-lol-433-reply-share" style="width:100%"><br>
 
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691984640/h592829DF/if-s-considered-high-point-feminism-then-have-really-long-way-go-323-am-aug-1-2022-twitter-web-app" style="width:100%"><br>
+<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9690898944/h3F1DFD84/and-let-him-sing-because-he-better-front-my-family-and-friends-he-started-sing-completely-off" style="width:100%"><br>
 
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691985664/h3E85A49D/said-congrats-s-like-are-finally-being-recognised-our-achievements-141-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9690898688/h04F5A5EA/then-blamed-not-motivating-him-another-one-acting-like-weakling-at-sight-mayonnaise-376-reply-share" style="width:100%"><br>
 
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691984896/hCF80A619/woman-feminist-man-offers-drink-buy-him-one-instead-and-walk-away-145-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9690899456/h401CF1CB/time-walked-through-den-after-his-3rd-time-doing-this-my-friend-finally-confronted-him-my-frien" style="width:100%"><br>
 
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691985152/hC20AAF10/like-dont-even-question-anymore-s-fairly-common-live-texas-btw-425-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9690899200/h63F1E79C/bad-being-so-ashamed-public-but-really-couldnt-help-after-awhile-and-tried-convince-him-go-therapy" style="width:100%"><br>
 
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691985920/h5B6841D0/just-because-real-victory-feminism-but-real-blow-her-wallet-1215-am-aug-1-2022-twitter-iphone" style="width:100%"><br>
+<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9690899712/h7B71C644/would-take-something-unattended-off-street-shocker-turns-out-he-wasnt-even-nordic-and-actually-whi" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9690900736/h30F2F0B8/just-sit-or-stand-and-not-say-thing-making-them-feel-unwelcome-reply-share-report-save-follow-245" style="width:100%"><br>
 
-## <a href="#linky20" id="linky19">Wife Switches Hotel From Husband On Vacation After He Yelled At Their Daughter</a><br>
+<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9690902784/h8CDFC301/friends-cheated-on-him-didnt-and-refused-correct-record-just-embarrassing-behaviour-an-adult-by-a" style="width:100%"><br>
 
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691072256/h235A08C8/job-and-makes-good-grades-shes-fact-kinda-hermit-her-age-unknown-my-husband-set-hot-water-heater-re" style="width:100%"><br>
+<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9690900224/h62CA2309/basically-same-thing-front-my-friends-too-much-and-basically-broke-up-soon-after-worst-about-is-h" style="width:100%"><br>
 
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691072000/h6AC74FD0/vacation-but-cant-stand-even-look-at-him-over-an-argument-over-something-so-stupid-and-preventable" style="width:100%"><br>
+<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9690899968/hC6C8B37D/despite-being-embarrassed-other-people-felt-sorry-being-with-him-reply-share-report-save-follow-135" style="width:100%"><br>
 
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691072512/h118753D7/child-nta-behavior-here-thanks-sticking-up-an-innocent-kid-348k-reply-share-report-save-follow" style="width:100%"><br>
+<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9690900480/hFC273573/he-only-drunk-one-out-5-us-and-everyone-staring-our-friends-left-enjoy-festival-but-obviously-ba" style="width:100%"><br>
 
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691074048/h63DA0C1E/needs-help-or-something-are-awesome-standing-up-daughter-like-reply-share-report-save-follow-106k" style="width:100%"><br>
+<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9690901760/hC1340192/so-one-those-loud-phlegmy-ccooouuurrrgghh-ppuhh-kind-spits-reply-share-report-save-follow-116" style="width:100%"><br>
 
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691073536/hC1B4448E/he-needs-therapy-or-need-do-more-than-leave-him-just-vacation-58k-reply-share-report-save-follow" style="width:100%"><br>
+<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9690900992/h93BF2B73/women-amongst-lot-other-things-but-rlly-just-made-feel-ashamed-reply-share-report-save-follow-114" style="width:100%"><br>
 
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691073024/h6471E459/is-recent-development-but-this-should-have-been-dealt-with-asap-427k-reply-share-report-save-follow" style="width:100%"><br>
+<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9690901504/hFB39339A/with-myself-just-standing-there-while-he-doing-left-him-next-day-53-reply-share-report-save-follow" style="width:100%"><br>
 
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691072768/hB11C3CE9/weird-hot-water-thing-is-just-spiteful-family-therapy-at-least-19k-reply-share-report-save-follow" style="width:100%"><br>
+<span style="font-size:4em">21</span><br><img src="https://i.chzbgr.com/full/9690901248/hA577A4C3/looking-round-at-other-people-see-if-they-were-listening-57-reply-share-report-save-follow" style="width:100%"><br>
 
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691073280/hF4C95A9C/going-nc-with-him-and-potentially-with-too-by-association-jerk-459-reply-share-report-save-follow" style="width:100%"><br>
+<span style="font-size:4em">22</span><br><img src="https://i.chzbgr.com/full/9690903040/h688A2EBA/loved-egg-mcmuffins-though-and-would-eat-three-or-more-at-time-445-reply-share-report-save-follow" style="width:100%"><br>
 
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691073792/h4B2A7E97/help-or-else-hes-not-going-have-good-relationship-with-her-316-reply-share-report-save-follow" style="width:100%"><br>
+<span style="font-size:4em">23</span><br><img src="https://i.chzbgr.com/full/9690902016/hA94F0783/him-embarrassed-myself-putting-up-with-kind-bs-almost-decade-21-reply-share-report-save-follow" style="width:100%"><br>
 
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691074304/h770107D5/dishes-and-laundry-no-wonder-dont-want-be-with-him-who-can-blame-reply-share-report-save-follow-180" style="width:100%"><br>
+<span style="font-size:4em">24</span><br><img src="https://i.chzbgr.com/full/9690902272/hCE23AA11/with-very-worried-look-on-her-face-never-cringed-so-hard-my-life-26-reply-share-report-save-follow" style="width:100%"><br>
 
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691075840/h91097816/grow-up-thinking-this-is-she-is-supposed-be-treated-by-men-reply-share-report-save-follow-173" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691074560/h9874CF58/college-be-mom-and-stand-up-daughter-she-sounds-like-good-kid-112-reply-share-report-save-follow" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9691075072/h4D6EF05F/and-trying-get-here-out-house-one-other-possibility-is-he-knows-something-dont-and-this-is-u" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9691074816/h4F81DD01/with-his-stinky-attitude-he-needs-get-grip-and-some-guidance-with-professional-reply-share-81" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9691075328/h71DC9BEC/14-hr-ago-asshole-enthusiast-7-nta-and-sounds-like-hubby-could-benefit-some-therapy-reply-share-48" style="width:100%"><br>
-
-<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9691075584/hBF929E4E/problem-while-and-something-should-be-addressing-with-husband-perhaps-thru-therapy-46-reply-share" style="width:100%"><br>
-
-<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9691076096/hBCC0F96F/and-safe-daughter-do-plan-on-supporting-her-leaving-this-environment-she-is-18-40-reply-share" style="width:100%"><br>
-
-<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9691076352/hF28925E3/himself-daughter-gets-choose-if-she-ever-even-wants-see-him-or-speak-with-him-again-reply-share-40" style="width:100%"><br>
-
-<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9691076608/hBE41F69C/book-separate-flight-home-threaten-divorce-maybe-will-shock-his-head-out-his-own-ass-reply-share-33" style="width:100%"><br>
-
-<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9691076864/h54D81684/and-abusive-daughter-and-owe-her-and-yourself-get-both-out-this-situation-30-reply-share" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky21" id="linky20">Funniest Memes About Dating App Fails We Saw This Week </a><br>
-
-<span style="font-size:4em">1</span><br><img src="https://i.chzbgr.com/full/9691897088/h368D409C/lol-gif-enable-push-notifications-4-type-message-sorry-but-just-so-weird-ima-have-pass-x-sent-send" style="width:100%"><br>
-
-<span style="font-size:4em">2</span><br><img src="https://i.chzbgr.com/full/9691896320/h7D9BC5E3/wide-cause-know-just-say-and-know-just-do-and-want-tell-so-much-vo-17-lte-ks-o-gif-hellooo-10-o" style="width:100%"><br>
-
-<span style="font-size:4em">3</span><br><img src="https://i.chzbgr.com/full/9691896832/h2F3C90B5/only-got-one-chance-left-type-message-going-bin-where-going-anna-x-where-going-bitch-sent-send" style="width:100%"><br>
-
-<span style="font-size:4em">4</span><br><img src="https://i.chzbgr.com/full/9691896576/h0644AAF6/on-tinder-saw-profile-and-noticed-like-cheese-if-s-case-seems-like-would-be-very-grate-friends" style="width:100%"><br>
-
-<span style="font-size:4em">5</span><br><img src="https://i.chzbgr.com/full/9691897344/h014939CD/h-hinge-hinge-just-because-both-dont-think-friends-is-funny-doesnt-mean-soulmates-but-s-good-start" style="width:100%"><br>
-
-<span style="font-size:4em">6</span><br><img src="https://i.chzbgr.com/full/9691897856/hAB5D0CEA/leave-party-at-exact-same-time-do-jake-hinge-wanna-sneak-out-and-get-food-ummm-yes-read-531-pm" style="width:100%"><br>
-
-<span style="font-size:4em">7</span><br><img src="https://i.chzbgr.com/full/9691900416/h01593ED0/ball-faked-every-orgasm-o-saw-every-meme-sent-at-least-month-before-showed-aa" style="width:100%"><br>
-
-<span style="font-size:4em">8</span><br><img src="https://i.chzbgr.com/full/9691899136/h49F36640/shower-thought-recently-had-really-should-have-doctor-look-at-this" style="width:100%"><br>
-
-<span style="font-size:4em">9</span><br><img src="https://i.chzbgr.com/full/9691900928/hCED991EC/more-until-matched-with-s-funny-because-my-whole-life-never-wished-so-badly-attracted-women-sent" style="width:100%"><br>
-
-<span style="font-size:4em">10</span><br><img src="https://i.chzbgr.com/full/9691900160/h686C7094/my-ideal-date-home-my-mom-can-pick-us-up-if-mom-can-drop-us-off" style="width:100%"><br>
-
-<span style="font-size:4em">11</span><br><img src="https://i.chzbgr.com/full/9691897600/h49EE9333/mine-is-am-married-yes-married-but-then-there-are-married-women-here-too-so-please-dont-judge" style="width:100%"><br>
-
-<span style="font-size:4em">12</span><br><img src="https://i.chzbgr.com/full/9691901440/hEBFA4420/things-will-never-change-d-daniel-hinge-stop-sliding-my-dms-live-together-being-nostalgic-delivered" style="width:100%"><br>
-
-<span style="font-size:4em">13</span><br><img src="https://i.chzbgr.com/full/9691898368/h8737D512/em-emilypearc-hes-so-extra-w-ride-at-dawn-william-hinge-time-is-our-uber-tomorrow-ok-read-605-pm" style="width:100%"><br>
-
-<span style="font-size:4em">14</span><br><img src="https://i.chzbgr.com/full/9691898624/h9A03CC5A/j-jess-hinge-s-beautiful-out-should-go-hiking-just-took-walk-around-block-baby-steps-delivered" style="width:100%"><br>
-
-<span style="font-size:4em">15</span><br><img src="https://i.chzbgr.com/full/9691898880/h0A6591D9/are-about-compromise-l-shake-on-lia-hinge-picking-show-tonight-0-ok-but-pick-carry-out-read-535-pm" style="width:100%"><br>
-
-<span style="font-size:4em">16</span><br><img src="https://i.chzbgr.com/full/9691899392/hC6ABFA36/cory-hinge-lets-get-food-and-cuddle-messages-dont-answer-lets-get-drinks-and-see-happens-now-1m-ago" style="width:100%"><br>
-
-<span style="font-size:4em">17</span><br><img src="https://i.chzbgr.com/full/9691899648/hBABEA397/at-least-hes-trying-v-victor-hinge-hey-at-grocery-store-kind-food-do-plants-eat-water-read-546-p" style="width:100%"><br>
-
-<span style="font-size:4em">18</span><br><img src="https://i.chzbgr.com/full/9691899904/h322E34C2/park-soon-feel-like-havent-been-getting-enough-sunlight-am-dating-houseplant-or-water-read-1225-am" style="width:100%"><br>
-
-<span style="font-size:4em">19</span><br><img src="https://i.chzbgr.com/full/9691901184/h418B7E2C/d-david-hinge-just-spoke-saturn-he-said-should-get-dinner-tomorrow-night-did-he-nowe-read-345-pm" style="width:100%"><br>
-
-<span style="font-size:4em">20</span><br><img src="https://i.chzbgr.com/full/9691900672/h173D84E4/on-tinder-but-size-bra-do-wear-friday-116-pm-are-more-clever-questions-have-asked-on-tinder-sent" style="width:100%"><br>
-
-<span style="font-size:4em">21</span><br><img src="https://i.chzbgr.com/full/9691901696/hD62E06DC/thanksgiving-n-all-jazz-silly-but-enjoyable-podcasts-aside-are-plans-graduate-like-maturity-lady" style="width:100%"><br>
-
-<span style="font-size:4em">22</span><br><img src="https://i.chzbgr.com/full/9691902720/h0D151D82/000-000-0000-999-999-9999-today-1003-am-definitely-1010-not-as-cute-as-type-message-sent-send" style="width:100%"><br>
-
-<span style="font-size:4em">23</span><br><img src="https://i.chzbgr.com/full/9691903488/h31B54D12/person-hii-mommy-sorry-mommy-sorry-mommy-sorry-today-647-pm-sent" style="width:100%"><br>
-
-<span style="font-size:4em">24</span><br><img src="https://i.chzbgr.com/full/9691901952/h1281F787/replace-my-x-without-asking-y-today-2236-huh-isnt-geology-rocks-n-shit-graphite-did-mean-geometry" style="width:100%"><br>
-
-<span style="font-size:4em">25</span><br><img src="https://i.chzbgr.com/full/9691902208/hC2186AFB/hurt-and-blame-reason-why-she-did-are-any-bitches-out-there-decent-human-beings-share-alexs-profile" style="width:100%"><br>
-
-<span style="font-size:4em">26</span><br><img src="https://i.chzbgr.com/full/9691903232/h90C2DDC2/minneapolis-7-miles-away-about-87-and-under-swipe-left-100-ono-share-helenas-profile-hat-end-t-o-84" style="width:100%"><br>
+<span style="font-size:4em">25</span><br><img src="https://i.chzbgr.com/full/9690902528/h0F94635C/approximately_me-4-days-ago-my-ex-would-drink-beer-with-straw-17-reply-share-report-save-follow" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
