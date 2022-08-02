@@ -1,121 +1,51 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/02/2022-04:47:22
+Last updated: 08/02/2022-05:47:23
 <br>
-## <a href="#linky2" id="linky1">25 Actors So Good Their Roles Can Never Be Recast</a><br>
+## <a href="#linky2" id="linky1">20 Maps That Are Terrible but Not Wrong</a><br>
 
-<span style="font-size:4em">1. James Gandolfini as Tony Soprano. -u/MyBestDisguise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226878.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123910/87226608/americas.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Sigourney Weaver as Ripley in the Alien franchise. -u/insert_name_here925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226872.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123924/87226610/bear.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Jeff Bridges IS the Dude. -u/hlerdnerp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226887.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Eastern most point of Brazil is closer to Africa than the Western most point.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123936/87226611/closer.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cary Elwes as Westley/Dread Pirate Roberts. -u/Shadowfaxx71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226870.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226613/color.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Jack Gleeson as Joffrey Baratheon. -u/Fuck-Reddit-Mods69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226876.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226614/date.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Bruce Campbell in Army Of Darkness. -u/ctennessen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226871.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Map of Europe drawn from memory...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124025/87226617/memory.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Javier Bardem in No Country for Old Men. -u/blurplethenurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226873.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Great Lakes cheat sheet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124014/87226616/lakes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Christoph Waltz as Hans Landa in Inglorius Basterds. -u/SpectreOperator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226874.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124036/87226618/moms.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. J.K. Simmons as Jonah Jameson. So good that he played the same character across multiple spider-verses. -u/The_Mouse_That_Jumps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226880.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Map of Africa made of orange peels.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124055/87226619/orange.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Say what you want about the character. Imelda Staunton, who plays that massive c*nt Delores Umbridge, did a fantastic job at making me hate her. -u/MenstruatingMuffin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226892.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Map of America if we were an Oregon Donor.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124106/87226620/oregon.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Danny DeVito as Frank Reynolds. Id seen him in a bunch of stuff before, but Frank is the perfect role for him. -u/JayGold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226875.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124117/87226621/round.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Arnold Schwarzenegger as the Terminator. -u/00-H</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226877.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124128/87226622/steak.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Nick Offerman as Ron Swanson. -u/izatrap2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226879.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124139/87226623/tan.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Michael J Fox as Marty McFly. -u/trauerspieI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226881.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The most popular word in each American state.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124152/87226624/the.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Rowan Atkinson as Mr. Bean. -u/GullibleAbalone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226882.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125352/87226636/touch.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Christian Bale as Patrick Bateman. In an alternate universe, its Leonardo De Caprio. I cannot imagine that. -u/E_-_R_-_I_-_C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226883.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Meat map of France.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124543/87226627/france.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Maggie Smith as Professor McGonagall. -u/highlandcow75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226884.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124554/87226628/toes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Antony Starr as Homelander. -Heavy_Chains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226885.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124605/87226629/ak.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Val Kilmer as Doc Holliday. -u/MickSturbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226886.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125220/87226633/visitor.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Patrick Stewart as Jean-Luc Picard. -u/ericallenjett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Sir Ian McKellen as Gandalf. -u/SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Bryan Cranston as Walter White. -u/GR3TSCH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Alan Rickman as Severus Snape. Killed it from the very start. -u/gswkillinit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Rainn Wilson as Dwight Schrute. -u/RealQuickNope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Harrison Ford as Indiana Jones. -u/Jedibri81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226894.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125232/87226634/america.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">28 Times Expectations Were Destroyed By Reality</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225985.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">24 Funny Memes With Subtle Undertones of Dank</a><br>
+## <a href="#linky3" id="linky2">24 Funny Memes With Subtle Undertones of Dank</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227049.jpg" style="width:100%"><br>
 
@@ -162,6 +92,50 @@ Last updated: 08/02/2022-04:47:22
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227063.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227064.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">20 Wild Facts About Elvis Presley</a><br>
+
+<span style="font-size:4em">1. Elvis Presley was a natural blonde who used to dye his hair black. - u/Status-Victory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. In the last four years of Elvis Presley’s life, he had been prescribed 19,000 doses of drugs. In 1977 alone[the year of his death], Dr. Nicholpoulous had written 199 prescriptions totaling more than 10,000 doses of sedatives, amphetamines, and narcotics to Elvis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. in 2012 a librarian at a high school in Tupelo Mississippi discovered a library card in the back of an old book signed in 1948 by a then 13 year old Elvis Presley. It is the oldest known autograph by Elvis. - u/big_macaroons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Elvis Presley Never Wrote Any of His Own Songs despite being one of the most recognizable musicians of all time. - u/dd28064212</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. TIL that Elvis Presley’s breakout hit Heartbreak Hotel was inspired by Alvin Krolik, a depressed divorcée who was killed while robbing an El Paso liquor store. Krolik had claimed he walked a “lonely street.” It became the Heartbreak Hotel’s gloomy address and one of the song’s most memorable lines. - u/MostlySoFlo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Brenda Lee (best known for her hit Rockin Around the Christmas Tree) had 47 US chart hits during the 1960s, the most by a woman and surpassed only by Elvis Presley, the Beatles and Ray Charles. - u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Elvis Presley, throughout his entire career, performed in only three venues that werent in the United States. The three venues were all in Canada. Presley performed in them during brief tours in Canada in 1957. - u/GregJamesDahlen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. in 1993, the US postal service issued a commemorative postage stamp honoring Elvis Presleys 58th birthday, fans mailed envelopes with first-day issues of the stamp to fictitious addresses so that they would receive their letters back, marked with the words return to sender. - u/Doll_Tow_Jet-ski</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. There are 11 musicians who have been inducted into both the Rock and Roll Hall of Fame and the Country Music Hall of Fame. They are Jimmie Rodgers, Hank Williams, Chet Atkins, Johnny Cash, Elvis Presley, The Everly Brothers, Bill Monroe, Bob Wills, Brenda Lee, Floyd Cramer, and Sam Phillips. - u/SculpinIPAlcoholic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Elvis Presley was Elton Johns wakeup call. In 1976 Elton met Elvis backstage in June 1976 “It was sad,” , recalling Presley’s drugged state. John and his mom were escorted to their seats and they watched with equal parts horror and admiration.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Elvis Presley Based His Look On a DC Comics Superhero. - u/PlasticReviews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Barry White spent 4 months in jail for stealing $30,000 worth of Cadillac tires when he was 16. While behind bars, he heard Elvis Presleys Its Now or Never which he stated inspired him to become a singer. - u/trifletruffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Elvis Presleys first major record deal came in 1955 when several labels began to show interest in him. Three record labels made offers of $25,000 but Elvis ended up signing with RCA Records who offered $40,000. - u/MarineKingPrime_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The artists with the most #1 singles in history are The Beatles (20), Mariah Carey (19), Elvis Presley (17), Rihanna (14), and Michael Jackson (13). - u/arashtp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Elvis Presley was drafted into the U.S. Army. At the peak of his career, he received his draft notice for a two-year stint in the army. Fans sent tens of thousands of letters to the army asking for him to be spared, but Elvis refused to decline. He was sworn as an army private on March 24, 1958. - u/iamabn5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Elvis Presleys manager, Colonel Tom Parker prevented Elvis from touring outside of the US (except for 3 shows in Canada in 1957) because Parker was, among other things, an illegal alien from the Netherlands that was suspected of murder. - u/deadtedw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. the peak of TV attention can be assigned an exact date: Sunday, September 9, 1956, when Elvis Presley made his first appearance on television, on CBS’s Ed Sullivan Show. Its 82.6 percent share of US viewers has never been equaled or bettered. - u/leningrad84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. in 1964, Elvis Presley bought President Franklin D Roosevelts yacht, USS Potomac (AG-25) for $55,000. He later gave it to St Judes Children Hospital for a fundraiser, and that hospital sold it for $65,000. - u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. 60 years ago, the actress Angela Lansbury, who is still living, played Elvis Presley’s mother in “Blue Hawaii.” - u/SubstantialRange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. in 2015 Jack White purchased the 1st ever song recording of Elvis Presley (1953) and worked with music archivist Alan Stoker to digitally transfer it. - u/deadhunt3rr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224716.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -303,47 +277,63 @@ Last updated: 08/02/2022-04:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Maps That Are Terrible but Not Wrong</a><br>
+## <a href="#linky7" id="linky6">28 Times Expectations Were Destroyed By Reality</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123910/87226608/americas.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123924/87226610/bear.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Eastern most point of Brazil is closer to Africa than the Western most point.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123936/87226611/closer.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226613/color.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226614/date.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Map of Europe drawn from memory...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124025/87226617/memory.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Great Lakes cheat sheet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124014/87226616/lakes.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124036/87226618/moms.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Map of Africa made of orange peels.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124055/87226619/orange.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Map of America if we were an Oregon Donor.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124106/87226620/oregon.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124117/87226621/round.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124128/87226622/steak.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124139/87226623/tan.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The most popular word in each American state.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124152/87226624/the.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125352/87226636/touch.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Meat map of France.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124543/87226627/france.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124554/87226628/toes.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124605/87226629/ak.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125220/87226633/visitor.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125232/87226634/america.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225985.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -413,122 +403,91 @@ Last updated: 08/02/2022-04:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">Employee Leaves Work during Busy Rush after Being Denied Overtime Pay</a><br>
+## <a href="#linky9" id="linky8">40 Interesting Pics to Help Pass the Time</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A bee taking a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221840.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “I think my boiled egg has an egg in it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “The plane I’m in is super foggy for some reason.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “I made a candle out of the wax coating from a babybel cheese.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221817.jpg" style="width:100%"><br>
 
-<a href="#linky1">GO TO TOP</a>
+<span style="font-size:4em">5. “Dashuhua, a festival in which molten iron is thrown against a wall to create sparks”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221839.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Joe Rogan Facts That Make Total Sense</a><br>
+<span style="font-size:4em">6. “Here’s my echium Pink Fountain. it’s about 2.5m tall and still growing. “</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. In 2005, Wesley Snipes entered into negotiations to fight Fear Factor host Joe Rogan on Ultimate Fighting Match, but the deal fell through.
-
--u/MR___SLAVE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221373.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The skin this worm shed looks like a dragon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. During the 1990s, Joe Rogan paid $10,000 per month to have a T1 internet connection installed in his house in order to play Quake without dealing with lag.
-
--u/TokingMessiah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221375.png" style="width:100%"><br>
+<span style="font-size:4em">8. “The difference in 2×4 lumber from 1946 and 2022.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Joe Rogan and My Chemical Romances Gerard Way are second cousins.
-
--u/Pearathon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221376.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. “My local pharmacy has this huge container of random pills.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. 19-year-old Joe Rogan won the US Open Taekwondo lightweight championship, and then went on to beat both the US middle and heavyweight champions. 
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221377.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Both of my eyes are split between two colors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Joe Rogan has a personal sensory deprivation tank.
-
--u/cheesylady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221379.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Want some stuff?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. According to Joe Rogan, Fear Factor was canceled in part because the producers went too far when one of the challenges involved drinking Donkey urine and semen.
-
--u/vetruvian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221380.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “My dog looks almost identical to the toy I loved as a baby.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Joe Rogan was high for every episode of Fear Factor seasons 2-6.
-
--u/halcyon44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221378.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Someone left $5000 worth of used steam codes in my bin.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Joe Rogan had 3 hair transplant surgeries.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221381.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “The attention to detail in keeping the pattern in the tile.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Louis CK fired his management agency because they asked another client, Joe Rogan, to apologize to Carlos Mencia for outing him as a joke thief.
-
--u/PostModernPromethius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221382.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Hotel i’m staying at has a lego wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Joe Rogan was in a documentary about DMT (dimethyltryptamine - try saying that 3 times fast), He also talks about DMT on his Podcast saying Its like youre in a universe built on Peace, Love, and Unity.
-
--u/nextinplease</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221383.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “The cream I ordered with my coffee at a Swiss cafe was served inside of a chocolate treat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Matt Damon, Bette Davis, John Krasinski, Matt Leblanc, Amy Poehler, Joe Rogan, Eli Roth and Louis CK are ALL from Newton, MA.
-
--u/choast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221384.png" style="width:100%"><br>
+<span style="font-size:4em">17. “My view from a German house doesn’t look real.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Joe Rogan is a kickboxer, Judoka, and holds a black belt in Brazilian Jiu Jitsu.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221385.png" style="width:100%"><br>
+<span style="font-size:4em">18. “The way you can see the truck through these pipes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The Rock once dumped Joe Rogan for being a racist piece of sh*t.
--u/flappingmeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221386.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Joe Rogan said Canada must dump Justin Trudeau.
-
--u/WuzzWuzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221387.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “I found this painting in a tree last winter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Joe Rogans big break came after Ray Romano was fired by NewsRadios producers.
-
--u/roguetowel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221374.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Snapping turtle taking a breath under our dock.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Crosby, Stills & Nash returned to Spotify after a 5-month boycott from the Joe Rogan-Spotify controversy.
-
--u/YoureASkyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221388.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “Pigeon flew right past my phone while taking a photo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Millionaire celebrity podcaster Joe Rogan backed Florida Republican Governor Ron DeSantis for US president.
-
--u/Motor-Ad-8858</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221389.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. “The floor is so shiny you can see the underside in detail.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Joe Rogan says he’s rejected Trump as a podcast guest multiple times.
-
--u/nimobo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221390.png" style="width:100%"><br>
+<span style="font-size:4em">24. “One of two fly traps I set out Saturday evening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Joe Rogan praised Roman Emperor Marcus Aurelius for his modern writing style and not writing in Shakespearean English.
-
--u/dudlord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221391.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. A tree from the conservatory at The Bellagio in Vegas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221836.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Joe Rogan thinks Joe Schilling is cool for being an a**hole meathead and knocking out non-fighters in bars.
-
--u/Krstoserofil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221392.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. “Wood knots I saw look kinda like a bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Steve Bannon blasted Joe Rogan and his ‘low information’ listeners after he calls Trump a danger to democracy.
-
--u/MajorRichardHead7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221393.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. The smiling mussel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Joe Rogan on Joe Biden: Biden shakes hands with people that arent even there when he gets off stage. I think hes seeing ghosts ... If he was anyone else, if he was a Republican, if that was Donald Trump doing that, every f*cking talk show would be screaming for him to be off the air.
-
--u/frog9913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221394.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. “My grandma had a lot of visitors the other day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Joe Rogan said its okay if people sh*t on him. In fact, he says he would sh*t on himself about steroid use & insecurities of being short.
-
--u/kingpussypumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221395.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. “The breakfast that smiles back”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Joe Rogan called Trump a ‘Man Baby,’ and theorized he was on Adderall during his presidency.
-
--u/GregSmith1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221396.jpeg" style="width:100%"><br>
+<span style="font-size:4em">30. This tree swallowing a bird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Joe Rogan was addicted to the video game Quake; he would play up to 10 hours a day.
-
--u/p_hinman3rd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221397.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. “The moth with spots that look like big eyes”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221844.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. “I quietly followed this deer for 30 minutes at 2 AM for this picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. A perfect moment</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “Eye in my pizza”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. A rainbow cloud</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “The sky this evening”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “My CD spindle’s reflection casts a very detailed eyeball in the morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “A bloom of jellyfish was beached near my home.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. “I smacked myself in the face and it left a print on my glasses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. A potato chicken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221853.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">Monday Morning Randomness User Edition - ULook2</a><br>
+## <a href="#linky10" id="linky9">Monday Morning Randomness User Edition - ULook2</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226898.jpg" style="width:100%"><br>
 
@@ -632,7 +591,122 @@ Last updated: 08/02/2022-04:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
+## <a href="#linky11" id="linky10">Employee Leaves Work during Busy Rush after Being Denied Overtime Pay</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">Joe Rogan Facts That Make Total Sense</a><br>
+
+<span style="font-size:4em">1. In 2005, Wesley Snipes entered into negotiations to fight Fear Factor host Joe Rogan on Ultimate Fighting Match, but the deal fell through.
+
+-u/MR___SLAVE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. During the 1990s, Joe Rogan paid $10,000 per month to have a T1 internet connection installed in his house in order to play Quake without dealing with lag.
+
+-u/TokingMessiah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221375.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Joe Rogan and My Chemical Romances Gerard Way are second cousins.
+
+-u/Pearathon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221376.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. 19-year-old Joe Rogan won the US Open Taekwondo lightweight championship, and then went on to beat both the US middle and heavyweight champions. 
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Joe Rogan has a personal sensory deprivation tank.
+
+-u/cheesylady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. According to Joe Rogan, Fear Factor was canceled in part because the producers went too far when one of the challenges involved drinking Donkey urine and semen.
+
+-u/vetruvian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Joe Rogan was high for every episode of Fear Factor seasons 2-6.
+
+-u/halcyon44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Joe Rogan had 3 hair transplant surgeries.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Louis CK fired his management agency because they asked another client, Joe Rogan, to apologize to Carlos Mencia for outing him as a joke thief.
+
+-u/PostModernPromethius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Joe Rogan was in a documentary about DMT (dimethyltryptamine - try saying that 3 times fast), He also talks about DMT on his Podcast saying Its like youre in a universe built on Peace, Love, and Unity.
+
+-u/nextinplease</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Matt Damon, Bette Davis, John Krasinski, Matt Leblanc, Amy Poehler, Joe Rogan, Eli Roth and Louis CK are ALL from Newton, MA.
+
+-u/choast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221384.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Joe Rogan is a kickboxer, Judoka, and holds a black belt in Brazilian Jiu Jitsu.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221385.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. The Rock once dumped Joe Rogan for being a racist piece of sh*t.
+-u/flappingmeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Joe Rogan said Canada must dump Justin Trudeau.
+
+-u/WuzzWuzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Joe Rogans big break came after Ray Romano was fired by NewsRadios producers.
+
+-u/roguetowel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Crosby, Stills & Nash returned to Spotify after a 5-month boycott from the Joe Rogan-Spotify controversy.
+
+-u/YoureASkyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Millionaire celebrity podcaster Joe Rogan backed Florida Republican Governor Ron DeSantis for US president.
+
+-u/Motor-Ad-8858</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221389.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Joe Rogan says he’s rejected Trump as a podcast guest multiple times.
+
+-u/nimobo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221390.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Joe Rogan praised Roman Emperor Marcus Aurelius for his modern writing style and not writing in Shakespearean English.
+
+-u/dudlord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Joe Rogan thinks Joe Schilling is cool for being an a**hole meathead and knocking out non-fighters in bars.
+
+-u/Krstoserofil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Steve Bannon blasted Joe Rogan and his ‘low information’ listeners after he calls Trump a danger to democracy.
+
+-u/MajorRichardHead7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Joe Rogan on Joe Biden: Biden shakes hands with people that arent even there when he gets off stage. I think hes seeing ghosts ... If he was anyone else, if he was a Republican, if that was Donald Trump doing that, every f*cking talk show would be screaming for him to be off the air.
+
+-u/frog9913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Joe Rogan said its okay if people sh*t on him. In fact, he says he would sh*t on himself about steroid use & insecurities of being short.
+
+-u/kingpussypumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Joe Rogan called Trump a ‘Man Baby,’ and theorized he was on Adderall during his presidency.
+
+-u/GregSmith1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221396.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Joe Rogan was addicted to the video game Quake; he would play up to 10 hours a day.
+
+-u/p_hinman3rd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221397.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
 
 <span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
 
@@ -686,87 +760,57 @@ Last updated: 08/02/2022-04:47:22
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">40 Interesting Pics to Help Pass the Time</a><br>
+## <a href="#linky14" id="linky13">25 Actors So Good Their Roles Can Never Be Recast</a><br>
 
-<span style="font-size:4em">1. A bee taking a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221840.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. James Gandolfini as Tony Soprano. -u/MyBestDisguise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “I think my boiled egg has an egg in it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221815.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Sigourney Weaver as Ripley in the Alien franchise. -u/insert_name_here925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “The plane I’m in is super foggy for some reason.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221816.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Jeff Bridges IS the Dude. -u/hlerdnerp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226887.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I made a candle out of the wax coating from a babybel cheese.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221817.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Cary Elwes as Westley/Dread Pirate Roberts. -u/Shadowfaxx71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Dashuhua, a festival in which molten iron is thrown against a wall to create sparks”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221839.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Jack Gleeson as Joffrey Baratheon. -u/Fuck-Reddit-Mods69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Here’s my echium Pink Fountain. it’s about 2.5m tall and still growing. “</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221818.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Bruce Campbell in Army Of Darkness. -u/ctennessen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The skin this worm shed looks like a dragon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221854.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Javier Bardem in No Country for Old Men. -u/blurplethenurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “The difference in 2×4 lumber from 1946 and 2022.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221819.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Christoph Waltz as Hans Landa in Inglorius Basterds. -u/SpectreOperator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My local pharmacy has this huge container of random pills.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221820.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. J.K. Simmons as Jonah Jameson. So good that he played the same character across multiple spider-verses. -u/The_Mouse_That_Jumps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Both of my eyes are split between two colors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221821.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Say what you want about the character. Imelda Staunton, who plays that massive c*nt Delores Umbridge, did a fantastic job at making me hate her. -u/MenstruatingMuffin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226892.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Want some stuff?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221822.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Danny DeVito as Frank Reynolds. Id seen him in a bunch of stuff before, but Frank is the perfect role for him. -u/JayGold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “My dog looks almost identical to the toy I loved as a baby.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221823.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Arnold Schwarzenegger as the Terminator. -u/00-H</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Someone left $5000 worth of used steam codes in my bin.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221824.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Nick Offerman as Ron Swanson. -u/izatrap2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “The attention to detail in keeping the pattern in the tile.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221825.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Michael J Fox as Marty McFly. -u/trauerspieI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226881.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Hotel i’m staying at has a lego wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221826.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Rowan Atkinson as Mr. Bean. -u/GullibleAbalone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “The cream I ordered with my coffee at a Swiss cafe was served inside of a chocolate treat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221827.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Christian Bale as Patrick Bateman. In an alternate universe, its Leonardo De Caprio. I cannot imagine that. -u/E_-_R_-_I_-_C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226883.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “My view from a German house doesn’t look real.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221828.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Maggie Smith as Professor McGonagall. -u/highlandcow75</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “The way you can see the truck through these pipes.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221829.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Antony Starr as Homelander. -Heavy_Chains</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226885.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221830.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Val Kilmer as Doc Holliday. -u/MickSturbs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226886.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “I found this painting in a tree last winter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221831.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Patrick Stewart as Jean-Luc Picard. -u/ericallenjett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226888.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Snapping turtle taking a breath under our dock.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221832.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Sir Ian McKellen as Gandalf. -u/SimonFerocious76</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226889.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Pigeon flew right past my phone while taking a photo”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221833.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Bryan Cranston as Walter White. -u/GR3TSCH</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226890.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “The floor is so shiny you can see the underside in detail.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221834.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Alan Rickman as Severus Snape. Killed it from the very start. -u/gswkillinit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226891.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “One of two fly traps I set out Saturday evening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221835.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Rainn Wilson as Dwight Schrute. -u/RealQuickNope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226893.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. A tree from the conservatory at The Bellagio in Vegas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221836.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Wood knots I saw look kinda like a bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. The smiling mussel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “My grandma had a lot of visitors the other day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “The breakfast that smiles back”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. This tree swallowing a bird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “The moth with spots that look like big eyes”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221844.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. “I quietly followed this deer for 30 minutes at 2 AM for this picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. A perfect moment</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “Eye in my pizza”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. A rainbow cloud</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “The sky this evening”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “My CD spindle’s reflection casts a very detailed eyeball in the morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “A bloom of jellyfish was beached near my home.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. “I smacked myself in the face and it left a print on my glasses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. A potato chicken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221853.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Harrison Ford as Indiana Jones. -u/Jedibri81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87226894.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
