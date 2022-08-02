@@ -1,55 +1,96 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/02/2022-09:47:23
+Last updated: 08/02/2022-10:47:22
 <br>
-## <a href="#linky2" id="linky1">22 Funny Memes to Activate Your Laughter Functions </a><br>
+## <a href="#linky2" id="linky1">20 Facts about Former President Donald Trump</a><br>
 
-<span style="font-size:4em">1. This dude is a legend and his story will be told for thousands of years to come. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222705.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Donald Trump allowed transgender women who were born male to compete in the Miss Universe pageant, in respect to the laws of Canada. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Yeah, sorry babe, you dont get to blame your shitty personality on the month you were born in. It doesnt work like that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222706.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Donald Trump once tried to trademark the phrase Youre Fired. - u/DwamSun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222707.png" style="width:100%"><br>
+<span style="font-size:4em">3. In 1989 Donald Trump made a board game. It was essentially a knock off of monopoly and every bank note had his face on it. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Are you brave enough?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222709.png" style="width:100%"><br>
+<span style="font-size:4em">4. That Donald Trump doesnt usually shake peoples hands due to borderline obsessive-compulsive disorder that causes him to fear germs. - u/redAllAboutIt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222710.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Donald Trump fired Khloe Kardashian on Celebrity Apprentice, not for be a sh*t entrepreneur but, but because of a DUI which she had incurred over a year ago. - u/Dusty_Star</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222711.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Deutsche Bank once valued Donald Trumps net worth at $788 million and Trump objected. - 
+u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Its true kid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222712.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Donald Trump tried to sue an author for $5,000,000,000 (yes, billion). Reason? The author called him a millionaire instead of a billionaire. - u/dudecof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222713.png" style="width:100%"><br>
+<span style="font-size:4em">8. Donald Trumps companies have filed for bankruptcy four different times. - u/ctyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I shouldnt have laughed as hard as I did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222708.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. When Donald Trumps casino was failing, his father loaned it $3.5 million by purchasing chips with no intention of gambling with them. - u/jstohler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222714.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. Spy Magazine sent 13-cent checks to some of the worlds richest people to see who would cash them. The only two people to do so were an arms dealer and Donald Trump. - u/mike_pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222716.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. That in 1999 Donald Trump proposed a one-time wealth tax of 14.25% on individuals worth $10 million or more. Trump claimed that this would generate $5.7 trillion in new taxes, which could be used to eliminate the national debt. - u/jamestown112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222717.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Donald Trumps campaign was being run by The Bomb Thrower Corey Lewandowski, whos strategy has always been to create controversy and then use the media frenzy to boost his clients profile. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222718.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. New Jersey once tried to use eminent domain on an elderly womans home and transfer it to Donald Trump so that he could build a limousine parking lot there. They later lost in court. - u/SharkNATO</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. If you know you know. And if you dont then you had a spoiled childhood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222715.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Donald Trump is among the least charitable billionaires in the world, donating $3.7 million to his own charity over the span of 20 years (less than the WWE donated to Trumps charity in 2007 alone). - u/86_crazy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222719.png" style="width:100%"><br>
+<span style="font-size:4em">15. In 1990 Donald Trump threatened to sue the stock broker firm Janney Montgomery Scott after an analyst made negative comments regarding the financial prospects of the Taj Mahal. The analyst was fired, refusing to withdraw the statement. The Taj Mahal declared bankruptcy later that same year. - u/TheOED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222720.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. While making Home Alone 2 in 1992, the film crew removed the wall to wall carpeting in the Plaza Hotels lobby, exposing the mosaic on the original tiles. Donald Trump loved the mosaics and insisted it remain that way until renovation in 2005. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222721.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. In 2012 Donald Trump ordered a boycott against Glenfiddich scotch, since the whiskey company financially backs the Top Scot award, given that year to Michael Forbes, who was chosen for refusing to vacate his land to make way for Trumps planned golf course. - u/dabunbun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222722.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Donald Trump tried to stop the building of an offshore wind-farm in Scotland because it would ruin the view of his golf course. - u/reddripper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222723.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. That Fred Trump, the father of Donald Trump, was best known as one of a small number of major builders of middle class housing in New York after WWII. His estate at his time of death was estimated at up to $300 million, but he did not believe in displays of wealth. - u/HAL9000000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222726.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Donald Trump was a registered Democrat from 2001 to 2009. - u/doug3465</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224817.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">40 Interesting Pics to Help Pass the Time</a><br>
+## <a href="#linky3" id="linky2">20 Maps That Are Terrible but Not Wrong</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123910/87226608/americas.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123924/87226610/bear.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Eastern most point of Brazil is closer to Africa than the Western most point.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123936/87226611/closer.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226613/color.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226614/date.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Map of Europe drawn from memory...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124025/87226617/memory.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Great Lakes cheat sheet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124014/87226616/lakes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124036/87226618/moms.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Map of Africa made of orange peels.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124055/87226619/orange.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Map of America if we were an Oregon Donor.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124106/87226620/oregon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124117/87226621/round.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124128/87226622/steak.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124139/87226623/tan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The most popular word in each American state.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124152/87226624/the.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125352/87226636/touch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Meat map of France.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124543/87226627/france.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124554/87226628/toes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124605/87226629/ak.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125220/87226633/visitor.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125232/87226634/america.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky4" id="linky3">40 Interesting Pics to Help Pass the Time</a><br>
 
 <span style="font-size:4em">1. A bee taking a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87221840.jpeg" style="width:100%"><br>
 
@@ -133,326 +174,7 @@ Last updated: 08/02/2022-09:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky5" id="linky4">31 Hot Takes From Twitter </a><br>
-
-<span style="font-size:4em">1. This tweet is both hilarious and painful. But mostly its hilariously painful.  Good sometimes the truth does hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219974.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I am alien. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219970.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Times are changing old man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219971.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. No more texting women yall, they are nasty. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219973.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. We cant take anymore of this crap. Time needs to stop now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219975.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. This is what I need in my life, a feral housewife. Picture this, you come home from work, and the wife is out in the woods. You whistle and she comes carrying a mouthful of fish and berries. You bathe her as she makes you dinner. Life is good. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219977.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219979.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219980.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219982.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219983.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219984.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219988.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219989.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219990.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219993.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219994.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219996.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219997.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87220000.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
-
-<span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. I want to hire a lookalike of myself who will pop out of a coffin and perform the “Thriller” choreography. -u/lordcameltoe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224853.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Ghostbuster theme. -u/Calm-Internet6926</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Take It With Me When I Go.” Tom Waits -u/youngyeoman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Shine On You Crazy Diamond. -u/Teemo63339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Closed casket…pop goes the weasel. -u/graeuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I want the credits theme for Super Mario World (SNES) played as everyone walks out. It’s a chipper tune and I think would lift everyone up. It’s also fitting as that was the first real game I ever played at 5 years old and it has a special place in my heart. -u/CutAccording7289</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Just tie my body to a ceiling fan and play Freebird. -u/tommytraddles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Going Out in Style.” - Dropkick Murphys -u/ShockingPyro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My Grandpa had Always Look at the Bright Side of Life From Life of Brian at his funeral. Id like something like that. -u/TechnologyOdd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This Girl is on Fire. I want to be cremated -u/Jazzlike-Pineapple38</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Do You Realize” by The Flaming Lips.Ive said it since high school, and I mean it. The lyrics can be a little odd, but the theme of time being relative, that good days dont end, they simply enter your memory and exist permanently in the past…that is what I want people who miss me to hear. -u/AndrewFurg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Wish You Were Here.” - Pink Floyd -u/AlexiosMakesMusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Still Alive (from Portal). -u/Megalopath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. As people start leaving, I’d like the Seinfeld theme to start playing. -u/Nine-Breaker009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224864.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Now We Are Free…Song from Gladiator. -u/Dry-Communication901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “How to Disappear Completely,” Radiohead. -u/windowmaker55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “F*ck the pain away” - Peaches.My family would be horrified and I want the last laugh. -u/KingMotard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224868.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. The Parting Glass by the Dubliners. -u/doyola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224869.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This Must Be the Place - Talking Heads. it perfectly sums up loving life while also being a bit confused about it. it’s about not being able to say “I love you,” but meaning it and trying your best.Plus, everyone with a heart likes that song. -u/lorqvonray94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Tiptoe Through the Tulips…As performed by Tiny Tim. -u/Bodhik344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Another One Bites the Dust by Queen. -u/fg10037</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Carry on Wayward Son. -u/loverofgoodthings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Please Dont Bury Me. - John Prine. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Somewhere Over the Rainbow - Israel IZ Kamakawiwoʻole. -u/Sluggy_Toe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224875.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">20 Wild Facts About Elvis Presley</a><br>
-
-<span style="font-size:4em">1. Elvis Presley was a natural blonde who used to dye his hair black. - u/Status-Victory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. In the last four years of Elvis Presley’s life, he had been prescribed 19,000 doses of drugs. In 1977 alone[the year of his death], Dr. Nicholpoulous had written 199 prescriptions totaling more than 10,000 doses of sedatives, amphetamines, and narcotics to Elvis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. in 2012 a librarian at a high school in Tupelo Mississippi discovered a library card in the back of an old book signed in 1948 by a then 13 year old Elvis Presley. It is the oldest known autograph by Elvis. - u/big_macaroons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Elvis Presley Never Wrote Any of His Own Songs despite being one of the most recognizable musicians of all time. - u/dd28064212</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. TIL that Elvis Presley’s breakout hit Heartbreak Hotel was inspired by Alvin Krolik, a depressed divorcée who was killed while robbing an El Paso liquor store. Krolik had claimed he walked a “lonely street.” It became the Heartbreak Hotel’s gloomy address and one of the song’s most memorable lines. - u/MostlySoFlo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Brenda Lee (best known for her hit Rockin Around the Christmas Tree) had 47 US chart hits during the 1960s, the most by a woman and surpassed only by Elvis Presley, the Beatles and Ray Charles. - u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Elvis Presley, throughout his entire career, performed in only three venues that werent in the United States. The three venues were all in Canada. Presley performed in them during brief tours in Canada in 1957. - u/GregJamesDahlen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. in 1993, the US postal service issued a commemorative postage stamp honoring Elvis Presleys 58th birthday, fans mailed envelopes with first-day issues of the stamp to fictitious addresses so that they would receive their letters back, marked with the words return to sender. - u/Doll_Tow_Jet-ski</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. There are 11 musicians who have been inducted into both the Rock and Roll Hall of Fame and the Country Music Hall of Fame. They are Jimmie Rodgers, Hank Williams, Chet Atkins, Johnny Cash, Elvis Presley, The Everly Brothers, Bill Monroe, Bob Wills, Brenda Lee, Floyd Cramer, and Sam Phillips. - u/SculpinIPAlcoholic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Elvis Presley was Elton Johns wakeup call. In 1976 Elton met Elvis backstage in June 1976 “It was sad,” , recalling Presley’s drugged state. John and his mom were escorted to their seats and they watched with equal parts horror and admiration.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Elvis Presley Based His Look On a DC Comics Superhero. - u/PlasticReviews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Barry White spent 4 months in jail for stealing $30,000 worth of Cadillac tires when he was 16. While behind bars, he heard Elvis Presleys Its Now or Never which he stated inspired him to become a singer. - u/trifletruffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Elvis Presleys first major record deal came in 1955 when several labels began to show interest in him. Three record labels made offers of $25,000 but Elvis ended up signing with RCA Records who offered $40,000. - u/MarineKingPrime_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The artists with the most #1 singles in history are The Beatles (20), Mariah Carey (19), Elvis Presley (17), Rihanna (14), and Michael Jackson (13). - u/arashtp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Elvis Presley was drafted into the U.S. Army. At the peak of his career, he received his draft notice for a two-year stint in the army. Fans sent tens of thousands of letters to the army asking for him to be spared, but Elvis refused to decline. He was sworn as an army private on March 24, 1958. - u/iamabn5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Elvis Presleys manager, Colonel Tom Parker prevented Elvis from touring outside of the US (except for 3 shows in Canada in 1957) because Parker was, among other things, an illegal alien from the Netherlands that was suspected of murder. - u/deadtedw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. the peak of TV attention can be assigned an exact date: Sunday, September 9, 1956, when Elvis Presley made his first appearance on television, on CBS’s Ed Sullivan Show. Its 82.6 percent share of US viewers has never been equaled or bettered. - u/leningrad84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. in 1964, Elvis Presley bought President Franklin D Roosevelts yacht, USS Potomac (AG-25) for $55,000. He later gave it to St Judes Children Hospital for a fundraiser, and that hospital sold it for $65,000. - u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. 60 years ago, the actress Angela Lansbury, who is still living, played Elvis Presley’s mother in “Blue Hawaii.” - u/SubstantialRange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. in 2015 Jack White purchased the 1st ever song recording of Elvis Presley (1953) and worked with music archivist Alan Stoker to digitally transfer it. - u/deadhunt3rr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224716.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">Employee Leaves Work during Busy Rush after Being Denied Overtime Pay</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Joe Rogan Facts That Make Total Sense</a><br>
-
-<span style="font-size:4em">1. In 2005, Wesley Snipes entered into negotiations to fight Fear Factor host Joe Rogan on Ultimate Fighting Match, but the deal fell through.
-
--u/MR___SLAVE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. During the 1990s, Joe Rogan paid $10,000 per month to have a T1 internet connection installed in his house in order to play Quake without dealing with lag.
-
--u/TokingMessiah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221375.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Joe Rogan and My Chemical Romances Gerard Way are second cousins.
-
--u/Pearathon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221376.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. 19-year-old Joe Rogan won the US Open Taekwondo lightweight championship, and then went on to beat both the US middle and heavyweight champions. 
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Joe Rogan has a personal sensory deprivation tank.
-
--u/cheesylady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. According to Joe Rogan, Fear Factor was canceled in part because the producers went too far when one of the challenges involved drinking Donkey urine and semen.
-
--u/vetruvian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Joe Rogan was high for every episode of Fear Factor seasons 2-6.
-
--u/halcyon44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Joe Rogan had 3 hair transplant surgeries.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Louis CK fired his management agency because they asked another client, Joe Rogan, to apologize to Carlos Mencia for outing him as a joke thief.
-
--u/PostModernPromethius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Joe Rogan was in a documentary about DMT (dimethyltryptamine - try saying that 3 times fast), He also talks about DMT on his Podcast saying Its like youre in a universe built on Peace, Love, and Unity.
-
--u/nextinplease</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Matt Damon, Bette Davis, John Krasinski, Matt Leblanc, Amy Poehler, Joe Rogan, Eli Roth and Louis CK are ALL from Newton, MA.
-
--u/choast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221384.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Joe Rogan is a kickboxer, Judoka, and holds a black belt in Brazilian Jiu Jitsu.
-
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221385.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. The Rock once dumped Joe Rogan for being a racist piece of sh*t.
--u/flappingmeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Joe Rogan said Canada must dump Justin Trudeau.
-
--u/WuzzWuzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Joe Rogans big break came after Ray Romano was fired by NewsRadios producers.
-
--u/roguetowel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Crosby, Stills & Nash returned to Spotify after a 5-month boycott from the Joe Rogan-Spotify controversy.
-
--u/YoureASkyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Millionaire celebrity podcaster Joe Rogan backed Florida Republican Governor Ron DeSantis for US president.
-
--u/Motor-Ad-8858</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221389.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Joe Rogan says he’s rejected Trump as a podcast guest multiple times.
-
--u/nimobo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221390.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Joe Rogan praised Roman Emperor Marcus Aurelius for his modern writing style and not writing in Shakespearean English.
-
--u/dudlord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Joe Rogan thinks Joe Schilling is cool for being an a**hole meathead and knocking out non-fighters in bars.
-
--u/Krstoserofil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Steve Bannon blasted Joe Rogan and his ‘low information’ listeners after he calls Trump a danger to democracy.
-
--u/MajorRichardHead7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Joe Rogan on Joe Biden: Biden shakes hands with people that arent even there when he gets off stage. I think hes seeing ghosts ... If he was anyone else, if he was a Republican, if that was Donald Trump doing that, every f*cking talk show would be screaming for him to be off the air.
-
--u/frog9913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Joe Rogan said its okay if people sh*t on him. In fact, he says he would sh*t on himself about steroid use & insecurities of being short.
-
--u/kingpussypumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Joe Rogan called Trump a ‘Man Baby,’ and theorized he was on Adderall during his presidency.
-
--u/GregSmith1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221396.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Joe Rogan was addicted to the video game Quake; he would play up to 10 hours a day.
-
--u/p_hinman3rd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221397.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">24 Funny Memes With Subtle Undertones of Dank</a><br>
+## <a href="#linky5" id="linky4">24 Funny Memes With Subtle Undertones of Dank</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227049.jpg" style="width:100%"><br>
 
@@ -502,303 +224,91 @@ Last updated: 08/02/2022-09:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">49 Funny Pics and Fun Randoms to Get Your Day Going</a><br>
+## <a href="#linky6" id="linky5">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227088.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227089.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227090.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227091.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227092.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227093.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227094.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227095.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227096.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227097.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227098.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227099.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227100.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227101.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227102.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227103.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227104.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227135.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">23 Internet Guys You Better Not Mess With</a><br>
+## <a href="#linky7" id="linky6">20 Wild Facts About Elvis Presley</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114837/87227372/sotough-fixed.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Elvis Presley was a natural blonde who used to dye his hair black. - u/Status-Victory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224697.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114914/87227375/sotough2.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. In the last four years of Elvis Presley’s life, he had been prescribed 19,000 doses of drugs. In 1977 alone[the year of his death], Dr. Nicholpoulous had written 199 prescriptions totaling more than 10,000 doses of sedatives, amphetamines, and narcotics to Elvis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114927/87227376/sotough3.png" style="width:100%"><br>
+<span style="font-size:4em">3. in 2012 a librarian at a high school in Tupelo Mississippi discovered a library card in the back of an old book signed in 1948 by a then 13 year old Elvis Presley. It is the oldest known autograph by Elvis. - u/big_macaroons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224699.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114941/87227377/sotough4.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Elvis Presley Never Wrote Any of His Own Songs despite being one of the most recognizable musicians of all time. - u/dd28064212</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114954/87227378/sotough5.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. TIL that Elvis Presley’s breakout hit Heartbreak Hotel was inspired by Alvin Krolik, a depressed divorcée who was killed while robbing an El Paso liquor store. Krolik had claimed he walked a “lonely street.” It became the Heartbreak Hotel’s gloomy address and one of the song’s most memorable lines. - u/MostlySoFlo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224701.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114959/87227379/sotough6.png" style="width:100%"><br>
+<span style="font-size:4em">6. Brenda Lee (best known for her hit Rockin Around the Christmas Tree) had 47 US chart hits during the 1960s, the most by a woman and surpassed only by Elvis Presley, the Beatles and Ray Charles. - u/jcd1974</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115007/87227380/sotough7.png" style="width:100%"><br>
+<span style="font-size:4em">7. Elvis Presley, throughout his entire career, performed in only three venues that werent in the United States. The three venues were all in Canada. Presley performed in them during brief tours in Canada in 1957. - u/GregJamesDahlen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115012/87227381/sotough8.png" style="width:100%"><br>
+<span style="font-size:4em">8. in 1993, the US postal service issued a commemorative postage stamp honoring Elvis Presleys 58th birthday, fans mailed envelopes with first-day issues of the stamp to fictitious addresses so that they would receive their letters back, marked with the words return to sender. - u/Doll_Tow_Jet-ski</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224704.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115020/87227382/sotough9.png" style="width:100%"><br>
+<span style="font-size:4em">9. There are 11 musicians who have been inducted into both the Rock and Roll Hall of Fame and the Country Music Hall of Fame. They are Jimmie Rodgers, Hank Williams, Chet Atkins, Johnny Cash, Elvis Presley, The Everly Brothers, Bill Monroe, Bob Wills, Brenda Lee, Floyd Cramer, and Sam Phillips. - u/SculpinIPAlcoholic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224705.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115033/87227383/sotough10.png" style="width:100%"><br>
+<span style="font-size:4em">10. Elvis Presley was Elton Johns wakeup call. In 1976 Elton met Elvis backstage in June 1976 “It was sad,” , recalling Presley’s drugged state. John and his mom were escorted to their seats and they watched with equal parts horror and admiration.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224706.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115046/87227385/sotough12.png" style="width:100%"><br>
+<span style="font-size:4em">11. Elvis Presley Based His Look On a DC Comics Superhero. - u/PlasticReviews</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115059/87227386/sotough13.png" style="width:100%"><br>
+<span style="font-size:4em">12. Barry White spent 4 months in jail for stealing $30,000 worth of Cadillac tires when he was 16. While behind bars, he heard Elvis Presleys Its Now or Never which he stated inspired him to become a singer. - u/trifletruffles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224708.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/121855/87227395/sotough11.png" style="width:100%"><br>
+<span style="font-size:4em">13. Elvis Presleys first major record deal came in 1955 when several labels began to show interest in him. Three record labels made offers of $25,000 but Elvis ended up signing with RCA Records who offered $40,000. - u/MarineKingPrime_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224709.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/100418/87227740/sotough1.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The artists with the most #1 singles in history are The Beatles (20), Mariah Carey (19), Elvis Presley (17), Rihanna (14), and Michael Jackson (13). - u/arashtp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224710.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/100452/87227741/sotough14.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Elvis Presley was drafted into the U.S. Army. At the peak of his career, he received his draft notice for a two-year stint in the army. Fans sent tens of thousands of letters to the army asking for him to be spared, but Elvis refused to decline. He was sworn as an army private on March 24, 1958. - u/iamabn5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224711.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101249/87227746/tryagain1.png" style="width:100%"><br>
+<span style="font-size:4em">16. Elvis Presleys manager, Colonel Tom Parker prevented Elvis from touring outside of the US (except for 3 shows in Canada in 1957) because Parker was, among other things, an illegal alien from the Netherlands that was suspected of murder. - u/deadtedw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224712.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101301/87227747/tryagain3.png" style="width:100%"><br>
+<span style="font-size:4em">17. the peak of TV attention can be assigned an exact date: Sunday, September 9, 1956, when Elvis Presley made his first appearance on television, on CBS’s Ed Sullivan Show. Its 82.6 percent share of US viewers has never been equaled or bettered. - u/leningrad84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224713.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101329/87227749/tryagain6.png" style="width:100%"><br>
+<span style="font-size:4em">18. in 1964, Elvis Presley bought President Franklin D Roosevelts yacht, USS Potomac (AG-25) for $55,000. He later gave it to St Judes Children Hospital for a fundraiser, and that hospital sold it for $65,000. - u/dcdiehardfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224714.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101332/87227750/tryagain5.png" style="width:100%"><br>
+<span style="font-size:4em">19. 60 years ago, the actress Angela Lansbury, who is still living, played Elvis Presley’s mother in “Blue Hawaii.” - u/SubstantialRange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224715.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101341/87227751/tryagain7.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101344/87227752/tryagain8.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101353/87227753/tryagain9.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102623/87227767/tryagain4.png" style="width:100%"><br>
+<span style="font-size:4em">20. in 2015 Jack White purchased the 1st ever song recording of Elvis Presley (1953) and worked with music archivist Alan Stoker to digitally transfer it. - u/deadhunt3rr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224716.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">Monday Morning Randomness User Edition - ULook2</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226947.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">20 Maps That Are Terrible but Not Wrong</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123910/87226608/americas.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123924/87226610/bear.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Eastern most point of Brazil is closer to Africa than the Western most point.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123936/87226611/closer.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226613/color.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/123948/87226614/date.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Map of Europe drawn from memory...</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124025/87226617/memory.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Great Lakes cheat sheet.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124014/87226616/lakes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124036/87226618/moms.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Map of Africa made of orange peels.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124055/87226619/orange.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Map of America if we were an Oregon Donor.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124106/87226620/oregon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124117/87226621/round.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124128/87226622/steak.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124139/87226623/tan.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The most popular word in each American state.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124152/87226624/the.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125352/87226636/touch.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Meat map of France.</span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124543/87226627/france.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124554/87226628/toes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/124605/87226629/ak.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125220/87226633/visitor.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/07/29/125232/87226634/america.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky15" id="linky14">25 Messed Up Facts You Didn't Know About Mother Teresa</a><br>
+## <a href="#linky8" id="linky7">25 Messed Up Facts You Didn't Know About Mother Teresa</a><br>
 
 <span style="font-size:4em">1. A devils advocate was a person sanctioned by the Vatican to argue against the canonization of a potential new saint by pointing out their flaws and critically evaluating their miracles. Christopher Hitchens served as a devils advocate for Mother Teresa.
 
@@ -904,7 +414,7 @@ Last updated: 08/02/2022-09:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky16" id="linky15">33 People Who Are Not Having Fun</a><br>
+## <a href="#linky9" id="linky8">33 People Who Are Not Having Fun</a><br>
 
 <span style="font-size:4em">1. “Spilled coffee plus Crocs plus socks”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225331.jpg" style="width:100%"><br>
 
@@ -971,6 +481,535 @@ Last updated: 08/02/2022-09:47:23
 <span style="font-size:4em">32. “Ground staff pulled the wrong handle and MD-80’s butt fell off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225362.png" style="width:100%"><br>
 
 <span style="font-size:4em">33. Deadbolt’s ready</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225363.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">20 Different Foods with Threatening Auras</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">22 Funny Memes to Activate Your Laughter Functions </a><br>
+
+<span style="font-size:4em">1. This dude is a legend and his story will be told for thousands of years to come. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Yeah, sorry babe, you dont get to blame your shitty personality on the month you were born in. It doesnt work like that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222707.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Are you brave enough?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222709.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Its true kid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222713.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. I shouldnt have laughed as hard as I did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222714.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If you know you know. And if you dont then you had a spoiled childhood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222719.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222726.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">31 Hot Takes From Twitter </a><br>
+
+<span style="font-size:4em">1. This tweet is both hilarious and painful. But mostly its hilariously painful.  Good sometimes the truth does hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219974.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I am alien. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219970.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Times are changing old man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219971.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. No more texting women yall, they are nasty. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219973.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. We cant take anymore of this crap. Time needs to stop now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219975.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This is what I need in my life, a feral housewife. Picture this, you come home from work, and the wife is out in the woods. You whistle and she comes carrying a mouthful of fish and berries. You bathe her as she makes you dinner. Life is good. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219977.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219979.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219980.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219982.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219983.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219984.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219988.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219989.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219990.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219993.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219994.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219996.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219997.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87220000.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky13" id="linky12">49 Funny Pics and Fun Randoms to Get Your Day Going</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227135.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">Employee Leaves Work during Busy Rush after Being Denied Overtime Pay</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012535/87227402/IMG_3744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012549/87227404/IMG_3745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012538/87227403/IMG_3746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/012605/87227406/IMG_3747.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky15" id="linky14">25 Songs That Put the ‘Fun’ in Your Funeral</a><br>
+
+<span style="font-size:4em">1. If theyre having a funeral, theyre playing Weird Als Trapped in the Drive-Thru. -u/newtside </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224852.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. I want to hire a lookalike of myself who will pop out of a coffin and perform the “Thriller” choreography. -u/lordcameltoe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224853.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Ghostbuster theme. -u/Calm-Internet6926</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Take It With Me When I Go.” Tom Waits -u/youngyeoman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shine On You Crazy Diamond. -u/Teemo63339</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Closed casket…pop goes the weasel. -u/graeuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I want the credits theme for Super Mario World (SNES) played as everyone walks out. It’s a chipper tune and I think would lift everyone up. It’s also fitting as that was the first real game I ever played at 5 years old and it has a special place in my heart. -u/CutAccording7289</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Just tie my body to a ceiling fan and play Freebird. -u/tommytraddles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Going Out in Style.” - Dropkick Murphys -u/ShockingPyro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My Grandpa had Always Look at the Bright Side of Life From Life of Brian at his funeral. Id like something like that. -u/TechnologyOdd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This Girl is on Fire. I want to be cremated -u/Jazzlike-Pineapple38</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Do You Realize” by The Flaming Lips.Ive said it since high school, and I mean it. The lyrics can be a little odd, but the theme of time being relative, that good days dont end, they simply enter your memory and exist permanently in the past…that is what I want people who miss me to hear. -u/AndrewFurg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Wish You Were Here.” - Pink Floyd -u/AlexiosMakesMusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Still Alive (from Portal). -u/Megalopath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. As people start leaving, I’d like the Seinfeld theme to start playing. -u/Nine-Breaker009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224864.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Now We Are Free…Song from Gladiator. -u/Dry-Communication901</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “How to Disappear Completely,” Radiohead. -u/windowmaker55</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “F*ck the pain away” - Peaches.My family would be horrified and I want the last laugh. -u/KingMotard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224868.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Parting Glass by the Dubliners. -u/doyola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224869.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. This Must Be the Place - Talking Heads. it perfectly sums up loving life while also being a bit confused about it. it’s about not being able to say “I love you,” but meaning it and trying your best.Plus, everyone with a heart likes that song. -u/lorqvonray94</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Tiptoe Through the Tulips…As performed by Tiny Tim. -u/Bodhik344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Another One Bites the Dust by Queen. -u/fg10037</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Carry on Wayward Son. -u/loverofgoodthings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Please Dont Bury Me. - John Prine. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Somewhere Over the Rainbow - Israel IZ Kamakawiwoʻole. -u/Sluggy_Toe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224875.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky16" id="linky15">Joe Rogan Facts That Make Total Sense</a><br>
+
+<span style="font-size:4em">1. In 2005, Wesley Snipes entered into negotiations to fight Fear Factor host Joe Rogan on Ultimate Fighting Match, but the deal fell through.
+
+-u/MR___SLAVE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. During the 1990s, Joe Rogan paid $10,000 per month to have a T1 internet connection installed in his house in order to play Quake without dealing with lag.
+
+-u/TokingMessiah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221375.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Joe Rogan and My Chemical Romances Gerard Way are second cousins.
+
+-u/Pearathon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221376.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. 19-year-old Joe Rogan won the US Open Taekwondo lightweight championship, and then went on to beat both the US middle and heavyweight champions. 
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Joe Rogan has a personal sensory deprivation tank.
+
+-u/cheesylady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. According to Joe Rogan, Fear Factor was canceled in part because the producers went too far when one of the challenges involved drinking Donkey urine and semen.
+
+-u/vetruvian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Joe Rogan was high for every episode of Fear Factor seasons 2-6.
+
+-u/halcyon44</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Joe Rogan had 3 hair transplant surgeries.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Louis CK fired his management agency because they asked another client, Joe Rogan, to apologize to Carlos Mencia for outing him as a joke thief.
+
+-u/PostModernPromethius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Joe Rogan was in a documentary about DMT (dimethyltryptamine - try saying that 3 times fast), He also talks about DMT on his Podcast saying Its like youre in a universe built on Peace, Love, and Unity.
+
+-u/nextinplease</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Matt Damon, Bette Davis, John Krasinski, Matt Leblanc, Amy Poehler, Joe Rogan, Eli Roth and Louis CK are ALL from Newton, MA.
+
+-u/choast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221384.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Joe Rogan is a kickboxer, Judoka, and holds a black belt in Brazilian Jiu Jitsu.
+
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221385.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. The Rock once dumped Joe Rogan for being a racist piece of sh*t.
+-u/flappingmeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Joe Rogan said Canada must dump Justin Trudeau.
+
+-u/WuzzWuzz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Joe Rogans big break came after Ray Romano was fired by NewsRadios producers.
+
+-u/roguetowel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Crosby, Stills & Nash returned to Spotify after a 5-month boycott from the Joe Rogan-Spotify controversy.
+
+-u/YoureASkyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Millionaire celebrity podcaster Joe Rogan backed Florida Republican Governor Ron DeSantis for US president.
+
+-u/Motor-Ad-8858</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221389.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Joe Rogan says he’s rejected Trump as a podcast guest multiple times.
+
+-u/nimobo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221390.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Joe Rogan praised Roman Emperor Marcus Aurelius for his modern writing style and not writing in Shakespearean English.
+
+-u/dudlord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Joe Rogan thinks Joe Schilling is cool for being an a**hole meathead and knocking out non-fighters in bars.
+
+-u/Krstoserofil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Steve Bannon blasted Joe Rogan and his ‘low information’ listeners after he calls Trump a danger to democracy.
+
+-u/MajorRichardHead7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Joe Rogan on Joe Biden: Biden shakes hands with people that arent even there when he gets off stage. I think hes seeing ghosts ... If he was anyone else, if he was a Republican, if that was Donald Trump doing that, every f*cking talk show would be screaming for him to be off the air.
+
+-u/frog9913</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Joe Rogan said its okay if people sh*t on him. In fact, he says he would sh*t on himself about steroid use & insecurities of being short.
+
+-u/kingpussypumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Joe Rogan called Trump a ‘Man Baby,’ and theorized he was on Adderall during his presidency.
+
+-u/GregSmith1967</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221396.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Joe Rogan was addicted to the video game Quake; he would play up to 10 hours a day.
+
+-u/p_hinman3rd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221397.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky17" id="linky16">Monday Morning Randomness User Edition - ULook2</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226945.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87226947.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
