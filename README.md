@@ -1,121 +1,91 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/03/2022-10:47:24
+Last updated: 08/03/2022-11:47:23
 <br>
-## <a href="#linky2" id="linky1">22 Funny Memes to Activate Your Laughter Functions </a><br>
+## <a href="#linky2" id="linky1">20 Funny Memes That Don't Want to Drive Either</a><br>
 
-<span style="font-size:4em">1. This dude is a legend and his story will be told for thousands of years to come. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222705.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Yeah, sorry babe, you dont get to blame your shitty personality on the month you were born in. It doesnt work like that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222706.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222707.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Are you brave enough?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222709.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222710.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222711.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Its true kid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222712.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227425.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222713.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I shouldnt have laughed as hard as I did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222708.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227427.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222714.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227428.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222716.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227429.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222717.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222718.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227431.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. If you know you know. And if you dont then you had a spoiled childhood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222715.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227432.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222719.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222720.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222721.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222722.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222723.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222726.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227438.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">33 People Who Are Not Having Fun</a><br>
+## <a href="#linky3" id="linky2">20 Different Foods with Threatening Auras</a><br>
 
-<span style="font-size:4em">1. “Spilled coffee plus Crocs plus socks”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225331.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “My friend’s GF’s dad sent them a cutting board for their housewarming.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225333.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I went through the Taco Bell drive-thru with a friend. When asked if we wanted sauce, I said: “As much as you’re allowed to give me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225334.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “You’ve failed in your mission.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225335.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I asked my wife to keep the oven on low for the burgers. So she put it on low-broil, and forgot to take the plastic cover off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225336.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Either my dog got bored or somebody brought home a tall beaver. And I can’t find the beaver.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225337.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Installing a metal roof flawlessly”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225338.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “I sank my 4-wheeler while looking for my phone that also sank.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225339.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My father had to be freed from the locked toilet this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225340.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Just trying to ride a bike near a nesting magpie.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225343.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “My wife won’t stop laughing at me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225341.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I went to show my bunny the forest. It sounded better in my head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225342.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I appreciate your attempt to clean, my random party guest, but wooden cutting boards do not go in the dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225344.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I tried to save a few trees and bought a silicone ‘cotton swab.’ Guess who’s at urgent care because the other end is stuck in his ear?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225345.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I forgot my plastic spatula in the oven while heating up my lasagna.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225346.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “I couldn’t find my dog and was worried she somehow got out. Turns out she locked herself in the bathroom and decided to redecorate.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225347.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Yesterday I asked a man with a sign ‘hungry, anything helps’ if he wanted a freshly baked bagel. He was super thankful and nice.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225348.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Landlord said he was installing shower doors.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225349.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Someone at my stepdad’s work put dry ice in the toilet by mistake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225332.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Ah yes... repairing the ground, uh.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Not my job to keep the gate working while installing drainage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “I wonder what came first.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I have to suffer from looking at this every time I go shopping.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225353.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. “They just made the strawberry part too big, so they had to adjust the amount of the others. But it’s still funny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225354.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. “I have to look at this every day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Uh, where’s his mustache?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225356.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. “My wife ordered a bottle of spices, and they didn’t have it in the store, so they shipped it, and it came exactly like this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Put up that speed limit sign.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225358.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. “Aren’t the pickles supposed to be on the inside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “This one’s kinda impressive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. So, can you make a right turn here?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225361.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Ground staff pulled the wrong handle and MD-80’s butt fell off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225362.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. Deadbolt’s ready</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87225363.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -139,7 +109,47 @@ Last updated: 08/03/2022-10:47:24
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Facts about Former President Donald Trump</a><br>
+## <a href="#linky5" id="linky4">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">20 Facts about Former President Donald Trump</a><br>
 
 <span style="font-size:4em">1. Donald Trump allowed transgender women who were born male to compete in the Miss Universe pageant, in respect to the laws of Canada. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224818.jpg" style="width:100%"><br>
 
@@ -184,7 +194,7 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">33 Funny Photos to Induce Laughter Immediately</a><br>
+## <a href="#linky7" id="linky6">33 Funny Photos to Induce Laughter Immediately</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227873.jpg" style="width:100%"><br>
 
@@ -254,187 +264,7 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">20 Different Foods with Threatening Auras</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">20 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217187.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217191.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">Gulf War Facts That Should Have Been Kept Secret</a><br>
-
-<span style="font-size:4em">1. During the Persian Gulf War, Topps made a trading card set depicting people and equipment on both sides of the conflict.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Disneys Aladdin was originally supposed to be set in Baghdad, but John Musker and Ron Clements were forced to change it due to the outbreak of the Gulf War. So, they took letters and did a jumbled anagram and came up with Agrabah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227841.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. During the Gulf War, the U.S. dropped a 6,800 kg BLU-82 bomb to conduct psychological warfare against Iraqi troops. A British SAS unit that witnessed the explosion assumed the U.S. had used a nuclear weapon and radioed back to their headquarters, Sir, the blokes have just nuked Kuwait!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227842.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. The first human surrender to a robot occurred in the 1991 Gulf War. The US used UAVs (drone robots) to find artillery targets. Iraqi soldiers realized that the UAVs often preceded an attack strike. A Pioneer RQ-2A UAV flew over some soldiers who then raised white flags to surrender to the robot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In the first Gulf War a B-52 bomber mistakenly targeted a fighter with its tail gun radar. The fighter shot back with a HARM missile, causing damage, but no fatalities. Afterward, the bomber was renamed In HARMs Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Grammy-winning reggae artist Shaggy served in the United States Marine Corps from 1988-1991 and was deployed to Saudi Arabia during the Gulf War. He reached the rank of Lance Corporal but was later demoted for returning to base late from a weekend trip to his music studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Since the Gulf War in 1991, when Israel was attacked by Iraqi Scud missiles, all homes in Israel are required to have a reinforced security room, Merkhav Mugan, impermeable to chemical and biological substances. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. During the run-up to the Gulf War, Muhammad Ali traveled to Iraq and personally secured the release of 15 American hostages being detained by Saddam Hussein, despite the US Government and press condemning the mission and Ali as another egomaniacal celebrity out of his depth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227847.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2017, a company restoring a captured Iraqi tank from the Gulf War, discovered five gold bars hidden in the fuel tank when they found they couldnt lift it even though it was empty of fuel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227848.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. During the First Gulf War, the US lost 20 Bradley vehicles. Only 3 of those were destroyed by the enemy, the rest were the result of friendly fire accidents. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In the opening minutes of the Gulf War, a completely unarmed US electronic attack plane managed to defeat the latest generation (retired in 2014) French-built Iraqi Fighter Plane by maneuvering close to the ground leading to the Iraqi plane impacting the ground trying to pursue. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. During the Gulf War when American forces were faced with extensive trenches of Iraqi soldiers they, opted to use anti-mine plows mounted on tanks and combat earthmovers to simply plow over and bury alive the defending Iraqi soldiers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In 1990, Nayirah al-Ṣabaḥ, daughter of the Kuwaiti ambassador to the US, gave a false testimony which galvanized support for the first Persian Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The USS Missouri, the battleship on which the Japanese Surrendered in 1945 fired tomahawks cruise missiles in the 1991 Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In the Gulf War (1991), new pregnancies among US military personnel outnumbered US combat deaths by 8 to 1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Today I learned about the use of fire trenches by Iraqi forces as they retreated from Kuwait during the Persian Gulf War. As part of their scorched earth policy, they filled trenches in the desert with oil and set them on fire to slow the advance of coalition tanks and other heavy weaponry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The First Gulf War (in 1991) technically never ended — there was just a cease-fire. The UK used this legal loophole to justify entering the Second Gulf War (in 2003). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The 1980s pop song Everybody Wants to Rule the World was banned from being broadcast on the BBC between 1990 and 1991 because it was feared to have anti-Gulf War themes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227857.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. In the Gulf War, 9 M1 Abrams Tanks destroyed 28 T-Series Iraqi Tanks, 16 Iraqi personal carriers and 39 Iraqi trucks in under 23 minutes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Saddam Husseins regime genocided an entire race of 500,000 people known as the Marsh Arabs after the Persian Gulf War by literally destroying the environment that their entire civilization was built upon, building 32 dams to turn their homes and farms into deserts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. In Kuwait, falling bullets from celebratory gunfire after the end of the Gulf War killed at least 20 people. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. 250,000 of the 697,000 U.S. veterans who served in the 1991 Gulf War are afflicted with a chronic unknown illness causing fatigue, muscle pain, cognitive problems, rashes, and diarrhea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227861.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. During the first Gulf War, the Iraqi military would dispense propaganda pamphlets and radio spots aimed at US soldiers that said that while they were in Iraq fighting, their wives were in bed with Tom Cruise, Bruce Willis, and Bart Simpson, back at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227862.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. A Game Boy survived the fire caused by bombing in the Gulf War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227863.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. During the Gulf War, more Israeli citizens were suffocated or frightened to death, due to gas masks and the fear of chemical SCUD attacks, than died from actual SCUD missile attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227864.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">43 Memes That Speak The Truth</a><br>
+## <a href="#linky8" id="linky7">43 Memes That Speak The Truth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224591.jpg" style="width:100%"><br>
 
@@ -524,7 +354,7 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">50 Nifty Photos to Help Pass the Time</a><br>
+## <a href="#linky9" id="linky8">50 Nifty Photos to Help Pass the Time</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87227505.jpg" style="width:100%"><br>
 
@@ -628,7 +458,55 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">23 Guys Who Aren't Really That Tough</a><br>
+## <a href="#linky10" id="linky9">22 Funny Memes to Activate Your Laughter Functions </a><br>
+
+<span style="font-size:4em">1. This dude is a legend and his story will be told for thousands of years to come. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Yeah, sorry babe, you dont get to blame your shitty personality on the month you were born in. It doesnt work like that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222707.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Are you brave enough?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222709.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Its true kid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222713.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. I shouldnt have laughed as hard as I did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222714.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If you know you know. And if you dont then you had a spoiled childhood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222719.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222726.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">23 Guys Who Aren't Really That Tough</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114837/87227372/sotough-fixed.jpg" style="width:100%"><br>
 
@@ -678,51 +556,61 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky14" id="linky13">20 Pics with Perfect Timing and Placement</a><br>
+## <a href="#linky12" id="linky11">Gulf War Facts That Should Have Been Kept Secret</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227947.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. During the Persian Gulf War, Topps made a trading card set depicting people and equipment on both sides of the conflict.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227944.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Disneys Aladdin was originally supposed to be set in Baghdad, but John Musker and Ron Clements were forced to change it due to the outbreak of the Gulf War. So, they took letters and did a jumbled anagram and came up with Agrabah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227841.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227943.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. During the Gulf War, the U.S. dropped a 6,800 kg BLU-82 bomb to conduct psychological warfare against Iraqi troops. A British SAS unit that witnessed the explosion assumed the U.S. had used a nuclear weapon and radioed back to their headquarters, Sir, the blokes have just nuked Kuwait!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227842.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227938.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The first human surrender to a robot occurred in the 1991 Gulf War. The US used UAVs (drone robots) to find artillery targets. Iraqi soldiers realized that the UAVs often preceded an attack strike. A Pioneer RQ-2A UAV flew over some soldiers who then raised white flags to surrender to the robot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227936.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. In the first Gulf War a B-52 bomber mistakenly targeted a fighter with its tail gun radar. The fighter shot back with a HARM missile, causing damage, but no fatalities. Afterward, the bomber was renamed In HARMs Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227937.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Grammy-winning reggae artist Shaggy served in the United States Marine Corps from 1988-1991 and was deployed to Saudi Arabia during the Gulf War. He reached the rank of Lance Corporal but was later demoted for returning to base late from a weekend trip to his music studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227939.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Since the Gulf War in 1991, when Israel was attacked by Iraqi Scud missiles, all homes in Israel are required to have a reinforced security room, Merkhav Mugan, impermeable to chemical and biological substances. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227940.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. During the run-up to the Gulf War, Muhammad Ali traveled to Iraq and personally secured the release of 15 American hostages being detained by Saddam Hussein, despite the US Government and press condemning the mission and Ali as another egomaniacal celebrity out of his depth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227847.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227942.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 2017, a company restoring a captured Iraqi tank from the Gulf War, discovered five gold bars hidden in the fuel tank when they found they couldnt lift it even though it was empty of fuel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227848.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227941.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. During the First Gulf War, the US lost 20 Bradley vehicles. Only 3 of those were destroyed by the enemy, the rest were the result of friendly fire accidents. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227945.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In the opening minutes of the Gulf War, a completely unarmed US electronic attack plane managed to defeat the latest generation (retired in 2014) French-built Iraqi Fighter Plane by maneuvering close to the ground leading to the Iraqi plane impacting the ground trying to pursue. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227946.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. During the Gulf War when American forces were faced with extensive trenches of Iraqi soldiers they, opted to use anti-mine plows mounted on tanks and combat earthmovers to simply plow over and bury alive the defending Iraqi soldiers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227948.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In 1990, Nayirah al-Ṣabaḥ, daughter of the Kuwaiti ambassador to the US, gave a false testimony which galvanized support for the first Persian Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227949.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The USS Missouri, the battleship on which the Japanese Surrendered in 1945 fired tomahawks cruise missiles in the 1991 Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227950.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. In the Gulf War (1991), new pregnancies among US military personnel outnumbered US combat deaths by 8 to 1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227951.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Today I learned about the use of fire trenches by Iraqi forces as they retreated from Kuwait during the Persian Gulf War. As part of their scorched earth policy, they filled trenches in the desert with oil and set them on fire to slow the advance of coalition tanks and other heavy weaponry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227952.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The First Gulf War (in 1991) technically never ended — there was just a cease-fire. The UK used this legal loophole to justify entering the Second Gulf War (in 2003). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227953.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The 1980s pop song Everybody Wants to Rule the World was banned from being broadcast on the BBC between 1990 and 1991 because it was feared to have anti-Gulf War themes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227857.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227954.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. In the Gulf War, 9 M1 Abrams Tanks destroyed 28 T-Series Iraqi Tanks, 16 Iraqi personal carriers and 39 Iraqi trucks in under 23 minutes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227955.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Saddam Husseins regime genocided an entire race of 500,000 people known as the Marsh Arabs after the Persian Gulf War by literally destroying the environment that their entire civilization was built upon, building 32 dams to turn their homes and farms into deserts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. In Kuwait, falling bullets from celebratory gunfire after the end of the Gulf War killed at least 20 people. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. 250,000 of the 697,000 U.S. veterans who served in the 1991 Gulf War are afflicted with a chronic unknown illness causing fatigue, muscle pain, cognitive problems, rashes, and diarrhea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227861.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. During the first Gulf War, the Iraqi military would dispense propaganda pamphlets and radio spots aimed at US soldiers that said that while they were in Iraq fighting, their wives were in bed with Tom Cruise, Bruce Willis, and Bart Simpson, back at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227862.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. A Game Boy survived the fire caused by bombing in the Gulf War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227863.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. During the Gulf War, more Israeli citizens were suffocated or frightened to death, due to gas masks and the fear of chemical SCUD attacks, than died from actual SCUD missile attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227864.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky15" id="linky14">27 Wild And Weird Reasons People Got Fired</a><br>
+## <a href="#linky13" id="linky12">27 Wild And Weird Reasons People Got Fired</a><br>
 
 <span style="font-size:4em">1. Guy stole a ton of money from our workplace. We worked at a gas station and he would incorrectly count the money in the till and pocket the rest. Also would delete security footage off the computer. Took a long time for them to figure out it was him. There was a warrant out for his arrest after and Im not sure what happened after that. Whats crazy is he was always super nice and you would never suspect him of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226192.jpg" style="width:100%"><br>
 
@@ -777,6 +665,48 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 <span style="font-size:4em">25. Neighbor’s babysitter got fired because she left the kids (3 kids under 10) alone in the house when she was scheduled to leave. Apparently she thought the Dad was still upstairs and she got paid weekly so she didn’t have any reason to talk to him after she had put all the kids to bed. But Dad had left and the Mom was late coming home. The Mom about had a heart attack. I could hear her yelling from my house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226196.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">26. Back when I was 21, I got fired from the green apron coffee company because I was drinking during the overnight shifts when we were drive thru only. Fairs fair.From my current company, Ive seen two people fired for six-figure overruns on projects. One was due to the person not really understanding any of the technical details of what they were managing, but theyd gotten by for years on having really good technical staff underneath them so they only had to do admin. The other was supposedly a senior subject matter expert but burned through over $100k of project budget to fill in a 3-tab worksheet that should have taken 2 weeks tops... and none of it was even correct.In both cases there were some obvious issues with higher up leadership as well that let those situations get to that point, but no one came out a winner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226197.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky14" id="linky13">20 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217187.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217191.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
