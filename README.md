@@ -1,47 +1,57 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/03/2022-17:47:23
+Last updated: 08/03/2022-18:47:23
 <br>
-## <a href="#linky2" id="linky1">20 Different Foods with Threatening Auras</a><br>
+## <a href="#linky2" id="linky1">25 Crazy Things People Believe Could Happen In 2022</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Jesus Christ actually comes back, miracles and all. Conservatives turn on him for being too liberal. Then reinstate crucifixions - HereWeGo___Again </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Contact with aliens, except its not from above but from the oceans like a B-movie. - SatynMalanaphy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
+<span style="font-size:4em">3. Pigs flying, we already put a genetically modified pig heart into a person, still got 8 more years - Main-Swing-3450</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224953.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
+<span style="font-size:4em">4. That we are currently in The Bad Place - ssazza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
+<span style="font-size:4em">5. The Hunger Games become reality. - monkeyworld_M</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224955.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
+<span style="font-size:4em">6. Errant moose stampede destroys Missaussaga - Poorly-Drawn-Beagle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224956.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
+<span style="font-size:4em">7. Influencers going in Ukraine to film themselves on the battlefield, I dont know why but I see it coming. - CylverLOL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224957.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
+<span style="font-size:4em">8. Landsharks - sd_glokta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Aliens apologizing for throwing rocks at earth - CatzycatZ64</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. If we the world ran out of a very specific food like apples, peanuts, etc. - No_Owl8236</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
+<span style="font-size:4em">11. Yellowstone Caldera awakens. - CarmichaelD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
+<span style="font-size:4em">12. Fungi zombie apocalypse - TheDoorDoesntWork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
+<span style="font-size:4em">13. Im not a conspiracy theorist, but on multiple occasions Ive thought that if I were trying to prepare humanity to accept intelligent alien life visiting us, Id probably bombard the human race with every fucking crazy bullshit scenario that exists so they that theyd be so exhausted they wouldnt care. 6 years ago my brain would have melted seeing aliens, but at this point if aliens showed up Id probably shrug and turn the news off. - Bosticles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
+<span style="font-size:4em">14. Celebrities could start giving their babies plastic surgery and I wouldn’t be surprised - GothTwinkie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
+<span style="font-size:4em">15. First contact with alien life. I will be so embarrassed if the place is a mess when they arrive. - Clone_Meat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
+<span style="font-size:4em">16. Considering how much more powerful James Webb is, I wouldnt be surprised if it were to locate other planets exhibiting signs of life. - metrogenics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
+<span style="font-size:4em">17. Presidential election, The Rock vs Kid Rock - cha-do</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
+<span style="font-size:4em">18. Real life godzilla - Cosmic_Hitchhiker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
+<span style="font-size:4em">19. Ww4. Were just gonna skip right to it. - glorified_throwaway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
+<span style="font-size:4em">20. there is a giant rock headed towards earth - JesusChristSuperDerp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Somehow, Bin Laden Returned - BoBatFettman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Winds of winter is actually published????? - jjc157</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The moon just fucking disappearing one day. Pitch black nights from now on and no sign of where it ever went, just flung off into space somewhere and gone forever. - Philodendritic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. We all find out that we are just some alien kid’s 7th grade science project. - Actuaryba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Geomagnetic pole reversal. Its a completely natural phenomenon and wouldnt obliterate life on earth or anything, but the world would be somewhat f&cked for a while until the poles settled. Given how the pandemic has gone, though, I dont think humanity would handle the transition very well. - AccessibleBeige</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224975.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -143,126 +153,7 @@ Last updated: 08/03/2022-17:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">15 Interesting Facts about Kirsten Dunst</a><br>
-
-<span style="font-size:4em">1. Brad Pitt once tried to buy himself out of the movie ‘Interview with the Vampire’. Upon hearing about the 40M$ exit clause, he shot the movie. It went on to receive 2 Oscar nominations and launched Kirsten Dunst’s career. - u/rock_rahul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Kirsten Dunst (Mary Jane Watson) is the little girl in Jumanji. - u/Mato_Jack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In the movie An Interview With a Vampire, Kirsten Dunst was only 11 and had her first kiss ever with Brad Pitt, who was 31 at the time. - u/Delanorix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Kirsten Dunst gets a coconut cake from Tom Cruise every year for Christmas. - u/mybunsarestale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Kirsten Dunst voiced Kiki in the American dub of Kikis Delivery Service and it is her highest rated movie at 100%. - u/mmmasian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. That Bradley Pierce, Kirsten Dunsts characters brother in Jumanji, was also one of the original voices of Miles from Sonic the Hedgehog. - u/AngryGuitarist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In the famous upside down kiss scene from Sam Raimis Spider-man (2002) Tobey Maguire almost drowned. The large droplets of water kept running into his upside down nose and he couldnt breathe through his mouth because it was in Kirsten Dunsts mouth. - 
-u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. John Hughes originally bought the rights to adapt The Perks of Being a Wallflower into a film, potentially starring Shia LeBeouf and Kirsten Dunst. - u/pie_is_tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Kirsten Dunst was in the 1994 movie Interview with the Vampire: The Vampire Chronicles, playing the role of Claudia. - u/ShEsHy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Kirsten Dunst has a German passport. - u/WaltherRathenau</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Kristen Dunst did a cover of turning japanese, https://www.youtube.com/watch?v=C0X3CLJVMJU - u/TheForeverAloneOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When Spider-man came out in 2002, Kirsten Dunst wasnt even old enough to drink. - u/Colemanowitz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Joshua Jackson and Kirsten Dunst starred in a 1997 Outer Limits about space music that evolved humans into golden creatures resistant to UV radiation. - u/AP_Esq</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Kristen Dunst and Jesse Lon Plemons were married in July 2022.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216070.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky6" id="linky5">20 Concerning Comments and Clap-Backs</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044035/87227961/responses3.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044036/87227962/responses2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044049/87227963/responses1.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044102/87227964/responses4.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044113/87227965/responses5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044127/87227966/responses7.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044154/87227969/responses9.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044208/87227970/responses10.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044222/87227971/responses11.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044237/87227972/responses12.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044250/87227973/responses13.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/050729/87227977/responses8.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051248/87227979/reload2.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051304/87227980/reload3.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051318/87227981/reload4.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051329/87227982/reload5.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051333/87227983/reload6.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051342/87227984/reload7.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051346/87227985/reload8.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051633/87227986/reload1.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">20 Photos with Impeccable Placement</a><br>
+## <a href="#linky5" id="linky4">20 Photos with Impeccable Placement</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227943.jpg" style="width:100%"><br>
 
@@ -306,187 +197,47 @@ u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">33 Funny Photos to Induce Laughter Immediately</a><br>
+## <a href="#linky6" id="linky5">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227873.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227874.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227875.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227876.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227877.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227878.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227879.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227880.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227881.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227882.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227883.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227884.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227885.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227886.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227887.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227888.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227889.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227896.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227905.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">43 Memes That Speak The Truth</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224640.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky11" id="linky10">Donald Trump Looks Busted As Hell</a><br>
-
-<span style="font-size:4em">1. Mmm. Sweaty.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122443/87227829/cart.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122516/87227833/smile.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122447/87227830/dump.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Mullet?</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122505/87227832/face.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122537/87227835/stand.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122527/87227834/sweat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. We were inspired by the most recent pics to revisit an absolute classic. Just look at that immaculate...form.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122540/87227836/tennis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. And last but not least, Trump throwing an absolute rocket? Honestly were not sure what hes doing but the face is brilliant.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122454/87227831/ball.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky12" id="linky11">50 Nifty Photos to Help Pass the Time</a><br>
+## <a href="#linky7" id="linky6">50 Nifty Photos to Help Pass the Time</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87227505.jpg" style="width:100%"><br>
 
@@ -587,6 +338,289 @@ u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87227553.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87227554.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">33 Funny Photos to Induce Laughter Immediately</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227905.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky9" id="linky8">15 Interesting Facts about Kirsten Dunst</a><br>
+
+<span style="font-size:4em">1. Brad Pitt once tried to buy himself out of the movie ‘Interview with the Vampire’. Upon hearing about the 40M$ exit clause, he shot the movie. It went on to receive 2 Oscar nominations and launched Kirsten Dunst’s career. - u/rock_rahul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Kirsten Dunst (Mary Jane Watson) is the little girl in Jumanji. - u/Mato_Jack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In the movie An Interview With a Vampire, Kirsten Dunst was only 11 and had her first kiss ever with Brad Pitt, who was 31 at the time. - u/Delanorix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Kirsten Dunst gets a coconut cake from Tom Cruise every year for Christmas. - u/mybunsarestale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Kirsten Dunst voiced Kiki in the American dub of Kikis Delivery Service and it is her highest rated movie at 100%. - u/mmmasian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. That Bradley Pierce, Kirsten Dunsts characters brother in Jumanji, was also one of the original voices of Miles from Sonic the Hedgehog. - u/AngryGuitarist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the famous upside down kiss scene from Sam Raimis Spider-man (2002) Tobey Maguire almost drowned. The large droplets of water kept running into his upside down nose and he couldnt breathe through his mouth because it was in Kirsten Dunsts mouth. - 
+u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. John Hughes originally bought the rights to adapt The Perks of Being a Wallflower into a film, potentially starring Shia LeBeouf and Kirsten Dunst. - u/pie_is_tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Kirsten Dunst was in the 1994 movie Interview with the Vampire: The Vampire Chronicles, playing the role of Claudia. - u/ShEsHy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Kirsten Dunst has a German passport. - u/WaltherRathenau</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Kristen Dunst did a cover of turning japanese, https://www.youtube.com/watch?v=C0X3CLJVMJU - u/TheForeverAloneOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When Spider-man came out in 2002, Kirsten Dunst wasnt even old enough to drink. - u/Colemanowitz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Joshua Jackson and Kirsten Dunst starred in a 1997 Outer Limits about space music that evolved humans into golden creatures resistant to UV radiation. - u/AP_Esq</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Kristen Dunst and Jesse Lon Plemons were married in July 2022.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216070.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky10" id="linky9">20 Concerning Comments and Clap-Backs</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044035/87227961/responses3.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044036/87227962/responses2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044049/87227963/responses1.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044102/87227964/responses4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044113/87227965/responses5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044127/87227966/responses7.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044154/87227969/responses9.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044208/87227970/responses10.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044222/87227971/responses11.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044237/87227972/responses12.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044250/87227973/responses13.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/050729/87227977/responses8.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051248/87227979/reload2.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051304/87227980/reload3.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051318/87227981/reload4.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051329/87227982/reload5.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051333/87227983/reload6.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051342/87227984/reload7.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051346/87227985/reload8.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/051633/87227986/reload1.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky11" id="linky10">43 Memes That Speak The Truth</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224640.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky12" id="linky11">20 Different Foods with Threatening Auras</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
