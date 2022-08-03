@@ -1,5 +1,5 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/03/2022-04:47:23
+Last updated: 08/03/2022-05:47:23
 <br>
 ## <a href="#linky2" id="linky1">50 Nifty Photos to Help Pass the Time</a><br>
 
@@ -105,57 +105,7 @@ Last updated: 08/03/2022-04:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky3" id="linky2">23 Guys Who Aren't Really That Tough</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114837/87227372/sotough-fixed.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114914/87227375/sotough2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114927/87227376/sotough3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114941/87227377/sotough4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114954/87227378/sotough5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114959/87227379/sotough6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115007/87227380/sotough7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115012/87227381/sotough8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115020/87227382/sotough9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115033/87227383/sotough10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115046/87227385/sotough12.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115059/87227386/sotough13.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/121855/87227395/sotough11.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/100418/87227740/sotough1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/100452/87227741/sotough14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101249/87227746/tryagain1.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101301/87227747/tryagain3.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101329/87227749/tryagain6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101332/87227750/tryagain5.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101341/87227751/tryagain7.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101344/87227752/tryagain8.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101353/87227753/tryagain9.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102623/87227767/tryagain4.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky4" id="linky3">Donald Trump Looks Busted As Hell</a><br>
+## <a href="#linky3" id="linky2">Donald Trump Looks Busted As Hell</a><br>
 
 <span style="font-size:4em">1. Mmm. Sweaty.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122443/87227829/cart.jpg" style="width:100%"><br>
 
@@ -175,48 +125,87 @@ Last updated: 08/03/2022-04:47:23
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Facts about Former President Donald Trump</a><br>
+## <a href="#linky4" id="linky3">20 Different Foods with Threatening Auras</a><br>
 
-<span style="font-size:4em">1. Donald Trump allowed transgender women who were born male to compete in the Miss Universe pageant, in respect to the laws of Canada. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224818.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Donald Trump once tried to trademark the phrase Youre Fired. - u/DwamSun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224819.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In 1989 Donald Trump made a board game. It was essentially a knock off of monopoly and every bank note had his face on it. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224820.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. That Donald Trump doesnt usually shake peoples hands due to borderline obsessive-compulsive disorder that causes him to fear germs. - u/redAllAboutIt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224821.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Donald Trump fired Khloe Kardashian on Celebrity Apprentice, not for be a sh*t entrepreneur but, but because of a DUI which she had incurred over a year ago. - u/Dusty_Star</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224823.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Deutsche Bank once valued Donald Trumps net worth at $788 million and Trump objected. - 
-u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224824.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Donald Trump tried to sue an author for $5,000,000,000 (yes, billion). Reason? The author called him a millionaire instead of a billionaire. - u/dudecof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224812.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Donald Trumps companies have filed for bankruptcy four different times. - u/ctyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224825.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. When Donald Trumps casino was failing, his father loaned it $3.5 million by purchasing chips with no intention of gambling with them. - u/jstohler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224826.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Spy Magazine sent 13-cent checks to some of the worlds richest people to see who would cash them. The only two people to do so were an arms dealer and Donald Trump. - u/mike_pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224807.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. That in 1999 Donald Trump proposed a one-time wealth tax of 14.25% on individuals worth $10 million or more. Trump claimed that this would generate $5.7 trillion in new taxes, which could be used to eliminate the national debt. - u/jamestown112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224808.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Donald Trumps campaign was being run by The Bomb Thrower Corey Lewandowski, whos strategy has always been to create controversy and then use the media frenzy to boost his clients profile. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224809.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. New Jersey once tried to use eminent domain on an elderly womans home and transfer it to Donald Trump so that he could build a limousine parking lot there. They later lost in court. - u/SharkNATO</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224810.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Donald Trump is among the least charitable billionaires in the world, donating $3.7 million to his own charity over the span of 20 years (less than the WWE donated to Trumps charity in 2007 alone). - u/86_crazy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224811.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. In 1990 Donald Trump threatened to sue the stock broker firm Janney Montgomery Scott after an analyst made negative comments regarding the financial prospects of the Taj Mahal. The analyst was fired, refusing to withdraw the statement. The Taj Mahal declared bankruptcy later that same year. - u/TheOED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224813.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. While making Home Alone 2 in 1992, the film crew removed the wall to wall carpeting in the Plaza Hotels lobby, exposing the mosaic on the original tiles. Donald Trump loved the mosaics and insisted it remain that way until renovation in 2005. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224822.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. In 2012 Donald Trump ordered a boycott against Glenfiddich scotch, since the whiskey company financially backs the Top Scot award, given that year to Michael Forbes, who was chosen for refusing to vacate his land to make way for Trumps planned golf course. - u/dabunbun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224814.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. Donald Trump tried to stop the building of an offshore wind-farm in Scotland because it would ruin the view of his golf course. - u/reddripper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224815.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. That Fred Trump, the father of Donald Trump, was best known as one of a small number of major builders of middle class housing in New York after WWII. His estate at his time of death was estimated at up to $300 million, but he did not believe in displays of wealth. - u/HAL9000000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224816.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Donald Trump was a registered Democrat from 2001 to 2009. - u/doug3465</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224817.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -290,47 +279,51 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky7" id="linky6">20 Different Foods with Threatening Auras</a><br>
+## <a href="#linky7" id="linky6">22 Funny Memes to Activate Your Laughter Functions </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. This dude is a legend and his story will be told for thousands of years to come. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222705.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Yeah, sorry babe, you dont get to blame your shitty personality on the month you were born in. It doesnt work like that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222706.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222707.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
+<span style="font-size:4em">4. Are you brave enough?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222709.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222710.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222711.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
+<span style="font-size:4em">7. Its true kid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222712.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222713.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I shouldnt have laughed as hard as I did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222708.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222714.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222716.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222717.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222718.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
+<span style="font-size:4em">14. If you know you know. And if you dont then you had a spoiled childhood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222715.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222719.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222720.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222721.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222722.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222723.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222726.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -424,109 +417,111 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky9" id="linky8">31 Hot Takes From Twitter </a><br>
+## <a href="#linky9" id="linky8">23 Guys Who Aren't Really That Tough</a><br>
 
-<span style="font-size:4em">1. This tweet is both hilarious and painful. But mostly its hilariously painful.  Good sometimes the truth does hurt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219974.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114837/87227372/sotough-fixed.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I am alien. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219970.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114914/87227375/sotough2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Times are changing old man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219971.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114927/87227376/sotough3.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. No more texting women yall, they are nasty. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219972.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114941/87227377/sotough4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219973.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114954/87227378/sotough5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. We cant take anymore of this crap. Time needs to stop now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219975.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/114959/87227379/sotough6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219976.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115007/87227380/sotough7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. This is what I need in my life, a feral housewife. Picture this, you come home from work, and the wife is out in the woods. You whistle and she comes carrying a mouthful of fish and berries. You bathe her as she makes you dinner. Life is good. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219977.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115012/87227381/sotough8.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219978.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115020/87227382/sotough9.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219979.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115033/87227383/sotough10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219980.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115046/87227385/sotough12.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219981.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/115059/87227386/sotough13.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219982.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/121855/87227395/sotough11.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219983.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/100418/87227740/sotough1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219984.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/100452/87227741/sotough14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219985.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101249/87227746/tryagain1.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219986.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101301/87227747/tryagain3.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219987.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101329/87227749/tryagain6.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219988.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101332/87227750/tryagain5.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219989.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101341/87227751/tryagain7.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219990.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101344/87227752/tryagain8.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219991.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101353/87227753/tryagain9.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219993.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219994.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219996.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219997.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87219999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87220000.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102623/87227767/tryagain4.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky10" id="linky9">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
+## <a href="#linky10" id="linky9">27 Wild And Weird Reasons People Got Fired</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
+<span style="font-size:4em">1. Guy stole a ton of money from our workplace. We worked at a gas station and he would incorrectly count the money in the till and pocket the rest. Also would delete security footage off the computer. Took a long time for them to figure out it was him. There was a warrant out for his arrest after and Im not sure what happened after that. Whats crazy is he was always super nice and you would never suspect him of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
+<span style="font-size:4em">2. I used to work with a super nice old man who had been at that company for 30 years, and he was getting to retire at the end of 2016.He was 5 minutes late one day because he tripped and hurt his shin. He got fired.The story had a happy ending though. He sued the pants off the company, won a s**t ton of money and got a lot of the corrupt upper management fired, including the CFO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
+<span style="font-size:4em">3. A husband and wife both worked in the same building. The security guys notice some shenanigans going on in their car in the parking lot of the course of several days.HR gets a call, reviews the tape, and sure enough, theyre having sexy time in the parking lot after lunch.HR calls them in and basically says, hey, you guys, this is no big deal, but could you guys not have sex in the parking lot? Somebody might see, and that would be bad.The husband acts bewildered, and claims he doesnt know what HR is talking about, so they go to the tape. Sure enough, its the wife and *her supervisor* going to town in the couples car.The husband goes nuts, and demands that heads roll. Wife and her supervisor are fired that day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
+<span style="font-size:4em">4. For having a criminal record. From a crime he committed 30 years ago. He was 50, had a rough childhood and had just managed to get his life back together. He had worked for this company for close to two year and was by far the hardest worker in that factory, he would output at least twice as much product per day as the next best person. He took time off to get married and regional management enacted a blanket rule and the branch management said nothing. I learned a hard lesson that day, companies have no loyalty towards their employees.He went on to work for their competitors two blocks away and was given a pay rise so at least it worked out ok for him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
+<span style="font-size:4em">5. Guy was fired for stealing from the register. We were all surprised since he was well liked, and a hard worker. Few months later I was helping the manager clean behind the cash wrap. When we got to the register that employee used most often and popped out the cash drawer we found a handful of 20s behind it. Turned out that bills were getting caught and dragged behind the till.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
+<span style="font-size:4em">6. This guy at my old job had a crush on another one of our coworkers. It was really obvious, and as time went on it got more and more intense and uncomfortable. It got to the point where she started having panic attacks at work whenever they were on shift together, so she approached management and asked if she could not be rostered on with him anymore. Management agreed and everything was fine for a while.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
+<span style="font-size:4em"> The guy was a little depressed because he mysteriously never got to work with his crush anymore, but we thought it was good for him because he seemed to have dialed it back a bit and wasnt so obsessive. Unfortunately, we were wrong, because when it somehow got back to him that she had requested to not work with him anymore he went f*****g crazy. He made a fake Instagram account in her name, adding all her coworkers and stealing pictures from her Facebook, and uploading them with awful captions that contained super racist and f****d up s**t-shaming language. It was so awful. Then he posted a picture of the CEO of the company and wrote a long, insulting, ranting caption, tagged said CEO, as well as a bunch of people from upper and middle management. Happily, no one ever for one second thought it was a real Instagram account as it was so obviously a revenge-driven smear campaign. The main suspect was also pretty obvious. He was very quickly fired, and also banned from ever coming into the building again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
+<span style="font-size:4em">7. I worked at a phone store. When I was hired they very clearly stated that client privacy is super important. a guy who was hired had been fired on the spot because he had sold a contract to a client, thought the girl was pretty and later that evening called her to ask her out. Id say thats such a massive breach of privacy he deserved to get fired over it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
+<span style="font-size:4em">8. Many years ago, when I was working at a Wall Street bank...Dude got drunk at the office Christmas party, and knocked one of his female coworkers out cold. He had no memory of this. Monday AM he calls security because his badge doesnt work. They come down with a box containing his personal items, and hand it to him with a letter from legal stating that hell be arrested if he ever shows up on their premises again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
+<span style="font-size:4em">9. Our cart dude was a racist a*****e who always tried to provoke (usually random) people into fighting him. Hed accidentally knock displays over and then say I aint cleanin that up. and walk away.Management tried to fire him several times but, for whatever reason, the Union always stepped in to protect him. He was *finally* fired and escorted off the premises after he threatened to kill the floral manager because she complained that he was bothering her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
+<span style="font-size:4em">10. Im a Director at a zoo here.More people than you might think (mostly interns and one or two full-time hires) have been fired for being unable or unwilling to deal with the stench/foulness of the job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
+<span style="font-size:4em">11. Okay this is going to sound crazy but it JUST happened to me like an hour or two ago.Im training with a work at home call center right now and we use a zoom like program to communicate and like we typically mute our mics when were not actively talking. So we are in kind of a just back from break lul before we got started and someone forgot to remute thier mic and like we could hear her talking to her husband (which is a nono because youre technically supposed to be in a room alone because credit info)So we hear them talking and were like Yoooo mic check.And then she said it yall.She said the n word. Not with a soft a, it was a hard r. A really hard r.She was fired by the end of the hour.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
+<span style="font-size:4em">12. We had the new-years party (alcohol involved) and a guy started hitting on a big boss HR, who came to visit our country from the headquarters during that period of time. She tactically rejected him, but he started talking s**t about her and.. wait for it...then he  threatened her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
+<span style="font-size:4em">13. Guy at a big retailer drank a bottle of wine in his car during his break and then returned to work. He got the wine sleepies, and decided it was a good idea to nap in one of the display beds in the furniture dept. that probably would have been bad enough, but the thing is…. Nobody noticed him there. Security locked and armed the building and everyone went home. Fast forward to 3am and the alarms are going off and security was called in for an intruder. He had woken up and started wandering through the store. Security and cops just let him leave. Fast forward again until 8am and I (then the loss prevention manager) get called upstairs because the managers found a pair of shoes at the foot of a slept in bed. Which was also soaked through with urine. $4k in damages and the most awkward conversation later, he denied being drunk and almost got to keep his job on a technicality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
+<span style="font-size:4em">14. Mechanic of 32 years got fired for disabling the RF entry card readers on the back side of the warehouse, so he could throw parties in it after warehouse hours, nobody batted an eye until they mistakenly invited the plant manager to it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
+<span style="font-size:4em">15. Sleeping on the job.The kicker is, he was doing it every day, but nobody important noticed. But then they talked about his performance and how he needed to get more done, he said that he cant, cause he needed his mid day nap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
+<span style="font-size:4em">16. The person was lying about doing their job. When we go to locations we have to get the signature of the person in charge on logs and submit them daily. Apparently this person was just walking into places, getting the signature of some random employee or just putting fake names, then immediately walked out without doing the job. They would hang out in their vehicle (work cars have GPS trackers) for the amount of time they said they were there on the inspection and repeat. Got away with it for months.Only way anyone found out was one of the places called called complaining they hadnt gotten an inspection all year. Supervisors pulled logs and went to the places and verified that the person had not done any of their work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
+<span style="font-size:4em">17. One woman got long covid and a note from her doctor saying she couldnt come into the office for some respiratory sensitivity thing (we have all worked from home for two years and are now coming back full time). Bosses said she had to come in. They cant fire her for being sick, so they wrote her up for insubordination because she was using too much bold font in her emails and it came across as rude. They are now firing her because she has a record of insubordination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. He was in bad financial straits, and had debt collectors harassing him at work. We had a department-shared phone line, so about five or six of us would randomly get calls intended for him.He got fired because we couldnt get work done under those circumstances. But you know, he couldnt pay back his debts if he was harassed out of his paycheck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. She had head lice so bad they were laying eggs in her hair and inside her eye sockets. She refused to stay home and get medical attention and eventually had to be terminated because she kept coming to work and causing the rest of the line to be quarantined and tested, disrupting production on 4 different occasions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. dude at work was a known theif, just hadnt been caught by the supervisors. one day hes walking out with some zipties sticking out of his lunch box and an engineer walking by asked if he paid for those, dude said no. then engineer brought it up to his supervisor in a meeting and they fired the theif right then.it was fantastic. dude lost a damn good $30+ hr welding job, with all the benefits, over $10 worth of zipties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. A clients wife made a scene that one of our receptionists was sending her husband nudes. She came with printouts. Was fired that day. Ive never seen a woman so hell-bent on destroying another.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. She couldnt count. She was a cashier.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Waked in on a guy chugging from a fifth of Smirnoff in the break room at the movie theater we worked at. He told me he had drank a bit more than half of it. I didn’t rat on him but I didn’t really have to after he vomited in the concession booth…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Social worker here.....one lady was fired for falsifying case notes.....said she was pre-documenting her work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Neighbor’s babysitter got fired because she left the kids (3 kids under 10) alone in the house when she was scheduled to leave. Apparently she thought the Dad was still upstairs and she got paid weekly so she didn’t have any reason to talk to him after she had put all the kids to bed. But Dad had left and the Mom was late coming home. The Mom about had a heart attack. I could hear her yelling from my house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Back when I was 21, I got fired from the green apron coffee company because I was drinking during the overnight shifts when we were drive thru only. Fairs fair.From my current company, Ive seen two people fired for six-figure overruns on projects. One was due to the person not really understanding any of the technical details of what they were managing, but theyd gotten by for years on having really good technical staff underneath them so they only had to do admin. The other was supposedly a senior subject matter expert but burned through over $100k of project budget to fill in a 3-tab worksheet that should have taken 2 weeks tops... and none of it was even correct.In both cases there were some obvious issues with higher up leadership as well that let those situations get to that point, but no one came out a winner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226197.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -574,51 +569,48 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">22 Funny Memes to Activate Your Laughter Functions </a><br>
+## <a href="#linky12" id="linky11">20 Facts about Former President Donald Trump</a><br>
 
-<span style="font-size:4em">1. This dude is a legend and his story will be told for thousands of years to come. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222705.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Donald Trump allowed transgender women who were born male to compete in the Miss Universe pageant, in respect to the laws of Canada. - u/veryawesomeguy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Yeah, sorry babe, you dont get to blame your shitty personality on the month you were born in. It doesnt work like that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222706.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Donald Trump once tried to trademark the phrase Youre Fired. - u/DwamSun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222707.png" style="width:100%"><br>
+<span style="font-size:4em">3. In 1989 Donald Trump made a board game. It was essentially a knock off of monopoly and every bank note had his face on it. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Are you brave enough?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222709.png" style="width:100%"><br>
+<span style="font-size:4em">4. That Donald Trump doesnt usually shake peoples hands due to borderline obsessive-compulsive disorder that causes him to fear germs. - u/redAllAboutIt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222710.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Donald Trump fired Khloe Kardashian on Celebrity Apprentice, not for be a sh*t entrepreneur but, but because of a DUI which she had incurred over a year ago. - u/Dusty_Star</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222711.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Deutsche Bank once valued Donald Trumps net worth at $788 million and Trump objected. - 
+u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Its true kid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222712.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Donald Trump tried to sue an author for $5,000,000,000 (yes, billion). Reason? The author called him a millionaire instead of a billionaire. - u/dudecof</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222713.png" style="width:100%"><br>
+<span style="font-size:4em">8. Donald Trumps companies have filed for bankruptcy four different times. - u/ctyne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I shouldnt have laughed as hard as I did. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222708.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. When Donald Trumps casino was failing, his father loaned it $3.5 million by purchasing chips with no intention of gambling with them. - u/jstohler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222714.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. Spy Magazine sent 13-cent checks to some of the worlds richest people to see who would cash them. The only two people to do so were an arms dealer and Donald Trump. - u/mike_pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222716.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. That in 1999 Donald Trump proposed a one-time wealth tax of 14.25% on individuals worth $10 million or more. Trump claimed that this would generate $5.7 trillion in new taxes, which could be used to eliminate the national debt. - u/jamestown112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222717.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Donald Trumps campaign was being run by The Bomb Thrower Corey Lewandowski, whos strategy has always been to create controversy and then use the media frenzy to boost his clients profile. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222718.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. New Jersey once tried to use eminent domain on an elderly womans home and transfer it to Donald Trump so that he could build a limousine parking lot there. They later lost in court. - u/SharkNATO</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. If you know you know. And if you dont then you had a spoiled childhood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222715.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Donald Trump is among the least charitable billionaires in the world, donating $3.7 million to his own charity over the span of 20 years (less than the WWE donated to Trumps charity in 2007 alone). - u/86_crazy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222719.png" style="width:100%"><br>
+<span style="font-size:4em">15. In 1990 Donald Trump threatened to sue the stock broker firm Janney Montgomery Scott after an analyst made negative comments regarding the financial prospects of the Taj Mahal. The analyst was fired, refusing to withdraw the statement. The Taj Mahal declared bankruptcy later that same year. - u/TheOED</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222720.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. While making Home Alone 2 in 1992, the film crew removed the wall to wall carpeting in the Plaza Hotels lobby, exposing the mosaic on the original tiles. Donald Trump loved the mosaics and insisted it remain that way until renovation in 2005. u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222721.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. In 2012 Donald Trump ordered a boycott against Glenfiddich scotch, since the whiskey company financially backs the Top Scot award, given that year to Michael Forbes, who was chosen for refusing to vacate his land to make way for Trumps planned golf course. - u/dabunbun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222722.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Donald Trump tried to stop the building of an offshore wind-farm in Scotland because it would ruin the view of his golf course. - u/reddripper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222723.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. That Fred Trump, the father of Donald Trump, was best known as one of a small number of major builders of middle class housing in New York after WWII. His estate at his time of death was estimated at up to $300 million, but he did not believe in displays of wealth. - u/HAL9000000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87222726.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Donald Trump was a registered Democrat from 2001 to 2009. - u/doug3465</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224817.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -725,64 +717,6 @@ u/NonAmerican</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 <span style="font-size:4em">25. The face of Mother Teresa was claimed to have been identified in a cinnamon bun at Bongo Java in Nashville, Tennessee in 1996. Dubbed the Nun Bun by the press, it was turned into an enterprise by the company. On 25 December 2005 the bun was stolen during a break-in at the coffee house.
 
 -u/garamond89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223720.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">27 Wild And Weird Reasons People Got Fired</a><br>
-
-<span style="font-size:4em">1. Guy stole a ton of money from our workplace. We worked at a gas station and he would incorrectly count the money in the till and pocket the rest. Also would delete security footage off the computer. Took a long time for them to figure out it was him. There was a warrant out for his arrest after and Im not sure what happened after that. Whats crazy is he was always super nice and you would never suspect him of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I used to work with a super nice old man who had been at that company for 30 years, and he was getting to retire at the end of 2016.He was 5 minutes late one day because he tripped and hurt his shin. He got fired.The story had a happy ending though. He sued the pants off the company, won a s**t ton of money and got a lot of the corrupt upper management fired, including the CFO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A husband and wife both worked in the same building. The security guys notice some shenanigans going on in their car in the parking lot of the course of several days.HR gets a call, reviews the tape, and sure enough, theyre having sexy time in the parking lot after lunch.HR calls them in and basically says, hey, you guys, this is no big deal, but could you guys not have sex in the parking lot? Somebody might see, and that would be bad.The husband acts bewildered, and claims he doesnt know what HR is talking about, so they go to the tape. Sure enough, its the wife and *her supervisor* going to town in the couples car.The husband goes nuts, and demands that heads roll. Wife and her supervisor are fired that day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. For having a criminal record. From a crime he committed 30 years ago. He was 50, had a rough childhood and had just managed to get his life back together. He had worked for this company for close to two year and was by far the hardest worker in that factory, he would output at least twice as much product per day as the next best person. He took time off to get married and regional management enacted a blanket rule and the branch management said nothing. I learned a hard lesson that day, companies have no loyalty towards their employees.He went on to work for their competitors two blocks away and was given a pay rise so at least it worked out ok for him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Guy was fired for stealing from the register. We were all surprised since he was well liked, and a hard worker. Few months later I was helping the manager clean behind the cash wrap. When we got to the register that employee used most often and popped out the cash drawer we found a handful of 20s behind it. Turned out that bills were getting caught and dragged behind the till.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This guy at my old job had a crush on another one of our coworkers. It was really obvious, and as time went on it got more and more intense and uncomfortable. It got to the point where she started having panic attacks at work whenever they were on shift together, so she approached management and asked if she could not be rostered on with him anymore. Management agreed and everything was fine for a while.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> The guy was a little depressed because he mysteriously never got to work with his crush anymore, but we thought it was good for him because he seemed to have dialed it back a bit and wasnt so obsessive. Unfortunately, we were wrong, because when it somehow got back to him that she had requested to not work with him anymore he went f*****g crazy. He made a fake Instagram account in her name, adding all her coworkers and stealing pictures from her Facebook, and uploading them with awful captions that contained super racist and f****d up s**t-shaming language. It was so awful. Then he posted a picture of the CEO of the company and wrote a long, insulting, ranting caption, tagged said CEO, as well as a bunch of people from upper and middle management. Happily, no one ever for one second thought it was a real Instagram account as it was so obviously a revenge-driven smear campaign. The main suspect was also pretty obvious. He was very quickly fired, and also banned from ever coming into the building again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I worked at a phone store. When I was hired they very clearly stated that client privacy is super important. a guy who was hired had been fired on the spot because he had sold a contract to a client, thought the girl was pretty and later that evening called her to ask her out. Id say thats such a massive breach of privacy he deserved to get fired over it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Many years ago, when I was working at a Wall Street bank...Dude got drunk at the office Christmas party, and knocked one of his female coworkers out cold. He had no memory of this. Monday AM he calls security because his badge doesnt work. They come down with a box containing his personal items, and hand it to him with a letter from legal stating that hell be arrested if he ever shows up on their premises again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Our cart dude was a racist a*****e who always tried to provoke (usually random) people into fighting him. Hed accidentally knock displays over and then say I aint cleanin that up. and walk away.Management tried to fire him several times but, for whatever reason, the Union always stepped in to protect him. He was *finally* fired and escorted off the premises after he threatened to kill the floral manager because she complained that he was bothering her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Im a Director at a zoo here.More people than you might think (mostly interns and one or two full-time hires) have been fired for being unable or unwilling to deal with the stench/foulness of the job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Okay this is going to sound crazy but it JUST happened to me like an hour or two ago.Im training with a work at home call center right now and we use a zoom like program to communicate and like we typically mute our mics when were not actively talking. So we are in kind of a just back from break lul before we got started and someone forgot to remute thier mic and like we could hear her talking to her husband (which is a nono because youre technically supposed to be in a room alone because credit info)So we hear them talking and were like Yoooo mic check.And then she said it yall.She said the n word. Not with a soft a, it was a hard r. A really hard r.She was fired by the end of the hour.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. We had the new-years party (alcohol involved) and a guy started hitting on a big boss HR, who came to visit our country from the headquarters during that period of time. She tactically rejected him, but he started talking s**t about her and.. wait for it...then he  threatened her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Guy at a big retailer drank a bottle of wine in his car during his break and then returned to work. He got the wine sleepies, and decided it was a good idea to nap in one of the display beds in the furniture dept. that probably would have been bad enough, but the thing is…. Nobody noticed him there. Security locked and armed the building and everyone went home. Fast forward to 3am and the alarms are going off and security was called in for an intruder. He had woken up and started wandering through the store. Security and cops just let him leave. Fast forward again until 8am and I (then the loss prevention manager) get called upstairs because the managers found a pair of shoes at the foot of a slept in bed. Which was also soaked through with urine. $4k in damages and the most awkward conversation later, he denied being drunk and almost got to keep his job on a technicality.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Mechanic of 32 years got fired for disabling the RF entry card readers on the back side of the warehouse, so he could throw parties in it after warehouse hours, nobody batted an eye until they mistakenly invited the plant manager to it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Sleeping on the job.The kicker is, he was doing it every day, but nobody important noticed. But then they talked about his performance and how he needed to get more done, he said that he cant, cause he needed his mid day nap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The person was lying about doing their job. When we go to locations we have to get the signature of the person in charge on logs and submit them daily. Apparently this person was just walking into places, getting the signature of some random employee or just putting fake names, then immediately walked out without doing the job. They would hang out in their vehicle (work cars have GPS trackers) for the amount of time they said they were there on the inspection and repeat. Got away with it for months.Only way anyone found out was one of the places called called complaining they hadnt gotten an inspection all year. Supervisors pulled logs and went to the places and verified that the person had not done any of their work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. One woman got long covid and a note from her doctor saying she couldnt come into the office for some respiratory sensitivity thing (we have all worked from home for two years and are now coming back full time). Bosses said she had to come in. They cant fire her for being sick, so they wrote her up for insubordination because she was using too much bold font in her emails and it came across as rude. They are now firing her because she has a record of insubordination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. He was in bad financial straits, and had debt collectors harassing him at work. We had a department-shared phone line, so about five or six of us would randomly get calls intended for him.He got fired because we couldnt get work done under those circumstances. But you know, he couldnt pay back his debts if he was harassed out of his paycheck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. She had head lice so bad they were laying eggs in her hair and inside her eye sockets. She refused to stay home and get medical attention and eventually had to be terminated because she kept coming to work and causing the rest of the line to be quarantined and tested, disrupting production on 4 different occasions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. dude at work was a known theif, just hadnt been caught by the supervisors. one day hes walking out with some zipties sticking out of his lunch box and an engineer walking by asked if he paid for those, dude said no. then engineer brought it up to his supervisor in a meeting and they fired the theif right then.it was fantastic. dude lost a damn good $30+ hr welding job, with all the benefits, over $10 worth of zipties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. A clients wife made a scene that one of our receptionists was sending her husband nudes. She came with printouts. Was fired that day. Ive never seen a woman so hell-bent on destroying another.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. She couldnt count. She was a cashier.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Waked in on a guy chugging from a fifth of Smirnoff in the break room at the movie theater we worked at. He told me he had drank a bit more than half of it. I didn’t rat on him but I didn’t really have to after he vomited in the concession booth…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Social worker here.....one lady was fired for falsifying case notes.....said she was pre-documenting her work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Neighbor’s babysitter got fired because she left the kids (3 kids under 10) alone in the house when she was scheduled to leave. Apparently she thought the Dad was still upstairs and she got paid weekly so she didn’t have any reason to talk to him after she had put all the kids to bed. But Dad had left and the Mom was late coming home. The Mom about had a heart attack. I could hear her yelling from my house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Back when I was 21, I got fired from the green apron coffee company because I was drinking during the overnight shifts when we were drive thru only. Fairs fair.From my current company, Ive seen two people fired for six-figure overruns on projects. One was due to the person not really understanding any of the technical details of what they were managing, but theyd gotten by for years on having really good technical staff underneath them so they only had to do admin. The other was supposedly a senior subject matter expert but burned through over $100k of project budget to fill in a 3-tab worksheet that should have taken 2 weeks tops... and none of it was even correct.In both cases there were some obvious issues with higher up leadership as well that let those situations get to that point, but no one came out a winner.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226197.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
