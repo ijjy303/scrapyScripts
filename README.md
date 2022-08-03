@@ -1,38 +1,47 @@
 # All ur Memes R belog to Uz<br>
-Last updated: 08/03/2022-16:47:23
+Last updated: 08/03/2022-17:47:23
 <br>
-## <a href="#linky2" id="linky1">15 Interesting Facts about Kirsten Dunst</a><br>
+## <a href="#linky2" id="linky1">20 Different Foods with Threatening Auras</a><br>
 
-<span style="font-size:4em">1. Brad Pitt once tried to buy himself out of the movie ‘Interview with the Vampire’. Upon hearing about the 40M$ exit clause, he shot the movie. It went on to receive 2 Oscar nominations and launched Kirsten Dunst’s career. - u/rock_rahul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216056.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Kirsten Dunst (Mary Jane Watson) is the little girl in Jumanji. - u/Mato_Jack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216057.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In the movie An Interview With a Vampire, Kirsten Dunst was only 11 and had her first kiss ever with Brad Pitt, who was 31 at the time. - u/Delanorix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216059.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Kirsten Dunst gets a coconut cake from Tom Cruise every year for Christmas. - u/mybunsarestale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216060.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Kirsten Dunst voiced Kiki in the American dub of Kikis Delivery Service and it is her highest rated movie at 100%. - u/mmmasian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216061.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. That Bradley Pierce, Kirsten Dunsts characters brother in Jumanji, was also one of the original voices of Miles from Sonic the Hedgehog. - u/AngryGuitarist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216062.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. In the famous upside down kiss scene from Sam Raimis Spider-man (2002) Tobey Maguire almost drowned. The large droplets of water kept running into his upside down nose and he couldnt breathe through his mouth because it was in Kirsten Dunsts mouth. - 
-u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216058.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. John Hughes originally bought the rights to adapt The Perks of Being a Wallflower into a film, potentially starring Shia LeBeouf and Kirsten Dunst. - u/pie_is_tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216063.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Kirsten Dunst was in the 1994 movie Interview with the Vampire: The Vampire Chronicles, playing the role of Claudia. - u/ShEsHy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216064.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Kirsten Dunst has a German passport. - u/WaltherRathenau</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216065.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216066.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Kristen Dunst did a cover of turning japanese, https://www.youtube.com/watch?v=C0X3CLJVMJU - u/TheForeverAloneOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216069.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. When Spider-man came out in 2002, Kirsten Dunst wasnt even old enough to drink. - u/Colemanowitz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216067.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Joshua Jackson and Kirsten Dunst starred in a 1997 Outer Limits about space music that evolved humans into golden creatures resistant to UV radiation. - u/AP_Esq</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216068.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Kristen Dunst and Jesse Lon Plemons were married in July 2022.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216070.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
@@ -80,7 +89,96 @@ u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky4" id="linky3">20 Concerning Comments and Clap-Backs</a><br>
+## <a href="#linky4" id="linky3">Gulf War Facts That Should Have Been Kept Secret</a><br>
+
+<span style="font-size:4em">1. During the Persian Gulf War, Topps made a trading card set depicting people and equipment on both sides of the conflict.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Disneys Aladdin was originally supposed to be set in Baghdad, but John Musker and Ron Clements were forced to change it due to the outbreak of the Gulf War. So, they took letters and did a jumbled anagram and came up with Agrabah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227841.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. During the Gulf War, the U.S. dropped a 6,800 kg BLU-82 bomb to conduct psychological warfare against Iraqi troops. A British SAS unit that witnessed the explosion assumed the U.S. had used a nuclear weapon and radioed back to their headquarters, Sir, the blokes have just nuked Kuwait!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227842.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. The first human surrender to a robot occurred in the 1991 Gulf War. The US used UAVs (drone robots) to find artillery targets. Iraqi soldiers realized that the UAVs often preceded an attack strike. A Pioneer RQ-2A UAV flew over some soldiers who then raised white flags to surrender to the robot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In the first Gulf War a B-52 bomber mistakenly targeted a fighter with its tail gun radar. The fighter shot back with a HARM missile, causing damage, but no fatalities. Afterward, the bomber was renamed In HARMs Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Grammy-winning reggae artist Shaggy served in the United States Marine Corps from 1988-1991 and was deployed to Saudi Arabia during the Gulf War. He reached the rank of Lance Corporal but was later demoted for returning to base late from a weekend trip to his music studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Since the Gulf War in 1991, when Israel was attacked by Iraqi Scud missiles, all homes in Israel are required to have a reinforced security room, Merkhav Mugan, impermeable to chemical and biological substances. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. During the run-up to the Gulf War, Muhammad Ali traveled to Iraq and personally secured the release of 15 American hostages being detained by Saddam Hussein, despite the US Government and press condemning the mission and Ali as another egomaniacal celebrity out of his depth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227847.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 2017, a company restoring a captured Iraqi tank from the Gulf War, discovered five gold bars hidden in the fuel tank when they found they couldnt lift it even though it was empty of fuel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227848.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. During the First Gulf War, the US lost 20 Bradley vehicles. Only 3 of those were destroyed by the enemy, the rest were the result of friendly fire accidents. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In the opening minutes of the Gulf War, a completely unarmed US electronic attack plane managed to defeat the latest generation (retired in 2014) French-built Iraqi Fighter Plane by maneuvering close to the ground leading to the Iraqi plane impacting the ground trying to pursue. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. During the Gulf War when American forces were faced with extensive trenches of Iraqi soldiers they, opted to use anti-mine plows mounted on tanks and combat earthmovers to simply plow over and bury alive the defending Iraqi soldiers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In 1990, Nayirah al-Ṣabaḥ, daughter of the Kuwaiti ambassador to the US, gave a false testimony which galvanized support for the first Persian Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The USS Missouri, the battleship on which the Japanese Surrendered in 1945 fired tomahawks cruise missiles in the 1991 Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In the Gulf War (1991), new pregnancies among US military personnel outnumbered US combat deaths by 8 to 1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Today I learned about the use of fire trenches by Iraqi forces as they retreated from Kuwait during the Persian Gulf War. As part of their scorched earth policy, they filled trenches in the desert with oil and set them on fire to slow the advance of coalition tanks and other heavy weaponry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The First Gulf War (in 1991) technically never ended — there was just a cease-fire. The UK used this legal loophole to justify entering the Second Gulf War (in 2003). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The 1980s pop song Everybody Wants to Rule the World was banned from being broadcast on the BBC between 1990 and 1991 because it was feared to have anti-Gulf War themes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227857.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. In the Gulf War, 9 M1 Abrams Tanks destroyed 28 T-Series Iraqi Tanks, 16 Iraqi personal carriers and 39 Iraqi trucks in under 23 minutes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Saddam Husseins regime genocided an entire race of 500,000 people known as the Marsh Arabs after the Persian Gulf War by literally destroying the environment that their entire civilization was built upon, building 32 dams to turn their homes and farms into deserts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. In Kuwait, falling bullets from celebratory gunfire after the end of the Gulf War killed at least 20 people. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. 250,000 of the 697,000 U.S. veterans who served in the 1991 Gulf War are afflicted with a chronic unknown illness causing fatigue, muscle pain, cognitive problems, rashes, and diarrhea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227861.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. During the first Gulf War, the Iraqi military would dispense propaganda pamphlets and radio spots aimed at US soldiers that said that while they were in Iraq fighting, their wives were in bed with Tom Cruise, Bruce Willis, and Bart Simpson, back at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227862.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. A Game Boy survived the fire caused by bombing in the Gulf War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227863.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. During the Gulf War, more Israeli citizens were suffocated or frightened to death, due to gas masks and the fear of chemical SCUD attacks, than died from actual SCUD missile attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227864.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky5" id="linky4">15 Interesting Facts about Kirsten Dunst</a><br>
+
+<span style="font-size:4em">1. Brad Pitt once tried to buy himself out of the movie ‘Interview with the Vampire’. Upon hearing about the 40M$ exit clause, he shot the movie. It went on to receive 2 Oscar nominations and launched Kirsten Dunst’s career. - u/rock_rahul</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Kirsten Dunst (Mary Jane Watson) is the little girl in Jumanji. - u/Mato_Jack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In the movie An Interview With a Vampire, Kirsten Dunst was only 11 and had her first kiss ever with Brad Pitt, who was 31 at the time. - u/Delanorix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Kirsten Dunst gets a coconut cake from Tom Cruise every year for Christmas. - u/mybunsarestale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Kirsten Dunst voiced Kiki in the American dub of Kikis Delivery Service and it is her highest rated movie at 100%. - u/mmmasian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. That Bradley Pierce, Kirsten Dunsts characters brother in Jumanji, was also one of the original voices of Miles from Sonic the Hedgehog. - u/AngryGuitarist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In the famous upside down kiss scene from Sam Raimis Spider-man (2002) Tobey Maguire almost drowned. The large droplets of water kept running into his upside down nose and he couldnt breathe through his mouth because it was in Kirsten Dunsts mouth. - 
+u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. John Hughes originally bought the rights to adapt The Perks of Being a Wallflower into a film, potentially starring Shia LeBeouf and Kirsten Dunst. - u/pie_is_tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Kirsten Dunst was in the 1994 movie Interview with the Vampire: The Vampire Chronicles, playing the role of Claudia. - u/ShEsHy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Kirsten Dunst has a German passport. - u/WaltherRathenau</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. There was a celebrity party in 2011 of 750 people including Gwen Stefani, Kirsten Dunst, and Will Ferrell. The party consisted of eating Naked Human Cake while live heads poked through tables as centerpieces. - u/goombah111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Kristen Dunst did a cover of turning japanese, https://www.youtube.com/watch?v=C0X3CLJVMJU - u/TheForeverAloneOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When Spider-man came out in 2002, Kirsten Dunst wasnt even old enough to drink. - u/Colemanowitz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Joshua Jackson and Kirsten Dunst starred in a 1997 Outer Limits about space music that evolved humans into golden creatures resistant to UV radiation. - u/AP_Esq</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Kristen Dunst and Jesse Lon Plemons were married in July 2022.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87216070.jpg" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky6" id="linky5">20 Concerning Comments and Clap-Backs</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/044035/87227961/responses3.png" style="width:100%"><br>
 
@@ -124,7 +222,47 @@ u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky5" id="linky4">20 Photos with Impeccable Placement</a><br>
+## <a href="#linky7" id="linky6">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
+
+<a href="#linky1">GO TO TOP</a>
+
+## <a href="#linky8" id="linky7">20 Photos with Impeccable Placement</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227943.jpg" style="width:100%"><br>
 
@@ -168,149 +306,7 @@ u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky6" id="linky5">15 Office Facts Cooler than a Bob Vance Refrigerator</a><br>
-
-<span style="font-size:4em">1. In The Office episode A Benihana Christmas, Michael Scott sang a few words to Eddie Moneys Two Tickets to Paradise. The joke cost the series $60,000. - u/Lolzzergrush</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Americans watched over 57 billion minutes of The Office in 2020. - u/pufballcat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. There were plans to have a spinoff show of The Office with Dwight Schrute running a bed-and-breakfast and beet farm. It was never picked up, but the pilot was filmed and later added into the ninth season of the show, titled The Farm. - u/pickycheestickeater</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. John Krasinski wore a wig in season 3 of The Office so he could film Leatherheads. Krasinski pitched the idea to the producer who rejected it because it would be too obvious. John, who was wearing the wig during the meeting, told him it wouldnt be, took off the wig, and was granted approval. - u/handlit33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. iTunes helped save The Office when it reached four of the top five slots for downloaded TV shows in the platform. That’s when the people behind the show learned that their audience skewed young, rather than the white-collar workers they thought would be watching. - u/qasqaldag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Office character Dwight Schrute didnt just speak the Dothraki language from Game of Thrones, he improved it. The writers correctly used its grammar and invented a new construction. David J. Peterson, the languages creator, made it canon and named it the Schrutean compound. - u/ShabtaiBenOron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Melora Hardin (The Office, US) was originally cast as the girlfriend for Back to the Future, but when Eric Stoltz was replaced by Michael J. Fox in pre-production the producers thought she was too tall and would tower over the new lead. - u/roadtrip-ne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ameenah Kaplan, who many know as the foreman who replaced Darryl in the U.S. adaptation of The Office, and has roles in The Avengers franchise, was one of the original members of the American cast of Stomp. She was also a drum coach for the Blue Man Group. - u/GoodDayTheJay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Thanks to the U.S. version of the sitcom The Office, Scranton, Pennsylvania has gone from a former coal city into a major tourist attraction, revitalizing its downtown area. - u/johnnylgarfield</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Paul Feig (Freaks and Geeks & The Office) went on the game show “The $25,000 pyramid” with the intent of quitting his day job and launching his career in stand-up comedy; he won $29k. - u/xtratopicality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Office theme was originally Mr. Blue Sky by ELO. It didnt work out and the eventual choice was written by Bob Thiele Jr, whose father co-wrote Louis Armstrongs What a Wonderful World. The final theme was later recorded by The Scrantones one week before the air-date of the premiere.” - u/goodvibezone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. That Paul Lieberstein, AKA Toby from The Office, was a writer for the first five seasons of King of the Hill. - u/pearlito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. While waiting for his audition for The Office, John Krasinski was telling someone about how he was worried the producers were going to screw the show up because of how great the British version is. The person he was talking to was Greg Daniels, the shows executive producer. - u/jkaeagle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Phyllis from The Office would pay bills and do Christmas shopping online from the office computers in the background. - u/gmcl86</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. That in 1994 Rashida Jones (Karen from The Office & Ann from Parks and Rec.) wrote an open letter to Tupac in response to remarks made by him about her parents interracial marriage. They eventually patched up their differences and Tupac went on to become friends with Rashida and her family. - u/Gemberlain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224933.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky7" id="linky6">In Poland People Cosplay as Americans and the Pics Are Wild</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050400/87227443/Polish-american-cosplay19.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050411/87227445/Polish-american-cosplay14.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050423/87227446/Polish-american-cosplay22.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050436/87227447/Polish-american-cosplay18.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050446/87227448/Polish-american-cosplay13.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050459/87227449/Polish-american-cosplay9.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050510/87227450/Polish-american-cosplay8.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050523/87227451/Polish-american-cosplay7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050535/87227452/Polish-american-cosplay15.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050550/87227453/Polish-american-cosplay21.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050555/87227454/Polish-american-cosplay17.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050607/87227456/Polish-american-cosplay5.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050619/87227457/Polish-american-cosplay3.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050637/87227458/Polish-american-cosplay2.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050655/87227460/Polish-american-cosplay10.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050701/87227461/Polish-american-cosplay20.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050707/87227462/Polish-american-cosplay16.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/01/050722/87227464/Polish-american-cosplay4.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky8" id="linky7">22 Hidden Easter Eggs You Didn't Catch</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228283.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky9" id="linky8">Donald Trump Looks Busted As Hell</a><br>
-
-<span style="font-size:4em">1. Mmm. Sweaty.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122443/87227829/cart.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122516/87227833/smile.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122447/87227830/dump.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Mullet?</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122505/87227832/face.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122537/87227835/stand.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122527/87227834/sweat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. We were inspired by the most recent pics to revisit an absolute classic. Just look at that immaculate...form.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122540/87227836/tennis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. And last but not least, Trump throwing an absolute rocket? Honestly were not sure what hes doing but the face is brilliant.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122454/87227831/ball.jpg" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky10" id="linky9">33 Funny Photos to Induce Laughter Immediately</a><br>
+## <a href="#linky9" id="linky8">33 Funny Photos to Induce Laughter Immediately</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87227873.jpg" style="width:100%"><br>
 
@@ -380,7 +376,7 @@ u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky11" id="linky10">43 Memes That Speak The Truth</a><br>
+## <a href="#linky10" id="linky9">43 Memes That Speak The Truth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224591.jpg" style="width:100%"><br>
 
@@ -470,105 +466,27 @@ u/bumblesack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky12" id="linky11">Gulf War Facts That Should Have Been Kept Secret</a><br>
+## <a href="#linky11" id="linky10">Donald Trump Looks Busted As Hell</a><br>
 
-<span style="font-size:4em">1. During the Persian Gulf War, Topps made a trading card set depicting people and equipment on both sides of the conflict.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227840.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Mmm. Sweaty.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122443/87227829/cart.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Disneys Aladdin was originally supposed to be set in Baghdad, but John Musker and Ron Clements were forced to change it due to the outbreak of the Gulf War. So, they took letters and did a jumbled anagram and came up with Agrabah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227841.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122516/87227833/smile.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. During the Gulf War, the U.S. dropped a 6,800 kg BLU-82 bomb to conduct psychological warfare against Iraqi troops. A British SAS unit that witnessed the explosion assumed the U.S. had used a nuclear weapon and radioed back to their headquarters, Sir, the blokes have just nuked Kuwait!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227842.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122447/87227830/dump.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The first human surrender to a robot occurred in the 1991 Gulf War. The US used UAVs (drone robots) to find artillery targets. Iraqi soldiers realized that the UAVs often preceded an attack strike. A Pioneer RQ-2A UAV flew over some soldiers who then raised white flags to surrender to the robot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227843.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Mullet?</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122505/87227832/face.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In the first Gulf War a B-52 bomber mistakenly targeted a fighter with its tail gun radar. The fighter shot back with a HARM missile, causing damage, but no fatalities. Afterward, the bomber was renamed In HARMs Way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227844.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122537/87227835/stand.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Grammy-winning reggae artist Shaggy served in the United States Marine Corps from 1988-1991 and was deployed to Saudi Arabia during the Gulf War. He reached the rank of Lance Corporal but was later demoted for returning to base late from a weekend trip to his music studio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227845.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122527/87227834/sweat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Since the Gulf War in 1991, when Israel was attacked by Iraqi Scud missiles, all homes in Israel are required to have a reinforced security room, Merkhav Mugan, impermeable to chemical and biological substances. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227846.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. We were inspired by the most recent pics to revisit an absolute classic. Just look at that immaculate...form.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122540/87227836/tennis.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. During the run-up to the Gulf War, Muhammad Ali traveled to Iraq and personally secured the release of 15 American hostages being detained by Saddam Hussein, despite the US Government and press condemning the mission and Ali as another egomaniacal celebrity out of his depth. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227847.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2017, a company restoring a captured Iraqi tank from the Gulf War, discovered five gold bars hidden in the fuel tank when they found they couldnt lift it even though it was empty of fuel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227848.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. During the First Gulf War, the US lost 20 Bradley vehicles. Only 3 of those were destroyed by the enemy, the rest were the result of friendly fire accidents. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In the opening minutes of the Gulf War, a completely unarmed US electronic attack plane managed to defeat the latest generation (retired in 2014) French-built Iraqi Fighter Plane by maneuvering close to the ground leading to the Iraqi plane impacting the ground trying to pursue. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. During the Gulf War when American forces were faced with extensive trenches of Iraqi soldiers they, opted to use anti-mine plows mounted on tanks and combat earthmovers to simply plow over and bury alive the defending Iraqi soldiers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In 1990, Nayirah al-Ṣabaḥ, daughter of the Kuwaiti ambassador to the US, gave a false testimony which galvanized support for the first Persian Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The USS Missouri, the battleship on which the Japanese Surrendered in 1945 fired tomahawks cruise missiles in the 1991 Gulf War. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In the Gulf War (1991), new pregnancies among US military personnel outnumbered US combat deaths by 8 to 1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Today I learned about the use of fire trenches by Iraqi forces as they retreated from Kuwait during the Persian Gulf War. As part of their scorched earth policy, they filled trenches in the desert with oil and set them on fire to slow the advance of coalition tanks and other heavy weaponry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The First Gulf War (in 1991) technically never ended — there was just a cease-fire. The UK used this legal loophole to justify entering the Second Gulf War (in 2003). </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The 1980s pop song Everybody Wants to Rule the World was banned from being broadcast on the BBC between 1990 and 1991 because it was feared to have anti-Gulf War themes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227857.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. In the Gulf War, 9 M1 Abrams Tanks destroyed 28 T-Series Iraqi Tanks, 16 Iraqi personal carriers and 39 Iraqi trucks in under 23 minutes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Saddam Husseins regime genocided an entire race of 500,000 people known as the Marsh Arabs after the Persian Gulf War by literally destroying the environment that their entire civilization was built upon, building 32 dams to turn their homes and farms into deserts. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. In Kuwait, falling bullets from celebratory gunfire after the end of the Gulf War killed at least 20 people. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. 250,000 of the 697,000 U.S. veterans who served in the 1991 Gulf War are afflicted with a chronic unknown illness causing fatigue, muscle pain, cognitive problems, rashes, and diarrhea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227861.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. During the first Gulf War, the Iraqi military would dispense propaganda pamphlets and radio spots aimed at US soldiers that said that while they were in Iraq fighting, their wives were in bed with Tom Cruise, Bruce Willis, and Bart Simpson, back at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227862.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. A Game Boy survived the fire caused by bombing in the Gulf War.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227863.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. During the Gulf War, more Israeli citizens were suffocated or frightened to death, due to gas masks and the fear of chemical SCUD attacks, than died from actual SCUD missile attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227864.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. And last but not least, Trump throwing an absolute rocket? Honestly were not sure what hes doing but the face is brilliant.</span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/122454/87227831/ball.jpg" style="width:100%"><br>
 
 <a href="#linky1">GO TO TOP</a>
 
-## <a href="#linky13" id="linky12">20 Different Foods with Threatening Auras</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101937/87227756/banana.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/101948/87227757/choc.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102001/87227758/beans.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/102013/87227761/corn.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103140/87227769/dogs.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103151/87227770/dough.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103202/87227771/egg.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103213/87227772/nemo.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103224/87227773/pepper.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103235/87227774/pickle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103247/87227775/pizza.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103428/87227777/gravy.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103454/87227779/gilk.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103835/87227780/ketchup.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103846/87227781/butt.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103929/87227784/slurp.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103941/87227785/what.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/103953/87227786/wings.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104142/87227788/raunch.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/08/02/104425/87227789/glass.png" style="width:100%"><br>
-
-<a href="#linky1">GO TO TOP</a>
-
-## <a href="#linky14" id="linky13">50 Nifty Photos to Help Pass the Time</a><br>
+## <a href="#linky12" id="linky11">50 Nifty Photos to Help Pass the Time</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87227505.jpg" style="width:100%"><br>
 
